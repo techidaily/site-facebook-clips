@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] MP4 Conversion Made Simple  FB Video to 720P, 1080P at Zero Charge for 2024\""
-date: 2024-05-20T17:01:55.332Z
-updated: 2024-05-21T17:01:55.332Z
+date: 2024-06-09T04:34:05.111Z
+updated: 2024-06-10T04:34:05.111Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] MP4 Conversion Made Simple: FB Video to 720P, 1080P at Zero Charge for 2024\""
 excerpt: "\"This Article Describes [Updated] MP4 Conversion Made Simple: FB Video to 720P, 1080P at Zero Charge for 2024\""
 keywords: "\"MP4 Conversion,Free Video Quality,No Charge MP4,High-Res FB to MP4,Convert FB Video,Zero Cost HD,FB Video Upgrade\""
-thumbnail: https://www.lifewire.com/thmb/iWtxzOACOnG_uyFFcUmFDT7X-Co=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Vendoo-cofounder-Josh-75719038e6f2495b8047a5297bc9d046.png
+thumbnail: https://thmb.techidaily.com/4114f7cfe0acd398f6e6dc6c01ce0be957bdf6a2654636b72d1c325e241fdeaf.png
 ---
 
 ## MP4 Conversion Made Simple: FB Video to 720P, 1080P at Zero Charge

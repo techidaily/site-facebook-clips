@@ -1,7 +1,7 @@
 ---
 title: "Guide to Disable Facebook Broadcasts, Mobile/Desktop for 2024"
-date: 2024-05-20T17:42:47.535Z
-updated: 2024-05-21T17:42:47.535Z
+date: 2024-06-09T04:34:19.208Z
+updated: 2024-06-10T04:34:19.208Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Guide to Disable Facebook Broadcasts, Mobile/Desktop for 2024"
 excerpt: "This Article Describes Guide to Disable Facebook Broadcasts, Mobile/Desktop for 2024"
 keywords: "Disabling FB Broadcasts (Mobile),Stop FB Broadcasts (Desktop),How to Turn Off FB Live (Mobile),Prevent FB Live Streaming (Desktop),Cease Facebook Live Sharing (Mobile/Desktop),End Facebook Video Broadcasts (Mobile),Halt Mobile/Desktop FB Live (Keyword Combo)"
-thumbnail: https://www.lifewire.com/thmb/1GNoj79Wd2P3m5NhvYCQDjqSocU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1147622423-211c8ae1f88a4b1bae8f277422e23d3d.jpg
+thumbnail: https://thmb.techidaily.com/954afef8b3467f4a3bd6be4e616e7e9c0c40d6a5dfa6d1b3e758e9ac9f354ba6.jpg
 ---
 
 ## Guide to Disable Facebook Broadcasts, Mobile/Desktop

@@ -1,7 +1,7 @@
 ---
 title: "\"Troubleshooting iPhone & Android  FB Messenger Stuck on Videos\""
-date: 2024-05-20T17:36:53.145Z
-updated: 2024-05-21T17:36:53.145Z
+date: 2024-06-09T04:34:12.201Z
+updated: 2024-06-10T04:34:12.201Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Troubleshooting iPhone & Android: FB Messenger Stuck on Videos\""
 excerpt: "\"This Article Describes Troubleshooting iPhone & Android: FB Messenger Stuck on Videos\""
 keywords: "FB Messenger Fix,Video Message Issue,Phone App Problems,IOS Troubleshoot,Android Glitch Help,Unfreezing Messages,Video Call Stuck Fix"
-thumbnail: https://www.lifewire.com/thmb/N5UrIARNfCjb0pVH7HVMoU4yV8A=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-138708900-d7b63efbece1405aadc03d4654fccd78.jpg
+thumbnail: https://thmb.techidaily.com/9dc3437ed1a0c4e12ecf0fe73c74b8d72b51654a1b0d3ea6af6735c5a10c75f4.jpg
 ---
 
 ## Troubleshooting iPhone & Android: FB Messenger Stuck on Videos

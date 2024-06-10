@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Instantly Retire Your Digital Diaries (FB)\""
-date: 2024-05-20T16:41:56.425Z
-updated: 2024-05-21T16:41:56.425Z
+date: 2024-06-09T04:34:11.543Z
+updated: 2024-06-10T04:34:11.543Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Instantly Retire Your Digital Diaries (FB)\""
 excerpt: "\"This Article Describes 2024 Approved: Instantly Retire Your Digital Diaries (FB)\""
 keywords: "Retire FB Diaries,Instant Digital Exit,Delete Facebook Journals,Quick FB Deactivation,Easily Remove FB Accounts,Immediate FB Privacy,Abruptly Close FB Page"
-thumbnail: https://www.lifewire.com/thmb/jEvS4hCjQpYChJrL63gqB32mNQ8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/185267882-56a0e1e03df78cafdaa603c6.jpg
+thumbnail: https://thmb.techidaily.com/5d0cffeef3a457f6d646442a32f08e24ee51602aa778ea2d41cdc52aa7fdbdaa.jpg
 ---
 
 ## Instantly Retire Your Digital Diaries (FB)

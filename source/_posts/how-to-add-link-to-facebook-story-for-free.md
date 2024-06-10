@@ -1,7 +1,7 @@
 ---
 title: "How to Add Link to Facebook Story for Free?"
-date: 2024-05-20T17:19:49.853Z
-updated: 2024-05-21T17:19:49.853Z
+date: 2024-06-09T04:34:18.354Z
+updated: 2024-06-10T04:34:18.354Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes How to Add Link to Facebook Story for Free?"
 excerpt: "This Article Describes How to Add Link to Facebook Story for Free?"
 keywords: "Facebook Story Share Tips,Free Story Link Adding Guide,Share Stories on FB For Free,Integrate FB Story with Links,Add Links to FB Stories,Promote Content via FB Linking,Free Method for Linking FB Stories"
-thumbnail: https://www.lifewire.com/thmb/TgfsZn-nOejfKyE4x2fYRF_534o=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/yahoo-logo-dfc499edd19d406494a61176de29453b.png
+thumbnail: https://thmb.techidaily.com/5b80927e68923eec1d1361008f6bde3827f135dcc6188baf767c77fe55f4ad9e.png
 ---
 
 ## Quickly Connect Your FB Story via Linked Profile

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Top Picks for Downloading FB Videos on Firefox  The Ultimate Addons and Plugins List, 2023\""
-date: 2024-05-20T17:25:49.824Z
-updated: 2024-05-21T17:25:49.824Z
+date: 2024-06-09T04:34:05.189Z
+updated: 2024-06-10T04:34:05.189Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Top Picks for Downloading FB Videos on Firefox: The Ultimate Addons and Plugins List, 2023\""
 excerpt: "\"This Article Describes In 2024, Top Picks for Downloading FB Videos on Firefox: The Ultimate Addons and Plugins List, 2023\""
 keywords: "Download FB Video Firefox,FB Videos Firefox Extension,Firefox FB Video Downloader,Top FB Video Tools Firefox,Addons Plugins FF Download,Firefox FB Video List 2023,Ultimate FB Video Plugin FF"
-thumbnail: https://www.lifewire.com/thmb/wbIj8Nnh7GHWuHhw-jihfDWuFcY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/6-best-parental-control-apps-of-2019-featured-c5b50932ab9c4c0fbc0757665e46b6b2.jpg
+thumbnail: https://thmb.techidaily.com/54fd3e003b786647a6f1d7a89a0a9ff3e56e44f972b8ef6e36ebd7fc54a18cb3.jpg
 ---
 
 ## Top Picks for Downloading FB Videos on Firefox: The Ultimate Addons and Plugins List, 2023

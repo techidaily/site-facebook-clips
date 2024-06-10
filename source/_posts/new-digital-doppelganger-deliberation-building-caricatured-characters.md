@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Digital Doppelganger Deliberation  Building Caricatured Characters\""
-date: 2024-05-20T17:19:57.450Z
-updated: 2024-05-21T17:19:57.450Z
+date: 2024-06-09T04:34:19.672Z
+updated: 2024-06-10T04:34:19.672Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Digital Doppelganger Deliberation: Building Caricatured Characters\""
 excerpt: "\"This Article Describes [New] Digital Doppelganger Deliberation: Building Caricatured Characters\""
 keywords: "Digital Caricatures,Character Design,Doppelganger Art,Digital Replicas,Virtual Portraits,Faces in Tech,Facial Manipulation"
-thumbnail: https://www.lifewire.com/thmb/hFSr7tZO2lC3M-Ar2jAVMNoIqLA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/title-35d737cc16e2486ca049b6d80c7d5da3.jpg
+thumbnail: https://thmb.techidaily.com/78573d1d50e3fe1a208211e6210a893de5cb63383e5008c1e4699b06b4a4f916.jpg
 ---
 
 ## Digital Doppelganger Deliberation: Building Caricatured Characters

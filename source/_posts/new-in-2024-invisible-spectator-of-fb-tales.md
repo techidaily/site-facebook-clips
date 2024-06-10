@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Invisible Spectator of FB Tales"
-date: 2024-05-20T16:20:53.993Z
-updated: 2024-05-21T16:20:53.993Z
+date: 2024-06-09T04:34:12.635Z
+updated: 2024-06-10T04:34:12.635Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, Invisible Spectator of FB Tales"
 excerpt: "This Article Describes [New] In 2024, Invisible Spectator of FB Tales"
 keywords: "Facebook Story Watcher,Tales Observer,Invisible Viewers,Social Media Witness,Ephemeral Content Audience,Unseen FB Enthusiasts,Covert Story Viewer"
-thumbnail: https://www.lifewire.com/thmb/94K5GqwuKdK6K1JaENti-KWnxDU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/dvd-head-unit-rick-5806a1235f9b5805c2869f14-5bd33997c9e77c002612bbc8.jpg
+thumbnail: https://thmb.techidaily.com/a3a9fc7f1967fe6814b7bcf229ad0c8c09fecb880f152e3279a23ce2f1e6acd7.jpg
 ---
 
 ## Invisible Spectator of FB Tales

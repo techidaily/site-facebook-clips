@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Setting Up Facebook LIVE  Your Roku Route\""
-date: 2024-05-20T17:42:24.959Z
-updated: 2024-05-21T17:42:24.959Z
+date: 2024-06-09T04:34:21.659Z
+updated: 2024-06-10T04:34:21.659Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Setting Up Facebook LIVE: Your Roku Route\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Setting Up Facebook LIVE: Your Roku Route\""
 keywords: "Live Streaming Setup,Facebook LIVE Basics,Roku Livestream Guide,Social Media Broadcasting,Easy LIVE Channel,Join Roku Live TV,Setting Up Live Chat"
-thumbnail: https://www.lifewire.com/thmb/FoG3HUTDruXyJENASrWh8lwrbw0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/httyd-27e5b3b8faf64cca9650554bf0261d91.jpg
+thumbnail: https://thmb.techidaily.com/0d3d204f3859dff7eef251abf3745730eecca41037a408c561029879668d653a.jpg
 ---
 
 ## Setting Up Facebook LIVE: Your Roku Route

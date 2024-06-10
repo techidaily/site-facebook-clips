@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Ultimate Guide  Top 6 FB Lite Video Extractors\""
-date: 2024-05-20T16:34:09.669Z
-updated: 2024-05-21T16:34:09.669Z
+date: 2024-06-09T04:34:20.054Z
+updated: 2024-06-10T04:34:20.054Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Ultimate Guide: Top 6 FB Lite Video Extractors\""
 excerpt: "\"This Article Describes 2024 Approved: Ultimate Guide: Top 6 FB Lite Video Extractors\""
 keywords: "FB Lite Video Extraction,Ultimate Lite FB Tools,Optimal Lite FB Videos,Top Lite FB Extractor Guide,Leading FB Lite Extractor,Premier FB Lite Extractor,Expert Lite FB Video Tool"
-thumbnail: https://www.lifewire.com/thmb/h57-lIQDvScITgWTh6KzTC1eTDc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Download-WhatsApp-For-Mac-Website-8424741-17919dc136494cc09a3924b885d17a6c.jpg
+thumbnail: https://thmb.techidaily.com/7d51f3f0aee270ec2782becb99c1a414abb8cba30f3dde81226f486e6ab605fb.jpg
 ---
 
 ## Ultimate Guide: Top 6 FB Lite Video Extractors

@@ -1,7 +1,7 @@
 ---
 title: "100 Killer Facebook Bios to Make Profile Attractive2 for 2024"
-date: 2024-05-20T17:50:39.426Z
-updated: 2024-05-21T17:50:39.426Z
+date: 2024-06-09T04:34:16.949Z
+updated: 2024-06-10T04:34:16.949Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes 100 Killer Facebook Bios to Make Profile Attractive2 for 2024"
 excerpt: "This Article Describes 100 Killer Facebook Bios to Make Profile Attractive2 for 2024"
 keywords: "Attractive FB Bios,Engaging Social Media Profiles,Impressive FB Biographies,Captivating Facebook Content,Dynamic Profile Descriptions,Striking Social Network Bio,Noteworthy Online Bios"
-thumbnail: https://www.lifewire.com/thmb/FFBWrSKUv10PDo1VV6r976n9RLQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/linksys-default-password-list-2619153-5fccecc7c0b04133b2202a1fa9e8d37a.png
+thumbnail: https://thmb.techidaily.com/75e496d7d03af882c809a7273c9e1eb1d9baeae9a3a5a4a6ed566b778061c9ff.png
 ---
 
 ## 100 Killer Facebook Bios to Make Profile Attractive2

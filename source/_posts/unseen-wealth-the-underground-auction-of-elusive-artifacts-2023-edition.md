@@ -1,7 +1,7 @@
 ---
 title: "\"Unseen Wealth  The Underground Auction of Elusive Artifacts, 2023 Edition\""
-date: 2024-05-20T17:26:31.701Z
-updated: 2024-05-21T17:26:31.701Z
+date: 2024-06-09T04:34:17.738Z
+updated: 2024-06-10T04:34:17.738Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Unseen Wealth: The Underground Auction of Elusive Artifacts, 2023 Edition\""
 excerpt: "\"This Article Describes Unseen Wealth: The Underground Auction of Elusive Artifacts, 2023 Edition\""
 keywords: "Elusive Antiques Sale,Hidden Artifact Market,Secret Auctions 2023,Rare Finds Expo,Underground Collectibles,Clandestine Trade 2023,Mystery Artifacts Deal"
-thumbnail: https://www.lifewire.com/thmb/Ek5qs_J_CIp6KZPp1ZWJd1wdTv0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed-d96179f6affc4fe0b0b2c49e89646bd9.png
+thumbnail: https://thmb.techidaily.com/657c6ed7c4c5009fda7b9debb5d0440f9ba124b99f1e715f38abd38365f6151e.png
 ---
 
 ## Unseen Wealth: The Underground Auction of Elusive Artifacts, 2023 Edition

@@ -1,7 +1,7 @@
 ---
 title: "\"EasyVidRecorder  Web-Based Video Grab for 2024\""
-date: 2024-05-20T17:31:09.557Z
-updated: 2024-05-21T17:31:09.557Z
+date: 2024-06-09T04:34:18.053Z
+updated: 2024-06-10T04:34:18.053Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes EasyVidRecorder: Web-Based Video Grab for 2024\""
 excerpt: "\"This Article Describes EasyVidRecorder: Web-Based Video Grab for 2024\""
 keywords: "Easy Vid Recording,Web Video Capture,Video Grab Online,Quick Vid Record,Simplified Video Save,Easy Vid Web Grabbing,Flexible Video Download"
-thumbnail: https://www.lifewire.com/thmb/FSEnoGCMAP0T58dNwB2d4-upLhA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-688982955-596fff12519de200112ef724.jpg
+thumbnail: https://thmb.techidaily.com/445d6c97ace4ef05d63cde4f33374d4b0783e76d1e91d61e1ddb527be75674b2.jpg
 ---
 
 ## EasyVidRecorder: Web-Based Video Grab

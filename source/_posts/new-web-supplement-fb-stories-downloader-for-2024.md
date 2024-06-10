@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Web Supplement  FB Stories Downloader for 2024\""
-date: 2024-05-20T16:32:16.891Z
-updated: 2024-05-21T16:32:16.891Z
+date: 2024-06-09T04:34:11.127Z
+updated: 2024-06-10T04:34:11.127Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Web Supplement: FB Stories Downloader for 2024\""
 excerpt: "\"This Article Describes [New] Web Supplement: FB Stories Downloader for 2024\""
 keywords: "FB Story Extractor,Social Media Content Grab,Download Facebook Stories,Easy FB Video Reporter,Share Stories Instantly,Capture FB Moments,Direct FB Video Access"
-thumbnail: https://www.lifewire.com/thmb/t_bI7HCvhkb8SqhKHeK7E2E9LWo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1271990303-32f5706e9f8f4bdf940b6eedc13f5e67.jpg
+thumbnail: https://thmb.techidaily.com/4285b91a5eec460b353e6cabe3924d845457ea4dd57027d124c1eda481947485.jpg
 ---
 
 ## Web Supplement: FB Stories Downloader

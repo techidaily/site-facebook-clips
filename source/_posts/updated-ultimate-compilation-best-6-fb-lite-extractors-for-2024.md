@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Ultimate Compilation  Best 6 FB Lite Extractors for 2024\""
-date: 2024-05-20T16:34:40.427Z
-updated: 2024-05-21T16:34:40.427Z
+date: 2024-06-09T04:34:05.715Z
+updated: 2024-06-10T04:34:05.715Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Ultimate Compilation: Best 6 FB Lite Extractors for 2024\""
 excerpt: "\"This Article Describes [Updated] Ultimate Compilation: Best 6 FB Lite Extractors for 2024\""
 keywords: "Facebook Lite Extractor,Ultimate Lite Tools,Top Extractor Apps,Free Lite Content Grab,Expert Lite Downloader,Easy Lite Extraction,Optimal Lite Seeder"
-thumbnail: https://www.lifewire.com/thmb/8DPY2jUm3Ja0KzAcKz1wMUfSeyA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/fragmented-pieces-ed9aede8070749238add68007d7728d9.png
+thumbnail: https://thmb.techidaily.com/19760dde0975a0de0ce2cfe0db96677605f044bc91648bd3418188a2647d61d0.png
 ---
 
 ## Ultimate Compilation: Best 6 FB Lite Extractors

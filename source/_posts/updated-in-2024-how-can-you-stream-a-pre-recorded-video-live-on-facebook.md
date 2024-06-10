@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, How Can You Stream A Pre-Recorded Video Live on Facebook?\""
-date: 2024-05-20T16:33:27.373Z
-updated: 2024-05-21T16:33:27.373Z
+date: 2024-06-09T04:34:20.221Z
+updated: 2024-06-10T04:34:20.221Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, How Can You Stream A Pre-Recorded Video Live on Facebook?\""
 excerpt: "\"This Article Describes [Updated] In 2024, How Can You Stream A Pre-Recorded Video Live on Facebook?\""
 keywords: "\"Live Streaming Videos,Pre-Recorded Broadcast,Facebook Video Stream,Livestream Recordings,Online Video Sharing,Direct Video Transmission,Real-Time FB Playback\""
-thumbnail: https://www.lifewire.com/thmb/21o2y5NdnwK9g8j7z_eUWi12JAw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-504331578-cheering-football-on-tv-5a231ffdaad52b00372ae2a6.jpg
+thumbnail: https://thmb.techidaily.com/264f7e50d992f10f22f440e035402650c9e912cde2fed4f7c2aee477f6b93402.jpg
 ---
 
 ## How Can You Stream A Pre-Recorded Video Live on Facebook?

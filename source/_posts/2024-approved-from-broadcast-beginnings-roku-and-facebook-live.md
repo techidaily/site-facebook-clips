@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  From Broadcast Beginnings  Roku and Facebook LIVE\""
-date: 2024-05-20T16:54:47.847Z
-updated: 2024-05-21T16:54:47.847Z
+date: 2024-06-09T04:34:09.288Z
+updated: 2024-06-10T04:34:09.288Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: From Broadcast Beginnings: Roku and Facebook LIVE\""
 excerpt: "\"This Article Describes 2024 Approved: From Broadcast Beginnings: Roku and Facebook LIVE\""
 keywords: "\"Roku Live Streaming,Facebook Video Sharing,Broadband Media Platforms,Livestream Technology,Digital Broadcast Evolution,Social Videostreaming,Roku-Facebook Integration\""
-thumbnail: https://www.lifewire.com/thmb/fISZPTsU28blhcDW4RpwajAAPvM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/SportsPeoplev3a-2e1cc0e86b164d6097cc018c9ddf9728.jpg
+thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05d2a33906086e284e9c970a7.jpg
 ---
 
 ## From Broadcast Beginnings: Roku and Facebook LIVE

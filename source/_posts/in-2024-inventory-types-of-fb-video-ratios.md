@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Inventory  Types of FB Video Ratios\""
-date: 2024-05-20T16:56:04.247Z
-updated: 2024-05-21T16:56:04.247Z
+date: 2024-06-09T04:34:10.084Z
+updated: 2024-06-10T04:34:10.084Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Inventory: Types of FB Video Ratios\""
 excerpt: "\"This Article Describes In 2024, Inventory: Types of FB Video Ratios\""
 keywords: "FB Video Ratio Types,Inventory FB Ratios,FB Video Ratio Analysis,Video Ratio Categories,FB Inventory Metrics,Inventory Video Quality,Ratios in FB Videos"
-thumbnail: https://www.lifewire.com/thmb/nY-xMmJ8eSNy6sVe0OKN-PVjSNM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/subwaysurfers-11a4d59f94d64363ad6a19cd07dfe109.jpeg
+thumbnail: https://thmb.techidaily.com/d156dc661c6f6baa9eb3b5c3ab4152f8f8f4fcdc0dbe084557e36eab0ab2db64.jpeg
 ---
 
 ## Inventory: Types of FB Video Ratios

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Guide  Sharing Melodies in Facebook Narratives\""
-date: 2024-05-20T17:07:53.171Z
-updated: 2024-05-21T17:07:53.171Z
+date: 2024-06-09T04:34:07.618Z
+updated: 2024-06-10T04:34:07.618Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Guide: Sharing Melodies in Facebook Narratives\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Guide: Sharing Melodies in Facebook Narratives\""
 keywords: "Music on FB Stories,Share Tunes FB Guide,FB Storytelling with Songs,Social Media Songshares,Sharing Melodies Online,Melody FB Narratives Guide,Harmonious Facebook Content"
-thumbnail: https://www.lifewire.com/thmb/qTkJRf5hInrQrK9KKLcFyjldqzg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/galaxy-watch-45383eb20ff548eb8e29770d344c8fb5.jpg
+thumbnail: https://thmb.techidaily.com/78f06b81f7c57e1e88ac6a7fa4601f5ae07cf7d31be3889aa12b125cc68b1e89.jpg
 ---
 
 ## Guide: Sharing Melodies in Facebook Narratives

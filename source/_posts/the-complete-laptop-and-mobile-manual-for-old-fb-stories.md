@@ -1,7 +1,7 @@
 ---
 title: "The Complete Laptop & Mobile Manual for Old FB Stories"
-date: 2024-05-20T17:03:33.313Z
-updated: 2024-05-21T17:03:33.313Z
+date: 2024-06-09T04:34:11.890Z
+updated: 2024-06-10T04:34:11.890Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes The Complete Laptop & Mobile Manual for Old FB Stories"
 excerpt: "This Article Describes The Complete Laptop & Mobile Manual for Old FB Stories"
 keywords: "FB Story Guide,FB Tutorial Manual,Social Media Story Help,Laptop Mobile FB Insight,Old FB Stories Tips,Mobile FB Story Techniques,Complete FB Stories Guide"
-thumbnail: https://www.lifewire.com/thmb/Zkql4VrA6Ie6ueLJLk0KayOXuBc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/buygamesonquest-9a47b1c4edd0425993d28e43d66a881c.jpg
+thumbnail: https://thmb.techidaily.com/2b68f106433b091c014f2083746f9820ace97ab74d68e3b5f340250f5652e1ee.jpg
 ---
 
 ## The Complete Laptop & Mobile Manual for Old FB Stories

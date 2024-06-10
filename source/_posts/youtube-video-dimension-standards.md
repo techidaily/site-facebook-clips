@@ -1,7 +1,7 @@
 ---
 title: "YouTube Video Dimension Standards"
-date: 2024-05-20T16:48:55.759Z
-updated: 2024-05-21T16:48:55.759Z
+date: 2024-06-09T04:34:05.560Z
+updated: 2024-06-10T04:34:05.560Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes YouTube Video Dimension Standards"
 excerpt: "This Article Describes YouTube Video Dimension Standards"
 keywords: "YouTube Video Specs,Video Resolution Norms,Video Dimension Rules,YouTube Aspect Ratio,Video Width Guidelines,Height to Width Ratios,Streaming Video Standards"
-thumbnail: https://www.lifewire.com/thmb/U2MxMC7x68QSBe04473NO1a3dS0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/iTethering-resized-56a532c53df78cf77286dec1.jpg
+thumbnail: https://thmb.techidaily.com/7145ec69591f6ebc68facf261c1d68971298e27f3697b076251aa5b51f323de0.jpg
 ---
 
 ## YouTube Video Dimension Standards

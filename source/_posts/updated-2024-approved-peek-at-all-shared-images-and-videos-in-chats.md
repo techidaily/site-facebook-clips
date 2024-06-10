@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Peek at All Shared Images & Videos in Chats\""
-date: 2024-05-20T17:23:56.097Z
-updated: 2024-05-21T17:23:56.097Z
+date: 2024-06-09T04:34:11.434Z
+updated: 2024-06-10T04:34:11.434Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Peek at All Shared Images & Videos in Chats\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Peek at All Shared Images & Videos in Chats\""
 keywords: "Share Image Views,Video Chat Insights,Chat Image Gallery,Images in Grouping,Chat Viewer Access,Shared Image Snapshot,Video Chat Peek"
-thumbnail: https://www.lifewire.com/thmb/P9BLOm818Wmv2RgfhK_jtXxf4Rk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/178665671_HighRes-56a532a83df78cf77286de1b.jpg
+thumbnail: https://thmb.techidaily.com/b5dfde40e2a9ad5275b840b5f0fbb161aac4de7d7745911720b5a34076945390.jpg
 ---
 
 ## Peek at All Shared Images & Videos in Chats

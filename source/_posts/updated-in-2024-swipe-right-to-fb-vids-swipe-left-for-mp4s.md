@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Swipe Right to FB Vids, Swipe Left for MP4s"
-date: 2024-05-20T16:26:23.023Z
-updated: 2024-05-21T16:26:23.023Z
+date: 2024-06-09T04:34:08.405Z
+updated: 2024-06-10T04:34:08.405Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, Swipe Right to FB Vids, Swipe Left for MP4s"
 excerpt: "This Article Describes [Updated] In 2024, Swipe Right to FB Vids, Swipe Left for MP4s"
 keywords: "FacebookVidSwipesRight,MP4SwipesLeft,FBVideosChoices,MP4FormatSwipeLeft,SwipeFBVidsRight,MP4VSwipeChoice,SocialMediaVideoOptions"
-thumbnail: https://www.lifewire.com/thmb/jBnabVblnU-pVzdwjWgW35QXhjQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/PreetAnand-4c9eb5ff333041e2a6a25710d87b4a34.png
+thumbnail: https://thmb.techidaily.com/6af9f284b317fd0fc6915e0019f4adbc9dd81ab605d1c55ebd68e10c11778128.png
 ---
 
 ## Swipe Right to FB Vids, Swipe Left for MP4s

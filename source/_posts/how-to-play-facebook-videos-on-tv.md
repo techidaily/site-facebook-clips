@@ -1,7 +1,7 @@
 ---
 title: "How To Play Facebook Videos on TV?"
-date: 2024-05-20T16:30:09.922Z
-updated: 2024-05-21T16:30:09.922Z
+date: 2024-06-09T04:34:18.496Z
+updated: 2024-06-10T04:34:18.496Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes How To Play Facebook Videos on TV?"
 excerpt: "This Article Describes How To Play Facebook Videos on TV?"
 keywords: "FB Video Cast,TV FB Video Play,Cast FB Video,FB Videos TV,Play FB on TV,TV FB Video Watch,FB Video Broadcast"
-thumbnail: https://www.lifewire.com/thmb/C13kDXdga-Oj5T83l4u1qvp3-7A=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Apple-iPhone-15-lineup-color-lineup-230912_big.jpg.large_2x-a6d9996e39824ffd99060b4183a1edf5.jpg
+thumbnail: https://thmb.techidaily.com/c2c5f7637a1a98a896ffa1ab11bfad790f7bce8cef68212efe6eba279207bd77.jpg
 ---
 
 ## How To Play Facebook Videos on TV?

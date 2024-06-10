@@ -1,7 +1,7 @@
 ---
 title: "How to Create Facebook Video Ads with FREE Video Creation Kit, In 2024"
-date: 2024-05-20T16:51:12.820Z
-updated: 2024-05-21T16:51:12.820Z
+date: 2024-06-09T04:34:16.170Z
+updated: 2024-06-10T04:34:16.170Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes How to Create Facebook Video Ads with FREE Video Creation Kit, In 2024"
 excerpt: "This Article Describes How to Create Facebook Video Ads with FREE Video Creation Kit, In 2024"
 keywords: "\"FB Video Ad Creation,Free FB Video Toolkit,Facebook Ad Videos,Generate FB Ads,No-Cost FB Ad Setup,FREE FB Video Guide,Create FB Video Promo\""
-thumbnail: https://www.lifewire.com/thmb/YtwC6-9z09B3R2k9kYI9fumd-4E=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/anydesk-chat-and-permissions-30a4ed244d974fcaa411055083e3bbc2.png
+thumbnail: https://thmb.techidaily.com/e12562333e85045ab9221a99e913b83b793150ee785e5f59fee7c9f18bec3976.png
 ---
 
 ## Discover Easy FB Ad Videos – FREE Creation Kit Available

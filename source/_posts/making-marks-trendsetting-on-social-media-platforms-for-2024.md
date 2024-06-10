@@ -1,7 +1,7 @@
 ---
 title: "\"Making Marks  Trendsetting on Social Media Platforms for 2024\""
-date: 2024-05-20T16:51:26.445Z
-updated: 2024-05-21T16:51:26.445Z
+date: 2024-06-09T04:34:15.864Z
+updated: 2024-06-10T04:34:15.864Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Making Marks: Trendsetting on Social Media Platforms for 2024\""
 excerpt: "\"This Article Describes Making Marks: Trendsetting on Social Media Platforms for 2024\""
 keywords: "Social Media Influence,Trendsetters Online,Branding Through Socia,Digital Content Creation,Engagement Strategies,Marketing in Social Platforms,Viral Brand Campaigns"
-thumbnail: https://www.lifewire.com/thmb/vIrcE4SKlxDw0DhFl8M9ilBfxG4=/2000x0/filters:no_upscale():max_bytes(150000):strip_icc()/Streaming_GettyImages-1317797291_grinvalds_CROPPED-e2f9d4a91c004a85a244031575aca1a0.jpg
+thumbnail: https://thmb.techidaily.com/127593239da9ddf3aa0e35e9fdfe9cdfb96622adf462fe90ad515f1ed2896ad3.jpg
 ---
 
 ## Making Marks: Trendsetting on Social Media Platforms

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Facebook Slideshow  How to Create a Slideshow on Facebook\""
-date: 2024-05-20T16:58:02.923Z
-updated: 2024-05-21T16:58:02.923Z
+date: 2024-06-09T04:34:13.794Z
+updated: 2024-06-10T04:34:13.794Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Facebook Slideshow: How to Create a Slideshow on Facebook\""
 excerpt: "\"This Article Describes 2024 Approved: Facebook Slideshow: How to Create a Slideshow on Facebook\""
 keywords: "Facebook Slideshow Tutorial,FB Slideshow Creation Guide,Social Media Slideshow,Building Fb Slideshows,Designing FB Slideshows,Create FB Slideshows Easy,Interactive FB Slideshow"
-thumbnail: https://www.lifewire.com/thmb/AW6HgptXJMZye-2QsM4CJwOfRMM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/difference-between-usb-and-aux-534612-8a6e2fd2677145eaaa8fb0d8635b39d5.png
+thumbnail: https://thmb.techidaily.com/7b53187b4430cc2c3cbe56db79b5743ab13bdfc8c137447758d708535575ea61.png
 ---
 
 ## Engage Followers: Effective Strategies for FB Slideshows

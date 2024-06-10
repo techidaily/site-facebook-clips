@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Chrome Extensions | Best 5 Facebook Video Downloaders for Chrome"
-date: 2024-05-20T16:41:48.170Z
-updated: 2024-05-21T16:41:48.170Z
+date: 2024-06-09T04:34:05.388Z
+updated: 2024-06-10T04:34:05.388Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes In 2024, Chrome Extensions | Best 5 Facebook Video Downloaders for Chrome"
 excerpt: "This Article Describes In 2024, Chrome Extensions | Best 5 Facebook Video Downloaders for Chrome"
 keywords: "Chrome Video Downloader,Facebook Video Save,Free Chrome Video Ext,Chrome Video Grabber,FB Video to File,Chrome Video Tools,Save Facebook Videos"
-thumbnail: https://www.lifewire.com/thmb/mK-HmnWarrLiD8ffOlJlcSgm-2U=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed-6870a02faf0b4509a94bb66c2b174d72.jpg
+thumbnail: https://thmb.techidaily.com/6f24909f969f84628da7cca908a8ecbcf1f1310799ac0e990b393370971b6be4.jpg
 ---
 
 ## Chrome Extensions | Best 5 Facebook Video Downloaders for Chrome

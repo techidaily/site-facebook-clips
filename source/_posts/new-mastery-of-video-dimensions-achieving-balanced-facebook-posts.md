@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastery of Video Dimensions  Achieving Balanced Facebook Posts\""
-date: 2024-05-20T16:32:43.084Z
-updated: 2024-05-21T16:32:43.084Z
+date: 2024-06-09T04:34:05.482Z
+updated: 2024-06-10T04:34:05.482Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Mastery of Video Dimensions: Achieving Balanced Facebook Posts\""
 excerpt: "\"This Article Describes [New] Mastery of Video Dimensions: Achieving Balanced Facebook Posts\""
 keywords: "Balance FB Video Post,Video Content Scaling,Facebook Posting Balance,Video Dimension Mastering,Optimal Video Size FB,Aspect Ratio for FB Posts,Content Width in FB Videos"
-thumbnail: https://www.lifewire.com/thmb/yz0AWzDbcLifGyWSUn_Pr70JjUw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/smart-ring-292c1445224546eca647816ba43b33c0.png
+thumbnail: https://thmb.techidaily.com/a7c3b7288a2ba7cb90e6052babba4915f51445892d0c27222e3c559cd653e7a3.png
 ---
 
 ## Mastery of Video Dimensions: Achieving Balanced Facebook Posts

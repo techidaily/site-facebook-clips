@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Soundscapes for Social Scenarios on Facebook"
-date: 2024-05-20T17:19:40.545Z
-updated: 2024-05-21T17:19:40.545Z
+date: 2024-06-09T04:34:21.371Z
+updated: 2024-06-10T04:34:21.371Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, Soundscapes for Social Scenarios on Facebook"
 excerpt: "This Article Describes [New] In 2024, Soundscapes for Social Scenarios on Facebook"
 keywords: "Soundscapes FB,Social Audio,Scenery Sounds,FB Social Effects,Auditory Scenes,Echoes in Society,Socialscapes Sound"
-thumbnail: https://www.lifewire.com/thmb/wD2BaL-uGeo9Ore30VI3QWyk2QY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1307393933-75641c476c1e4a5aab36b94eeafc92c8.jpg
+thumbnail: https://thmb.techidaily.com/259bceb776cdbf3be867bf48c477b3f9885a0b2e906117f4f6cafe9378e4fe6f.jpg
 ---
 
 ## Soundscapes for Social Scenarios on Facebook

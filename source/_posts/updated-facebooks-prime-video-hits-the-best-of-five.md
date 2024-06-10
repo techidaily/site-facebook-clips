@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Facebook's Prime Video Hits - The Best of Five\""
-date: 2024-05-20T16:46:43.326Z
-updated: 2024-05-21T16:46:43.326Z
+date: 2024-06-09T04:34:11.144Z
+updated: 2024-06-10T04:34:11.144Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Facebook's Prime Video Hits - The Best of Five\""
 excerpt: "\"This Article Describes [Updated] Facebook's Prime Video Hits - The Best of Five\""
 keywords: "Facebook Prime Video Content,Top Prime Videos Selection,Premium Video Streaming,Prime Video Series Highlights,Excellent Prime Video Films,Best Prime Video Offerings,Prime Video's Finest Selections"
-thumbnail: https://www.lifewire.com/thmb/_QjgZyhZE9bpQ__V2eGfEM1XHOo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/analog-5ba14dca46e0fb0024f0692a.png
+thumbnail: https://thmb.techidaily.com/4f90c1408653d67bc404a72c2dca3d3d52e3a294965755306154ed4cda4187a3.png
 ---
 
 ## Facebook's Prime Video Hits - The Best of Five

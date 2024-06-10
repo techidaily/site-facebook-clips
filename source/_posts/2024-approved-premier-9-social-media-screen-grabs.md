@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Premier 9 Social-Media Screen Grabs\""
-date: 2024-05-20T17:03:58.532Z
-updated: 2024-05-21T17:03:58.532Z
+date: 2024-06-09T04:34:14.701Z
+updated: 2024-06-10T04:34:14.701Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Premier 9 Social-Media Screen Grabs\""
 excerpt: "\"This Article Describes 2024 Approved: Premier 9 Social-Media Screen Grabs\""
 keywords: "\"Social Media Saves,Screen Captures,Shareable Media Frames,Digital Content Samples,User-Generated Graphics,Online Image Collector,Fresh Media Grabs\""
-thumbnail: https://www.lifewire.com/thmb/dOl7ltx-imFPoKC5igx7cJg3_Jw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-send-stars-monopoly-go-ebaba4b122c9437eaddefc3ae3d3031c.jpg
+thumbnail: https://thmb.techidaily.com/1766f7bb7d62dccbd0941bc3a3d98f6308c902e159cc9f0ddd8cacd9204dab92.jpg
 ---
 
 ## Premier 9 Social-Media Screen Grabs

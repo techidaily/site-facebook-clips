@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Access Full Range of Group's Shared Media for 2024"
-date: 2024-05-20T17:06:48.841Z
-updated: 2024-05-21T17:06:48.841Z
+date: 2024-06-09T04:34:09.255Z
+updated: 2024-06-10T04:34:09.255Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] How to Access Full Range of Group's Shared Media for 2024"
 excerpt: "This Article Describes [New] How to Access Full Range of Group's Shared Media for 2024"
 keywords: "Group Media Access Guide,Shared Content Entry,Media Sharing Basics,Full Media Availability,Group Library Access,Media Download Steps,Unlocking Shared Resources"
-thumbnail: https://www.lifewire.com/thmb/5V4FSFpr2o1W9L069x7QmkB4y7U=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/McIntosh-Soho-III-MT5-Stereo-system-a-9494141062104974a1820ee1e29bb019.jpg
+thumbnail: https://thmb.techidaily.com/506707788e28afb0dd333ede3d14b446e4802e54b3be096a7cd03abb7e8cbcbb.jpg
 ---
 
 ## How to Access Full Range of Group's Shared Media

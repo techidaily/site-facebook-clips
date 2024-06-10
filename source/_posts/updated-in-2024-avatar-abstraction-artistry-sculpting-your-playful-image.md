@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Avatar Abstraction Artistry  Sculpting Your Playful Image\""
-date: 2024-05-20T16:58:20.706Z
-updated: 2024-05-21T16:58:20.706Z
+date: 2024-06-09T04:34:09.344Z
+updated: 2024-06-10T04:34:09.344Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Avatar Abstraction Artistry: Sculpting Your Playful Image\""
 excerpt: "\"This Article Describes [Updated] In 2024, Avatar Abstraction Artistry: Sculpting Your Playful Image\""
 keywords: "\"Avatar Artistry,Playful Imagery,Abstract Sculptures,Creative Self-Representation,Visual Abstraction,Personified Designs,Joyous Portraits\""
-thumbnail: https://www.lifewire.com/thmb/L9UqcBsFRcJDvJpVzehCn66w1ow=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/tropical-beach-wallpaper-beach-backgrounds-587fbb765f9b584db3241860.jpg
+thumbnail: https://thmb.techidaily.com/0a18a6b406ce9f21eda937adac64825b459ee3a87d13a642256000f5335eb2cc.jpg
 ---
 
 ## Avatar Abstraction Artistry: Sculpting Your Playful Image

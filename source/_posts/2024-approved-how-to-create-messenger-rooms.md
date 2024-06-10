@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to Create Messenger Rooms?\""
-date: 2024-05-20T17:48:41.562Z
-updated: 2024-05-21T17:48:41.562Z
+date: 2024-06-09T04:34:17.801Z
+updated: 2024-06-10T04:34:17.801Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: How to Create Messenger Rooms?\""
 excerpt: "\"This Article Describes 2024 Approved: How to Create Messenger Rooms?\""
 keywords: "Creating Messenger Spaces,Setup Messenger Chat Rooms,Hosting Room in WhatsApp,Build Messenger Virtual Spaces,Guide to Messenger Grouping,Initiate WhatsApp Community Halls,Establish WhatsApp Live Rooms"
-thumbnail: https://www.lifewire.com/thmb/8WNeD74C3OD4Hr-lVFvg4bLBeLA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-140173628BetsieVanDerMeer-5927117e5f9b5859509a476c.jpg
+thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a34b2694ff1529f9b0220b04e.jpg
 ---
 
 ## Messenger Rooms: How to Create Messenger Rooms?
