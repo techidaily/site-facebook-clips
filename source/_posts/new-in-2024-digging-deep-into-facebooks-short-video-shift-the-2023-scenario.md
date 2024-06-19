@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Digging Deep Into Facebook's Short Video Shift  The 2023 Scenario\""
-date: 2024-05-20T16:31:50.270Z
-updated: 2024-05-21T16:31:50.270Z
+date: 2024-06-18T04:22:49.519Z
+updated: 2024-06-19T04:22:49.519Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, Digging Deep Into Facebook's Short Video Shift: The 2023 Scenario\""
 excerpt: "\"This Article Describes [New] In 2024, Digging Deep Into Facebook's Short Video Shift: The 2023 Scenario\""
 keywords: "\"FB Video Trends 2023,Social Media Vids,Short-Form Content,Facebook Video Shift,Digital Video Growth,Marketing for Videos,Online Video Platforms\""
-thumbnail: https://www.lifewire.com/thmb/SSy6NGHbIXSbfSEfGlhpi2qybtc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/facebook-1602262_1920-5c36883246e0fb0001a7e779.jpg
+thumbnail: https://thmb.techidaily.com/ebac8749de86200184a77a3fa2bb901785d67bf12335ea2d0dc0b871ccf2113a.jpg
 ---
 
 ## Digging Deep Into Facebook's Short Video Shift: The 2023 Scenario

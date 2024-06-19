@@ -1,7 +1,7 @@
 ---
 title: "Quora Poster Sizing Instructions for 2024"
-date: 2024-05-20T16:48:05.475Z
-updated: 2024-05-21T16:48:05.475Z
+date: 2024-06-18T04:22:49.778Z
+updated: 2024-06-19T04:22:49.778Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Quora Poster Sizing Instructions for 2024"
 excerpt: "This Article Describes Quora Poster Sizing Instructions for 2024"
 keywords: "Quora Size Guide,Poster Design Tips,Image Scaling Steps,Display Format Best Practices,Optimize Photo Layouts,Visual Content Standards,Sizing for Posters"
-thumbnail: https://www.lifewire.com/thmb/wU7bqEJLxd7hKqXXCIIPcKbCflM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed-8f711a656ea6497c992a49bd81c31b60.jpeg
+thumbnail: https://thmb.techidaily.com/f86055b0c210c48b3bc87c8b80af070af1138eb8ba02388288320b33c5951f16.jpeg
 ---
 
 ## Quora Poster Sizing Instructions

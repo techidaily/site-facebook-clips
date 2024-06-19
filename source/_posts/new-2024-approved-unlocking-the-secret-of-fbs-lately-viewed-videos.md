@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unlocking the Secret of Fb’s Lately Viewed Videos\""
-date: 2024-05-20T17:53:48.559Z
-updated: 2024-05-21T17:53:48.559Z
+date: 2024-06-18T04:22:50.601Z
+updated: 2024-06-19T04:22:50.601Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Unlocking the Secret of Fb’s Lately Viewed Videos\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Unlocking the Secret of Fb’s Lately Viewed Videos\""
 keywords: "\"FB's Latest Vids Trend,Uncovering Video Watch Habits,Top Recently Viewed Facebook,Insights: FB Watching Patterns,Secret in FB's Lately Seen,Deciphering Facebook's Views,Latest Fb Videos Explored\""
-thumbnail: https://www.lifewire.com/thmb/eyPEW_zh-5Xw0J7hoJ-kChdCQ1M=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/001_how-to-transfer-data-from-ps4-to-ps5-3392eb400af3482fabad65cabb2a1a91.jpg
+thumbnail: https://thmb.techidaily.com/4413b601ad195439beff9581253d1c8f619535fc721b43b4dca709d022c56e41.jpg
 ---
 
 ## Unlocking the Secret of Fb’s Lately Viewed Videos

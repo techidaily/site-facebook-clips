@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Which Angle Works Better for Social Sharing  Vertical or Horizontal for 2024\""
-date: 2024-05-20T16:29:05.421Z
-updated: 2024-05-21T16:29:05.421Z
+date: 2024-06-18T04:22:53.403Z
+updated: 2024-06-19T04:22:53.403Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Which Angle Works Better for Social Sharing: Vertical or Horizontal for 2024\""
 excerpt: "\"This Article Describes [Updated] Which Angle Works Better for Social Sharing: Vertical or Horizontal for 2024\""
 keywords: "Share Vertical Posts,Optimal Screenshot Aspect,Social Media Layout,Engage with Images,Effective Image Angle,Horizontal vs Vertical Shares,Best Post Orientation"
-thumbnail: https://www.lifewire.com/thmb/Wcjd5_78cNtzmu4B2Ei9x3Ksn6I=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/samsung-led-lcd-lifestyle-19-e-992ea50f085e438f957e67d4fe96a26f.jpg
+thumbnail: https://thmb.techidaily.com/a577227bca81f1377b01a00eba21acdee9d8dfcda26cad3482a8cc47d1c6fe1b.jpg
 ---
 
 ## Which Angle Works Better for Social Sharing: Vertical or Horizontal?

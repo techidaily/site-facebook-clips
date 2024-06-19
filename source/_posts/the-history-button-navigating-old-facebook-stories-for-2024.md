@@ -1,7 +1,7 @@
 ---
 title: "\"The History Button  Navigating Old Facebook Stories for 2024\""
-date: 2024-05-20T17:20:11.975Z
-updated: 2024-05-21T17:20:11.975Z
+date: 2024-06-18T04:22:53.820Z
+updated: 2024-06-19T04:22:53.820Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes The History Button: Navigating Old Facebook Stories for 2024\""
 excerpt: "\"This Article Describes The History Button: Navigating Old Facebook Stories for 2024\""
 keywords: "Facebook Story Archive,Older Facebook Content,Browsing Historical Stories,Vintage Facebook Memories,Timeline Feature History,Classic Facebook Nostalgia,Ancient Social Media Stories"
-thumbnail: https://www.lifewire.com/thmb/UaLSpJl8QxtWbAcZLNsMKB_EXxg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-155159821-8881bead1d894a0b95bca3c3e288ff54.jpg
+thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f493de897d20f957481bc1b83.jpg
 ---
 
 ## The History Button: Navigating Old Facebook Stories

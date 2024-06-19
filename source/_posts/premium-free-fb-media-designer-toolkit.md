@@ -1,7 +1,7 @@
 ---
 title: "Premium Free FB Media Designer Toolkit"
-date: 2024-05-20T16:35:46.932Z
-updated: 2024-05-21T16:35:46.932Z
+date: 2024-06-18T04:22:56.842Z
+updated: 2024-06-19T04:22:56.842Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Premium Free FB Media Designer Toolkit"
 excerpt: "This Article Describes Premium Free FB Media Designer Toolkit"
 keywords: "\"FB Media Design,Premium Design Tools,FB Designer Kit,Media Creation Software,High-Quality Designer,Free Designer Suite,Design Toolkit Access\""
-thumbnail: https://www.lifewire.com/thmb/e56J2-xXoFPg-h2j8bmXzxrWMJw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/L1019-e6002f6ab3f34c489dede59d3dd7824e.jpg
+thumbnail: https://thmb.techidaily.com/51b5c705b272c6a35f26cbee92033b8d25124b814164fccb1a1f598c30e520f7.jpg
 ---
 
 ## Premium Free FB Media Designer Toolkit

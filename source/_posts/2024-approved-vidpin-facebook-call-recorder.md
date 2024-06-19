@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  VidPin - Facebook Call Recorder\""
-date: 2024-05-20T17:37:23.464Z
-updated: 2024-05-21T17:37:23.464Z
+date: 2024-06-18T04:22:54.912Z
+updated: 2024-06-19T04:22:54.912Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: VidPin - Facebook Call Recorder\""
 excerpt: "\"This Article Describes 2024 Approved: VidPin - Facebook Call Recorder\""
 keywords: "Facebook Call Recording,VidPin Video Call Log,Online Call Transcription,Social Media Audio Capture,Live Chat Audio Save,FB Conversation Record,Digital Phone History"
-thumbnail: https://www.lifewire.com/thmb/264xm89WJRvn8-nnX4DNU7kRr_k=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ApCent_2018-04-08_20-29-19-5acab3fbc0647100378b32fd.png
+thumbnail: https://thmb.techidaily.com/9ad9147e4fbb8c24ccda197a0486be5c1d9c044a46c11534bd2a1352ab33e591.png
 ---
 
 ## VidPin - Facebook Call Recorder

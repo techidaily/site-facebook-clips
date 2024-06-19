@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Fix Live Video Interrupted on Facebook?"
-date: 2024-05-20T16:59:10.495Z
-updated: 2024-05-21T16:59:10.495Z
+date: 2024-06-18T04:22:50.712Z
+updated: 2024-06-19T04:22:50.712Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] How to Fix Live Video Interrupted on Facebook?"
 excerpt: "This Article Describes [New] How to Fix Live Video Interrupted on Facebook?"
 keywords: "Facebook Live Fix Guide,Restore Interrupted Video FB,Troubleshoot FB Live Issue,Uninterrupted Fb Live Stream,Fix Broken Live on Facebook,Resolve Live Disruption FB,Recover Interrupt Live FB"
-thumbnail: https://www.lifewire.com/thmb/KCMurutkqAfPSo5W9qDLluVkoHw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/the-7-best-british-streaming-services-in-2022-5215691-63322024c7ca43b2ad998016d33c7f68.jpg
+thumbnail: https://thmb.techidaily.com/300b8b150f8464b487683b06984fcbd6662b4fb116965638afb915b9861f6dbd.jpg
 ---
 
 ## How to Fix Live Video Interrupted on Facebook?

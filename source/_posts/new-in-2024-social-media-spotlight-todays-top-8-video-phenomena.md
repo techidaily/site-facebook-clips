@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Social Media Spotlight  Today’s Top 8 Video Phenomena\""
-date: 2024-05-20T17:12:32.548Z
-updated: 2024-05-21T17:12:32.548Z
+date: 2024-06-18T04:22:48.443Z
+updated: 2024-06-19T04:22:48.443Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, Social Media Spotlight: Today’s Top 8 Video Phenomena\""
 excerpt: "\"This Article Describes [New] In 2024, Social Media Spotlight: Today’s Top 8 Video Phenomena\""
 keywords: "Video Trends Now,Social Vids Popular,Top Video Sensations,Viral Video Hits,Today's Video Stars,Social Media Videos,Phenomenal Video Clips,Current Video Hotspots"
-thumbnail: https://www.lifewire.com/thmb/0YRIgU-yLp0ClBKfALiUjbXzBc8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ethernet-cable-socket-182148077-57a2244a3df78c3276eec2c6.jpg
+thumbnail: https://thmb.techidaily.com/a7dd9142f70f2e1fb0515e1b92c73345b73af0eebd789d21de62a66b954929b6.jpg
 ---
 
 ## Social Media Spotlight: Today’s Top 8 Video Phenomena

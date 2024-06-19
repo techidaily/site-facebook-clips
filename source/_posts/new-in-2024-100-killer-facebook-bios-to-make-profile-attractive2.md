@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, 100 Killer Facebook Bios to Make Profile Attractive2"
-date: 2024-05-20T17:15:35.569Z
-updated: 2024-05-21T17:15:35.569Z
+date: 2024-06-18T04:22:57.745Z
+updated: 2024-06-19T04:22:57.745Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, 100 Killer Facebook Bios to Make Profile Attractive2"
 excerpt: "This Article Describes [New] In 2024, 100 Killer Facebook Bios to Make Profile Attractive2"
 keywords: "Attractive FB Bios,Engaging Social Media Profiles,Impressive FB Biographies,Captivating Facebook Content,Dynamic Profile Descriptions,Striking Social Network Bio,Noteworthy Online Bios"
-thumbnail: https://www.lifewire.com/thmb/rLG5RyK53FrgUnWPEt4hZypf-3I=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/hi-fi-sound-system-with-vintage-tin-toy-car-133962674-95948c23302d43bfb7322c7ac8300931.jpg
+thumbnail: https://thmb.techidaily.com/d7dc5f497c3ff92b83099053ccb7b434fc4fb16a570e502a336cc42130adb602.jpg
 ---
 
 ## 100 Killer Facebook Bios to Make Profile Attractive2

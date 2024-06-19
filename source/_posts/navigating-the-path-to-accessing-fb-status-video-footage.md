@@ -1,7 +1,7 @@
 ---
 title: "Navigating the Path to Accessing FB Status Video Footage"
-date: 2024-05-20T17:26:30.068Z
-updated: 2024-05-21T17:26:30.068Z
+date: 2024-06-18T04:22:48.510Z
+updated: 2024-06-19T04:22:48.510Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Navigating the Path to Accessing FB Status Video Footage"
 excerpt: "This Article Describes Navigating the Path to Accessing FB Status Video Footage"
 keywords: "Facebook Status Share,FB Status Videos,Video FB Access,Social Media FB Status,FB Live Content View,Unlock FB Status Footage,FB Status Video Viewing"
-thumbnail: https://www.lifewire.com/thmb/Z7WR5pj7JeS2G3gY9MhbX9bStss=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/FKT0RM1QHWManholdingiPhoneincar-70a24007f8334257888bbd13c76fdcbc.jpg
+thumbnail: https://thmb.techidaily.com/6304baca930779dbe6ae3412704c6577c66eb8d788b6fe6b67667ffd209c0a5f.jpg
 ---
 
 ## Navigating the Path to Accessing FB Status Video Footage

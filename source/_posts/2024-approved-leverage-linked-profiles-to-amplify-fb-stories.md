@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Leverage Linked Profiles to Amplify FB Stories\""
-date: 2024-05-20T16:36:03.716Z
-updated: 2024-05-21T16:36:03.716Z
+date: 2024-06-18T04:22:51.975Z
+updated: 2024-06-19T04:22:51.975Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Leverage Linked Profiles to Amplify FB Stories\""
 excerpt: "\"This Article Describes 2024 Approved: Leverage Linked Profiles to Amplify FB Stories\""
 keywords: "\"Linked Profile Boosting,Facebook Story Growth,Profile Linking Strategies,Social Media Engagement,Professional Network Expansion,Cross-Platform Reach Enhancement,Content Sharing Tactics\""
-thumbnail: https://www.lifewire.com/thmb/3zMdgx5u-I1b9AlTuItMhiE6wWQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/erik-lucatero-VcOwZMahmCQ-unsplash-7714083297a048f3848156a836a80b13.jpg
+thumbnail: https://thmb.techidaily.com/b46b34fd5ad4244a5b3542fda6e0ba281358e5c36628241992e02c966a06886d.jpg
 ---
 
 ## Leverage Linked Profiles to Amplify FB Stories
@@ -79,13 +79,13 @@ If you have found an interesting video on YouTube or want to promote your YouTub
 
 **Step 1:** First, launch the YouTube app on your mobile device or open it on a browser, and find the YouTube video and open it. Here I will show you how to share a YouTube video link to Facebook Story with a browser.
 
-![share youtube video to facebook  ](https://images.wondershare.com/filmora/article-images/youtube-share-option-facebook.jpg)
+![share youtube video to facebook](https://images.wondershare.com/filmora/article-images/youtube-share-option-facebook.jpg)
 
 **Step 2:** Click on the Share button. You will see the embedded link and other options. Next, you need to click on the Facebook option.
 
 You will be redirected to the Facebook app. There you will be asked if you want to share it as News Feed or Your Story. You need to click on the Story option, and in this way you will share the YouTube video to Facebook Story.
 
-![share youtube video to facebook  story ](https://images.wondershare.com/filmora/article-images/share-youtube-video-link-to-facebook-story.jpg)
+![share youtube video to facebook  story](https://images.wondershare.com/filmora/article-images/share-youtube-video-link-to-facebook-story.jpg)
 
 And you will see the Story with YouTube video link at the top of your Story section.
 
@@ -194,13 +194,13 @@ If you have found an interesting video on YouTube or want to promote your YouTub
 
 **Step 1:** First, launch the YouTube app on your mobile device or open it on a browser, and find the YouTube video and open it. Here I will show you how to share a YouTube video link to Facebook Story with a browser.
 
-![share youtube video to facebook  ](https://images.wondershare.com/filmora/article-images/youtube-share-option-facebook.jpg)
+![share youtube video to facebook](https://images.wondershare.com/filmora/article-images/youtube-share-option-facebook.jpg)
 
 **Step 2:** Click on the Share button. You will see the embedded link and other options. Next, you need to click on the Facebook option.
 
 You will be redirected to the Facebook app. There you will be asked if you want to share it as News Feed or Your Story. You need to click on the Story option, and in this way you will share the YouTube video to Facebook Story.
 
-![share youtube video to facebook  story ](https://images.wondershare.com/filmora/article-images/share-youtube-video-link-to-facebook-story.jpg)
+![share youtube video to facebook  story](https://images.wondershare.com/filmora/article-images/share-youtube-video-link-to-facebook-story.jpg)
 
 And you will see the Story with YouTube video link at the top of your Story section.
 
@@ -309,13 +309,13 @@ If you have found an interesting video on YouTube or want to promote your YouTub
 
 **Step 1:** First, launch the YouTube app on your mobile device or open it on a browser, and find the YouTube video and open it. Here I will show you how to share a YouTube video link to Facebook Story with a browser.
 
-![share youtube video to facebook  ](https://images.wondershare.com/filmora/article-images/youtube-share-option-facebook.jpg)
+![share youtube video to facebook](https://images.wondershare.com/filmora/article-images/youtube-share-option-facebook.jpg)
 
 **Step 2:** Click on the Share button. You will see the embedded link and other options. Next, you need to click on the Facebook option.
 
 You will be redirected to the Facebook app. There you will be asked if you want to share it as News Feed or Your Story. You need to click on the Story option, and in this way you will share the YouTube video to Facebook Story.
 
-![share youtube video to facebook  story ](https://images.wondershare.com/filmora/article-images/share-youtube-video-link-to-facebook-story.jpg)
+![share youtube video to facebook  story](https://images.wondershare.com/filmora/article-images/share-youtube-video-link-to-facebook-story.jpg)
 
 And you will see the Story with YouTube video link at the top of your Story section.
 
@@ -424,13 +424,13 @@ If you have found an interesting video on YouTube or want to promote your YouTub
 
 **Step 1:** First, launch the YouTube app on your mobile device or open it on a browser, and find the YouTube video and open it. Here I will show you how to share a YouTube video link to Facebook Story with a browser.
 
-![share youtube video to facebook  ](https://images.wondershare.com/filmora/article-images/youtube-share-option-facebook.jpg)
+![share youtube video to facebook](https://images.wondershare.com/filmora/article-images/youtube-share-option-facebook.jpg)
 
 **Step 2:** Click on the Share button. You will see the embedded link and other options. Next, you need to click on the Facebook option.
 
 You will be redirected to the Facebook app. There you will be asked if you want to share it as News Feed or Your Story. You need to click on the Story option, and in this way you will share the YouTube video to Facebook Story.
 
-![share youtube video to facebook  story ](https://images.wondershare.com/filmora/article-images/share-youtube-video-link-to-facebook-story.jpg)
+![share youtube video to facebook  story](https://images.wondershare.com/filmora/article-images/share-youtube-video-link-to-facebook-story.jpg)
 
 And you will see the Story with YouTube video link at the top of your Story section.
 

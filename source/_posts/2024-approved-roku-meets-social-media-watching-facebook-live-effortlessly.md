@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Roku Meets Social Media  Watching Facebook Live Effortlessly\""
-date: 2024-05-20T17:58:05.299Z
-updated: 2024-05-21T17:58:05.299Z
+date: 2024-06-18T04:22:48.375Z
+updated: 2024-06-19T04:22:48.375Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Roku Meets Social Media: Watching Facebook Live Effortlessly\""
 excerpt: "\"This Article Describes 2024 Approved: Roku Meets Social Media: Watching Facebook Live Effortlessly\""
 keywords: "Roku Streaming,Roku TV Viewing,FB Live on Roku,Roku Live TV,Roku Social Media,Facebook Watch Roku,Effortless Live Streaming"
-thumbnail: https://www.lifewire.com/thmb/g1kkp8ne6jm5E7rMiTd4CMgu2Fw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-642981042-5a903651a18d9e0037d31742.jpg
+thumbnail: https://thmb.techidaily.com/ef9be7780d43a1d277262443e1e1ad4f9cd5011c4e9a9bd97f972e7408a7d734.jpg
 ---
 
 ## Roku Meets Social Media: Watching Facebook Live Effortlessly

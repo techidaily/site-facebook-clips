@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Top Quality FREE FB Image & Video Designer\""
-date: 2024-05-20T17:50:30.157Z
-updated: 2024-05-21T17:50:30.157Z
+date: 2024-06-18T04:22:46.169Z
+updated: 2024-06-19T04:22:46.169Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Top Quality FREE FB Image & Video Designer\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Top Quality FREE FB Image & Video Designer\""
 keywords: "\"Free Graphic Artist,FB Design Ideas,Image Design Tips,Creative Video Content,High-Quality Artwork,Easy FB Visuals,Designer Portfolio FB\""
-thumbnail: https://www.lifewire.com/thmb/RGG5Yrj4wygeHF_4EtUcyBLLzK8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Screenshot2023-08-11at4.09.52PM-a2b7cc4dc04d49deac45f59296fd703f.jpg
+thumbnail: https://thmb.techidaily.com/e16b75fed413636ad54c914cb03e40ea47ab207cb6190aa0c6171995d867746d.jpg
 ---
 
 ## Top Quality FREE FB Image & Video Designer

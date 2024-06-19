@@ -1,7 +1,7 @@
 ---
 title: "Crafting Captivating Online Ads for Facebook"
-date: 2024-05-20T17:39:00.118Z
-updated: 2024-05-21T17:39:00.118Z
+date: 2024-06-18T04:22:46.044Z
+updated: 2024-06-19T04:22:46.044Z
 tags:
   - ai video
   - ai facebook
@@ -61,7 +61,7 @@ thumbnail: https://www.lifewire.com/thmb/w0cnuzqYcN9mhUIAx0PFJbOtV-w=/210x138/fi
 
 #### 1. Capture Attention in the First Few Seconds
 
-![facebook video audience retention ]( https://images.wondershare.com/filmora/article-images/facebook-video-audience-retention.jpg)
+![facebook video audience retention](https://images.wondershare.com/filmora/article-images/facebook-video-audience-retention.jpg)
 
  Facebook platform stay loaded with numbers if videos so people cannot interact equally with all of them. Thus, it is important to create a video that can force viewers to make quick decision about whether this particular video must be watched or not. In order to leave the best impression on viewer’s mind, every video ad must have two major characteristics: It should not have length more than 20 seconds, content must be capable enough to catch attention within first 2, 3 seconds. Here are few common mistakes for low rating of certain videos ads:
 
@@ -145,7 +145,7 @@ Follow @Shanoon Cox
 
 #### 1. Capture Attention in the First Few Seconds
 
-![facebook video audience retention ]( https://images.wondershare.com/filmora/article-images/facebook-video-audience-retention.jpg)
+![facebook video audience retention](https://images.wondershare.com/filmora/article-images/facebook-video-audience-retention.jpg)
 
  Facebook platform stay loaded with numbers if videos so people cannot interact equally with all of them. Thus, it is important to create a video that can force viewers to make quick decision about whether this particular video must be watched or not. In order to leave the best impression on viewer’s mind, every video ad must have two major characteristics: It should not have length more than 20 seconds, content must be capable enough to catch attention within first 2, 3 seconds. Here are few common mistakes for low rating of certain videos ads:
 
@@ -229,7 +229,7 @@ Follow @Shanoon Cox
 
 #### 1. Capture Attention in the First Few Seconds
 
-![facebook video audience retention ]( https://images.wondershare.com/filmora/article-images/facebook-video-audience-retention.jpg)
+![facebook video audience retention](https://images.wondershare.com/filmora/article-images/facebook-video-audience-retention.jpg)
 
  Facebook platform stay loaded with numbers if videos so people cannot interact equally with all of them. Thus, it is important to create a video that can force viewers to make quick decision about whether this particular video must be watched or not. In order to leave the best impression on viewer’s mind, every video ad must have two major characteristics: It should not have length more than 20 seconds, content must be capable enough to catch attention within first 2, 3 seconds. Here are few common mistakes for low rating of certain videos ads:
 
@@ -313,7 +313,7 @@ Follow @Shanoon Cox
 
 #### 1. Capture Attention in the First Few Seconds
 
-![facebook video audience retention ]( https://images.wondershare.com/filmora/article-images/facebook-video-audience-retention.jpg)
+![facebook video audience retention](https://images.wondershare.com/filmora/article-images/facebook-video-audience-retention.jpg)
 
  Facebook platform stay loaded with numbers if videos so people cannot interact equally with all of them. Thus, it is important to create a video that can force viewers to make quick decision about whether this particular video must be watched or not. In order to leave the best impression on viewer’s mind, every video ad must have two major characteristics: It should not have length more than 20 seconds, content must be capable enough to catch attention within first 2, 3 seconds. Here are few common mistakes for low rating of certain videos ads:
 

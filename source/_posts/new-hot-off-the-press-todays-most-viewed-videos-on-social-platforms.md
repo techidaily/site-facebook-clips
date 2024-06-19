@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Hot Off the Press  Today’s Most Viewed Videos on Social Platforms\""
-date: 2024-05-20T17:53:02.912Z
-updated: 2024-05-21T17:53:02.912Z
+date: 2024-06-18T04:22:46.927Z
+updated: 2024-06-19T04:22:46.927Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Hot Off the Press: Today’s Most Viewed Videos on Social Platforms\""
 excerpt: "\"This Article Describes [New] Hot Off the Press: Today’s Most Viewed Videos on Social Platforms\""
 keywords: "Latest Trending Vids,Top Viewed Videos,Popular Online Videos,Fresh Social Video Hits,Viral Media Today,Hot Social Video Snippets,Current Engaging Content"
-thumbnail: https://www.lifewire.com/thmb/B6TMOs0i_-X-EYQF4RJARJpos4s=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/iOS-wwdc-7d655ca37a3b43b99fd9dac09bec13c4.jpg
+thumbnail: https://thmb.techidaily.com/d9567f73a6de787d2d45f5ed6e24adff2914444a4a5e563757f01047c1bbc480.jpg
 ---
 
 ## Hot Off the Press: Today’s Most Viewed Videos on Social Platforms
