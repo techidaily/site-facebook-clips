@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Find Facebook Recently Watched Videos for 2024"
-date: 2024-05-20T17:36:26.212Z
-updated: 2024-05-21T17:36:26.212Z
+date: 2024-06-25T22:49:00.680Z
+updated: 2024-06-26T22:49:00.680Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] How to Find Facebook Recently Watched Videos for 2024"
 excerpt: "This Article Describes [New] How to Find Facebook Recently Watched Videos for 2024"
 keywords: "Find FB Watched Videos,Access Recent FB Videos,Locate FB Recent Views,Identify Latest Fb Vids,Track Fb Video History,Discover Fb Watched Content,Uncover Watched FB Videos"
-thumbnail: https://www.lifewire.com/thmb/RWcl_Joktvj_rmr9ViWUZrsB7e4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/homepod-hero-5a79bc226bf06900378a7e1a.jpg
+thumbnail: https://thmb.techidaily.com/a68c5c5018f608284d7af133f2911830741f898253edd18111f294ce2b839027.jpg
 ---
 
 ## How to Find Facebook Recently Watched Videos?

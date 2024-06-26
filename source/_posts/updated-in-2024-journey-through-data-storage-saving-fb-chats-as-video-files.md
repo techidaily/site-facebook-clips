@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Journey Through Data Storage  Saving FB Chats as Video Files\""
-date: 2024-05-20T16:39:02.960Z
-updated: 2024-05-21T16:39:02.960Z
+date: 2024-06-25T22:49:02.787Z
+updated: 2024-06-26T22:49:02.787Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Journey Through Data Storage: Saving FB Chats as Video Files\""
 excerpt: "\"This Article Describes [Updated] In 2024, Journey Through Data Storage: Saving FB Chats as Video Files\""
 keywords: "Save Facebook Chats,FB Chat to Video,Data Storage Tech,Secure Chat Backup,Facebook Chats Archive,Digital Data Preservation,Video File Saving Methods"
-thumbnail: https://www.lifewire.com/thmb/PxQk0VwRv0aQS4nhoLTXFk73Cjc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/friends-using-their-smartphones-to-find-the-right-way-picjumbo-com-b7a48b5a7c7147e5b4f4e306245df52a.jpg
+thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863c20a3e0bedcec7b541e0029.jpg
 ---
 
 ## Journey Through Data Storage: Saving FB Chats as Video Files
@@ -119,9 +119,7 @@ Open and play the video you wish to download.
 
 ### Step 2: Copy URL
 
-Copy the video URL by right-clicking on the video screen and then select ‘Copy video URL at current time’ from the dialogue box
-
-![Copy URL](https://images.wondershare.com/filmora/article-images/2021/download-videos-from-facebook-messenger-6.jpg)
+Copy the video URL by right-clicking on the video screen and then select ‘Copy video URL at current time’ from the dialogue box ![Copy URL](https://images.wondershare.com/filmora/article-images/2021/download-videos-from-facebook-messenger-6.jpg)
 
 ### Step 3: Access the Mobile Version Of The Site
 
@@ -293,9 +291,7 @@ Open and play the video you wish to download.
 
 ### Step 2: Copy URL
 
-Copy the video URL by right-clicking on the video screen and then select ‘Copy video URL at current time’ from the dialogue box
-
-![Copy URL](https://images.wondershare.com/filmora/article-images/2021/download-videos-from-facebook-messenger-6.jpg)
+Copy the video URL by right-clicking on the video screen and then select ‘Copy video URL at current time’ from the dialogue box ![Copy URL](https://images.wondershare.com/filmora/article-images/2021/download-videos-from-facebook-messenger-6.jpg)
 
 ### Step 3: Access the Mobile Version Of The Site
 
@@ -467,9 +463,7 @@ Open and play the video you wish to download.
 
 ### Step 2: Copy URL
 
-Copy the video URL by right-clicking on the video screen and then select ‘Copy video URL at current time’ from the dialogue box
-
-![Copy URL](https://images.wondershare.com/filmora/article-images/2021/download-videos-from-facebook-messenger-6.jpg)
+Copy the video URL by right-clicking on the video screen and then select ‘Copy video URL at current time’ from the dialogue box ![Copy URL](https://images.wondershare.com/filmora/article-images/2021/download-videos-from-facebook-messenger-6.jpg)
 
 ### Step 3: Access the Mobile Version Of The Site
 
@@ -641,9 +635,7 @@ Open and play the video you wish to download.
 
 ### Step 2: Copy URL
 
-Copy the video URL by right-clicking on the video screen and then select ‘Copy video URL at current time’ from the dialogue box
-
-![Copy URL](https://images.wondershare.com/filmora/article-images/2021/download-videos-from-facebook-messenger-6.jpg)
+Copy the video URL by right-clicking on the video screen and then select ‘Copy video URL at current time’ from the dialogue box ![Copy URL](https://images.wondershare.com/filmora/article-images/2021/download-videos-from-facebook-messenger-6.jpg)
 
 ### Step 3: Access the Mobile Version Of The Site
 

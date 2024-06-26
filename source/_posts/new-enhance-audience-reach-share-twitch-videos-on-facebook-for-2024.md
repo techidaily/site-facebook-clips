@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Enhance Audience Reach  Share Twitch Videos on Facebook for 2024\""
-date: 2024-05-20T16:50:34.003Z
-updated: 2024-05-21T16:50:34.003Z
+date: 2024-06-25T22:49:08.498Z
+updated: 2024-06-26T22:49:08.498Z
 tags:
   - ai video
   - ai facebook
@@ -133,7 +133,7 @@ While working across Android, the user can consider operating through different 
 
 **Step 1:** Access the Play Store on your Android and install the official IFTTT application across your device. Open the application once it is installed.
 
-![install ifttt app ](https://images.wondershare.com/filmora/article-images/2022/02/twitch-stream-on-facebook-19.jpg)
+![install ifttt app](https://images.wondershare.com/filmora/article-images/2022/02/twitch-stream-on-facebook-19.jpg)
 
 **Step 2:** You can sign in across the account using the Facebook or Google account. Follow the instructions to set up the account across the platform.
 
@@ -265,7 +265,7 @@ While working across Android, the user can consider operating through different 
 
 **Step 1:** Access the Play Store on your Android and install the official IFTTT application across your device. Open the application once it is installed.
 
-![install ifttt app ](https://images.wondershare.com/filmora/article-images/2022/02/twitch-stream-on-facebook-19.jpg)
+![install ifttt app](https://images.wondershare.com/filmora/article-images/2022/02/twitch-stream-on-facebook-19.jpg)
 
 **Step 2:** You can sign in across the account using the Facebook or Google account. Follow the instructions to set up the account across the platform.
 
@@ -397,7 +397,7 @@ While working across Android, the user can consider operating through different 
 
 **Step 1:** Access the Play Store on your Android and install the official IFTTT application across your device. Open the application once it is installed.
 
-![install ifttt app ](https://images.wondershare.com/filmora/article-images/2022/02/twitch-stream-on-facebook-19.jpg)
+![install ifttt app](https://images.wondershare.com/filmora/article-images/2022/02/twitch-stream-on-facebook-19.jpg)
 
 **Step 2:** You can sign in across the account using the Facebook or Google account. Follow the instructions to set up the account across the platform.
 
@@ -529,7 +529,7 @@ While working across Android, the user can consider operating through different 
 
 **Step 1:** Access the Play Store on your Android and install the official IFTTT application across your device. Open the application once it is installed.
 
-![install ifttt app ](https://images.wondershare.com/filmora/article-images/2022/02/twitch-stream-on-facebook-19.jpg)
+![install ifttt app](https://images.wondershare.com/filmora/article-images/2022/02/twitch-stream-on-facebook-19.jpg)
 
 **Step 2:** You can sign in across the account using the Facebook or Google account. Follow the instructions to set up the account across the platform.
 

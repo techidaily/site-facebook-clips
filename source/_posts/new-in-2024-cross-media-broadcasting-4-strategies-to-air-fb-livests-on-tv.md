@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Cross-Media Broadcasting  4 Strategies to Air FB Livests on TV\""
-date: 2024-05-20T17:52:15.173Z
-updated: 2024-05-21T17:52:15.173Z
+date: 2024-06-25T22:49:11.896Z
+updated: 2024-06-26T22:49:11.896Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, Cross-Media Broadcasting: 4 Strategies to Air FB Livests on TV\""
 excerpt: "\"This Article Describes [New] In 2024, Cross-Media Broadcasting: 4 Strategies to Air FB Livests on TV\""
 keywords: "\"FB Live TV Strategy,Cross Media Broadcasting,TV FB Livestream Tips,Livestream TV Strategies,Airing Facebook on TV,Multi-Media Broadcast Plans,Livestream TV Integration\""
-thumbnail: https://www.lifewire.com/thmb/8AR4KPZSuKj5eifD4ccsltjomD0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/SmartLuggage_MaurizioPesce-5a49851522fa3a003693996c.jpg
+thumbnail: https://thmb.techidaily.com/122fad585a96b844750a62c04c4dce3455583d7dfd3b684b7339ff82c163bd28.jpg
 ---
 
 ## Cross-Media Broadcasting: 4 Strategies to Air FB Livests on TV
@@ -119,7 +119,7 @@ Step3 Finally, launch the **Facebook** app and start the Live stream you want to
 
 ## Bonus Tips: How To Record Your Facebook Live On Desktop?
 
-If you want to screen-record your favorite Facebook live videos for later viewing or sharing, we recommend using[Filmora Screen Recorder](https://tools.techidaily.com/wondershare/filmora/download/).
+If you want to screen-record your favorite Facebook live videos for later viewing or sharing, we recommend using [Filmora Screen Recorder](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![wondershare filmora screen recorder](https://images.wondershare.com/filmora/article-images/2022/11/wondershare-filmora-screen-recorder.png)
 
@@ -239,7 +239,7 @@ Step3 Finally, launch the **Facebook** app and start the Live stream you want to
 
 ## Bonus Tips: How To Record Your Facebook Live On Desktop?
 
-If you want to screen-record your favorite Facebook live videos for later viewing or sharing, we recommend using[Filmora Screen Recorder](https://tools.techidaily.com/wondershare/filmora/download/).
+If you want to screen-record your favorite Facebook live videos for later viewing or sharing, we recommend using [Filmora Screen Recorder](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![wondershare filmora screen recorder](https://images.wondershare.com/filmora/article-images/2022/11/wondershare-filmora-screen-recorder.png)
 

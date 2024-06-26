@@ -1,7 +1,7 @@
 ---
 title: "\"Facebook Cover Video  Introduction, Size, Format & Time\""
-date: 2024-05-20T17:29:54.296Z
-updated: 2024-05-21T17:29:54.296Z
+date: 2024-06-25T22:49:11.292Z
+updated: 2024-06-26T22:49:11.292Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Facebook Cover Video: Introduction, Size, Format & Time\""
 excerpt: "\"This Article Describes Facebook Cover Video: Introduction, Size, Format & Time\""
 keywords: "Facebook Cover Intro,Cover Video Sizes,Cover Video Formats,Cover Video Duration,FB Covers Overview,Cover Video Guide,Video Format in FB Covers"
-thumbnail: https://www.lifewire.com/thmb/ET51ABCwWBTletzUuHrK9bZXzl8=/1000x333/filters:no_upscale():max_bytes(150000):strip_icc()/HowTo_Computers-28f36cf9111a4e14aa557ed6c6183653.png
+thumbnail: https://thmb.techidaily.com/d4527039f6a1a287d2df17fa899a5ac8403841092ccbbf441a17ff63d6863be1.png
 ---
 
 ## Facebook Cover Video: Introduction, Size, Format & Time

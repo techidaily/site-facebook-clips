@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Facebook Cover Video Width/Height Guide\""
-date: 2024-05-20T16:42:19.770Z
-updated: 2024-05-21T16:42:19.770Z
+date: 2024-06-25T22:49:04.927Z
+updated: 2024-06-26T22:49:04.927Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Facebook Cover Video Width/Height Guide\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Facebook Cover Video Width/Height Guide\""
 keywords: "Social Media Cover Video Sizes,Facebook Video Aspect Ratio,Cover Video Dimensions Guide,Optimal Facebook Video Height,Max FB Video Width Recommendation,Standard FB Video Size Tips,Customizing FB Video Resolution"
-thumbnail: https://www.lifewire.com/thmb/WBsXwvHS7QxhtfeasAVkRPq-wcI=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1264119308-60c8a48e24994a4e83bcef07f427d2cd.jpg
+thumbnail: https://thmb.techidaily.com/d6e8710c36c5978badec227a1052e8c4e84f42f10c18f1adcfe6fd4f956e57b1.jpg
 ---
 
 ## Facebook Cover Video Width/Height Guide

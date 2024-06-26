@@ -1,7 +1,7 @@
 ---
 title: "\"Integrating Your Apple TV & Social Media  Watch Facebook Now\""
-date: 2024-05-20T17:45:58.768Z
-updated: 2024-05-21T17:45:58.768Z
+date: 2024-06-25T22:49:06.333Z
+updated: 2024-06-26T22:49:06.333Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Integrating Your Apple TV & Social Media: Watch Facebook Now\""
 excerpt: "\"This Article Describes Integrating Your Apple TV & Social Media: Watch Facebook Now\""
 keywords: "Apple TV+FB Streaming,Apple Social Media Integration,Streaming to Apple TV,Apple iOS Facebook App,Apple LiveTV Connectivity,Social TV via Apple,Watch Facebook on Apple TV"
-thumbnail: https://www.lifewire.com/thmb/HEBDZLC1jMr1OKZ2CcKnILwP_lk=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sonyplaystation5-dc53869451d7416cbb32881a35c3fc32.jpg
+thumbnail: https://thmb.techidaily.com/c3ecdd732aca091f9e06be3caec567f3fcd17c056bf2dd14982465e8c7b5b6a1.jpg
 ---
 
 ## Integrating Your Apple TV & Social Media: Watch Facebook Now

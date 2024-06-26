@@ -1,7 +1,7 @@
 ---
 title: "[New] Customize Your Social Media Screenscape"
-date: 2024-05-20T17:32:15.450Z
-updated: 2024-05-21T17:32:15.450Z
+date: 2024-06-25T22:49:07.501Z
+updated: 2024-06-26T22:49:07.501Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Customize Your Social Media Screenscape"
 excerpt: "This Article Describes [New] Customize Your Social Media Screenscape"
 keywords: "Social Media Design,Personalized UI,Brand Screen Custom,Tailored Profile,Social Theme Setup,Branding on Social,Unique Screenscape"
-thumbnail: https://www.lifewire.com/thmb/VK_sIUVv-F_o6I14X9XhFXADAw4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-115006260-b305d96146124ad88779b674c09d3245.jpg
+thumbnail: https://thmb.techidaily.com/57a07625ab9c873f1b8816cfe4ef02cf1a6f9bda4b7acdd0899c793b0d810b70.jpg
 ---
 
 ## Customize Your Social Media Screenscape

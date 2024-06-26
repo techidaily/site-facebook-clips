@@ -1,7 +1,7 @@
 ---
 title: "[New] ScreenCast Maker for FB Chat"
-date: 2024-05-20T16:56:09.581Z
-updated: 2024-05-21T16:56:09.581Z
+date: 2024-06-25T22:49:01.032Z
+updated: 2024-06-26T22:49:01.032Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] ScreenCast Maker for FB Chat"
 excerpt: "This Article Describes [New] ScreenCast Maker for FB Chat"
 keywords: "\"Facebook Live Caster,FB Video Transmitter,Chat to Screen Share,Direct FB Screencasting,Instant Chat Broadcast,Real-Time FB Streamer,Easy FB Screencast\""
-thumbnail: https://www.lifewire.com/thmb/rCx-4CN9HDB98wwAwi2Ag8X30fw=/2000x0/filters:no_upscale():max_bytes(150000):strip_icc()/ecotech_robothands_gettyimages-1179633351_koya79_cropped_1745_v3-c9e218ef95494c239b2edfb8294fe2a1.jpg
+thumbnail: https://thmb.techidaily.com/04440a12467eb00d2e76ab58c49996f10e544f909e1d6b3abfc42368ffd69851.jpg
 ---
 
 ## ScreenCast Maker for FB Chat
@@ -119,9 +119,7 @@ Open and play the video you wish to download.
 
 ### Step 2: Copy URL
 
-Copy the video URL by right-clicking on the video screen and then select ‘Copy video URL at current time’ from the dialogue box
-
-![Copy URL](https://images.wondershare.com/filmora/article-images/2021/download-videos-from-facebook-messenger-6.jpg)
+Copy the video URL by right-clicking on the video screen and then select ‘Copy video URL at current time’ from the dialogue box ![Copy URL](https://images.wondershare.com/filmora/article-images/2021/download-videos-from-facebook-messenger-6.jpg)
 
 ### Step 3: Access the Mobile Version Of The Site
 
@@ -293,9 +291,7 @@ Open and play the video you wish to download.
 
 ### Step 2: Copy URL
 
-Copy the video URL by right-clicking on the video screen and then select ‘Copy video URL at current time’ from the dialogue box
-
-![Copy URL](https://images.wondershare.com/filmora/article-images/2021/download-videos-from-facebook-messenger-6.jpg)
+Copy the video URL by right-clicking on the video screen and then select ‘Copy video URL at current time’ from the dialogue box ![Copy URL](https://images.wondershare.com/filmora/article-images/2021/download-videos-from-facebook-messenger-6.jpg)
 
 ### Step 3: Access the Mobile Version Of The Site
 
@@ -467,9 +463,7 @@ Open and play the video you wish to download.
 
 ### Step 2: Copy URL
 
-Copy the video URL by right-clicking on the video screen and then select ‘Copy video URL at current time’ from the dialogue box
-
-![Copy URL](https://images.wondershare.com/filmora/article-images/2021/download-videos-from-facebook-messenger-6.jpg)
+Copy the video URL by right-clicking on the video screen and then select ‘Copy video URL at current time’ from the dialogue box ![Copy URL](https://images.wondershare.com/filmora/article-images/2021/download-videos-from-facebook-messenger-6.jpg)
 
 ### Step 3: Access the Mobile Version Of The Site
 
@@ -641,9 +635,7 @@ Open and play the video you wish to download.
 
 ### Step 2: Copy URL
 
-Copy the video URL by right-clicking on the video screen and then select ‘Copy video URL at current time’ from the dialogue box
-
-![Copy URL](https://images.wondershare.com/filmora/article-images/2021/download-videos-from-facebook-messenger-6.jpg)
+Copy the video URL by right-clicking on the video screen and then select ‘Copy video URL at current time’ from the dialogue box ![Copy URL](https://images.wondershare.com/filmora/article-images/2021/download-videos-from-facebook-messenger-6.jpg)
 
 ### Step 3: Access the Mobile Version Of The Site
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Locate and Watch Vintage Facebook Moments"
-date: 2024-05-20T17:46:18.644Z
-updated: 2024-05-21T17:46:18.644Z
+date: 2024-06-25T22:49:08.241Z
+updated: 2024-06-26T22:49:08.241Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,12 @@ categories:
 description: "This Article Describes In 2024, Locate and Watch Vintage Facebook Moments"
 excerpt: "This Article Describes In 2024, Locate and Watch Vintage Facebook Moments"
 keywords: "\"Vintage FB Memories Find,Antique Facebook Videos,Nostalgic FB Snapshots,Old-School Facebook Reels,Era-Specific FB Glimpses,Classics in FB Views,Retro FB Moment Watch\""
-thumbnail: https://www.lifewire.com/thmb/b4TbTJSD9f4xj7Fzwy2uD-AC1EU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-478546027-5892c1eb3df78caebc0d9b6c.jpg
+thumbnail: https://thmb.techidaily.com/446c2c83401a2bf43df1ddd12db668c5d64cb21efbb35cbfda2026996e2400a4.jpg
 ---
 
 ## Locate and Watch Vintage Facebook Moments
 
-# How to See Old Stories on Facebook: Find Story Archive Easily
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to See Old Stories on Facebook: Find Story Archive Easily ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

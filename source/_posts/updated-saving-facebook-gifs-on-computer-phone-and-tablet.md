@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Saving Facebook GIFs on Computer, Phone & Tablet"
-date: 2024-05-20T17:23:28.120Z
-updated: 2024-05-21T17:23:28.120Z
+date: 2024-06-25T22:49:11.341Z
+updated: 2024-06-26T22:49:11.341Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,12 @@ categories:
 description: "This Article Describes [Updated] Saving Facebook GIFs on Computer, Phone & Tablet"
 excerpt: "This Article Describes [Updated] Saving Facebook GIFs on Computer, Phone & Tablet"
 keywords: "Save FB GIFs Mobile Devices,Store Social Media Animations,Sync GIF Files to PC/Mobile,Backup Facebook Graphics Online,Archive FB Emoji Images Portably,Preserve Social Gifs Easily,Transfer FB Memes Savely"
-thumbnail: https://www.lifewire.com/thmb/crqf7aw9F6RC6VSVWVhQdSAcGQg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/duet-c82ee94b39e24788bcfd51d1eea24288.jpg
+thumbnail: https://thmb.techidaily.com/cc4de72d7f182f924611ffcdd9be6d67698446b35913acbf3e4fc8c5af445646.jpg
 ---
 
 ## Saving Facebook GIFs on Computer, Phone & Tablet
 
-# How to Download GIF from Facebook on PC, Android and iPhone
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Download GIF from Facebook on PC, Android and iPhone ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

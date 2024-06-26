@@ -1,7 +1,7 @@
 ---
 title: "\"Snap-Fying Life with FB Shorts\""
-date: 2024-05-20T16:20:08.471Z
-updated: 2024-05-21T16:20:08.471Z
+date: 2024-06-25T22:49:08.796Z
+updated: 2024-06-26T22:49:08.796Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Snap-Fying Life with FB Shorts\""
 excerpt: "\"This Article Describes Snap-Fying Life with FB Shorts\""
 keywords: "SnapShortLife,FBShortStories,SocialMediaSnaps,DigitalStorytelling,SnappyFBShare,QuickSnapFB,InstantFBSnaps"
-thumbnail: https://www.lifewire.com/thmb/q7gnzKxLxejPGGF4cYVP8exvcuw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/recycling-mobile-and-smart-phones-523191959-82cbfe8ee6b14a46a835f758cb376fc9.jpg
+thumbnail: https://thmb.techidaily.com/cdf09465082716a317b2f16f4ef99338eb56d0b864c0910b3b97914866d756b0.jpg
 ---
 
 ## Snap-Fying Life with FB Shorts

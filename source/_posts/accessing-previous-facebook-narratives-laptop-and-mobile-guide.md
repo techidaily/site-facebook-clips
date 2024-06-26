@@ -1,7 +1,7 @@
 ---
 title: "\"Accessing Previous Facebook Narratives  Laptop & Mobile Guide\""
-date: 2024-05-20T16:18:58.133Z
-updated: 2024-05-21T16:18:58.133Z
+date: 2024-06-25T22:49:07.354Z
+updated: 2024-06-26T22:49:07.354Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Accessing Previous Facebook Narratives: Laptop & Mobile Guide\""
 excerpt: "\"This Article Describes Accessing Previous Facebook Narratives: Laptop & Mobile Guide\""
 keywords: "FB History Retrieval,Past FB Data Access,FB Story Backup Guide,Navigate Old Facebook Posts,Recover FB Archive,Mobile FB History Export,Laptop FB Data Extraction"
-thumbnail: https://www.lifewire.com/thmb/zWxNYaUUEWKWwcCxwdQ9gx8_XCw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-safely-use-airport-charging-stations-4690583-01-6085c56e46b34f84b5f5d2d976e20677.jpg
+thumbnail: https://thmb.techidaily.com/3fbb28fdd30ab5cd77a4baca2551c9d92b27e18215ac7c02404eb389cacb68b2.jpg
 ---
 
 ## Accessing Previous Facebook Narratives: Laptop & Mobile Guide

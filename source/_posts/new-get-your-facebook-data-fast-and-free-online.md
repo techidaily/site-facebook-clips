@@ -1,7 +1,7 @@
 ---
 title: "[New] Get Your Facebook Data Fast & Free Online"
-date: 2024-05-20T17:06:17.034Z
-updated: 2024-05-21T17:06:17.034Z
+date: 2024-06-25T22:49:09.673Z
+updated: 2024-06-26T22:49:09.673Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Get Your Facebook Data Fast & Free Online"
 excerpt: "This Article Describes [New] Get Your Facebook Data Fast & Free Online"
 keywords: "FB Data Extraction,Free FB Download,Speed Up FB Access,Online FB Archive,FB Data Retrieval,Free FB Export,Quick FB Info"
-thumbnail: https://www.lifewire.com/thmb/UdJZPOl1Qxu4TNyDUwNjpHU07pk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/add-members-distribution-list-outlook-sf-c84bb8ddb19e4589bf8c46345be95f05.png
+thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b1b8e67663aad45fe3a9f4b0.png
 ---
 
 ## Get Your Facebook Data Fast & Free Online

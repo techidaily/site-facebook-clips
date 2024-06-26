@@ -1,7 +1,7 @@
 ---
 title: "Deciphering the Code to Your Liked Videos on Facebook"
-date: 2024-05-20T17:12:43.565Z
-updated: 2024-05-21T17:12:43.565Z
+date: 2024-06-25T22:49:19.155Z
+updated: 2024-06-26T22:49:19.155Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Deciphering the Code to Your Liked Videos on Facebook"
 excerpt: "This Article Describes Deciphering the Code to Your Liked Videos on Facebook"
 keywords: "Like Video SEO,FB Video Ranking,Maximize Video Views,Video Engagement Tips,Boost FB Video Popularity,Optimize Liked Videos,Facebook Video SEO Strategies"
-thumbnail: https://www.lifewire.com/thmb/qR96858ZncFkcqtTmO__DrnVCZg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-use-google-maps-cac605f400644927a40e7361175725d8.jpg
+thumbnail: https://thmb.techidaily.com/d5e8491d3f34992956d5390f8a8c8192037db1bb4f39254b71c759c472e8e33a.jpg
 ---
 
 ## Deciphering the Code to Your Liked Videos on Facebook

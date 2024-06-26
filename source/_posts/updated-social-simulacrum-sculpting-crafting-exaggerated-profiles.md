@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Social Simulacrum Sculpting  Crafting Exaggerated Profiles\""
-date: 2024-05-20T17:29:11.267Z
-updated: 2024-05-21T17:29:11.267Z
+date: 2024-06-25T22:49:05.128Z
+updated: 2024-06-26T22:49:05.128Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,12 @@ categories:
 description: "\"This Article Describes [Updated] Social Simulacrum Sculpting: Crafting Exaggerated Profiles\""
 excerpt: "\"This Article Describes [Updated] Social Simulacrum Sculpting: Crafting Exaggerated Profiles\""
 keywords: "\"Social Sculpture,Pro Profile Fabrication,Exaggerated Identity,Virtual Persona Design,Simulated Sociality,Artificial Self-Image,Distorted Online Persona\""
-thumbnail: https://www.lifewire.com/thmb/hFSr7tZO2lC3M-Ar2jAVMNoIqLA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/title-35d737cc16e2486ca049b6d80c7d5da3.jpg
+thumbnail: https://thmb.techidaily.com/78573d1d50e3fe1a208211e6210a893de5cb63383e5008c1e4699b06b4a4f916.jpg
 ---
 
 ## Social Simulacrum Sculpting: Crafting Exaggerated Profiles
 
-# Facebook Avatar: Create Your Own Cartoonish Character
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# Facebook Avatar: Create Your Own Cartoonish Character ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

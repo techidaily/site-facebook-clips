@@ -1,7 +1,7 @@
 ---
 title: "\"Start Your Social Media Show  Going Live on Facebook for 2024\""
-date: 2024-05-20T16:57:07.957Z
-updated: 2024-05-21T16:57:07.957Z
+date: 2024-06-25T22:49:03.317Z
+updated: 2024-06-26T22:49:03.317Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Start Your Social Media Show: Going Live on Facebook for 2024\""
 excerpt: "\"This Article Describes Start Your Social Media Show: Going Live on Facebook for 2024\""
 keywords: "Start Social Media Live,Go Live on FB,Social Media Broadcast,Engage with Fans,Digital Content Creation,Facebook Live Tips,Join the Show Stream"
-thumbnail: https://www.lifewire.com/thmb/E-A9X9SPpZ3Y3P5rGzbCm_XC7tc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/03LW4149830HeroSquare-75b852929c9e44b4b6e93f27c26f1410.jpg
+thumbnail: https://thmb.techidaily.com/502bcc92fd452403f6c08525ae02c0d2e78a33616170701a3383a08e8dcec924.jpg
 ---
 
 ## Start Your Social Media Show: Going Live on Facebook

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, How to Transmit Facebook Live via Televisions"
-date: 2024-05-20T16:58:03.324Z
-updated: 2024-05-21T16:58:03.324Z
+date: 2024-06-25T22:49:14.777Z
+updated: 2024-06-26T22:49:14.777Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes In 2024, How to Transmit Facebook Live via Televisions"
 excerpt: "This Article Describes In 2024, How to Transmit Facebook Live via Televisions"
 keywords: "Broadcast FB Live TV,Transmit Live on TV,Live Streaming Televisions,TV for Facebook Live,Streaming to Television,Direct TV to Facebook,Televisions for Live Streams"
-thumbnail: https://www.lifewire.com/thmb/bL_5ExgXCmH-xP6aer4hd4p6ICw=/2000x0/filters:no_upscale():max_bytes(150000):strip_icc()/InternetNetworking_GettyImages-876819100_anyaberkut_CROPPED-2622223ffceb418f993b2f804cb3e0e7.jpg
+thumbnail: https://thmb.techidaily.com/318f85e5a53d5f60469d32582133c5ee92bbc0ceb979fd63de287576e36507bb.jpg
 ---
 
 ## How to Transmit Facebook Live via Televisions
@@ -119,7 +119,7 @@ Step3 Finally, launch the **Facebook** app and start the Live stream you want to
 
 ## Bonus Tips: How To Record Your Facebook Live On Desktop?
 
-If you want to screen-record your favorite Facebook live videos for later viewing or sharing, we recommend using[Filmora Screen Recorder](https://tools.techidaily.com/wondershare/filmora/download/).
+If you want to screen-record your favorite Facebook live videos for later viewing or sharing, we recommend using [Filmora Screen Recorder](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![wondershare filmora screen recorder](https://images.wondershare.com/filmora/article-images/2022/11/wondershare-filmora-screen-recorder.png)
 
@@ -239,7 +239,7 @@ Step3 Finally, launch the **Facebook** app and start the Live stream you want to
 
 ## Bonus Tips: How To Record Your Facebook Live On Desktop?
 
-If you want to screen-record your favorite Facebook live videos for later viewing or sharing, we recommend using[Filmora Screen Recorder](https://tools.techidaily.com/wondershare/filmora/download/).
+If you want to screen-record your favorite Facebook live videos for later viewing or sharing, we recommend using [Filmora Screen Recorder](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![wondershare filmora screen recorder](https://images.wondershare.com/filmora/article-images/2022/11/wondershare-filmora-screen-recorder.png)
 

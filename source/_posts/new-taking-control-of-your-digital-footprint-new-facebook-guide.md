@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Taking Control of Your Digital Footprint  New Facebook Guide\""
-date: 2024-05-20T16:40:59.137Z
-updated: 2024-05-21T16:40:59.137Z
+date: 2024-06-25T22:49:18.910Z
+updated: 2024-06-26T22:49:18.910Z
 tags:
   - ai video
   - ai facebook
@@ -17,9 +17,7 @@ thumbnail: https://www.lifewire.com/thmb/GMODQIsI915ixpaiTofmagG7Ki0=/400x300/fi
 
 ## Taking Control of Your Digital Footprint: New Facebook Guide
 
-# How to Create a Facebook Account
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Create a Facebook Account ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

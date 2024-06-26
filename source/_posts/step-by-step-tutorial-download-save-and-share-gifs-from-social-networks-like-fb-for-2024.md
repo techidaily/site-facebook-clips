@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step Tutorial  Download, Save, and Share GIFs From Social Networks Like FB for 2024\""
-date: 2024-05-20T16:48:07.944Z
-updated: 2024-05-21T16:48:07.944Z
+date: 2024-06-25T22:49:13.371Z
+updated: 2024-06-26T22:49:13.371Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,12 @@ categories:
 description: "\"This Article Describes Step-by-Step Tutorial: Download, Save, and Share GIFs From Social Networks Like FB for 2024\""
 excerpt: "\"This Article Describes Step-by-Step Tutorial: Download, Save, and Share GIFs From Social Networks Like FB for 2024\""
 keywords: "\"Facebook GIF Download,Save Social Media GIFs,Sharing GIF From FB,FB GIF Saving Steps,Download GIF From Networks,Share GIF on Platforms,Tutorial: Social GIF Save\""
-thumbnail: https://www.lifewire.com/thmb/z0FcObDyImu70neTKRlkwzqQTeM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/the-17-best-graphic-design-software-2024-1dd6c15b34124b25b65e4b096e4e6ba4.jpg
+thumbnail: https://thmb.techidaily.com/d24334e679d3e178a2e8d9f5b333fac2b20b9134a044e30e2240a2331d8bec84.jpg
 ---
 
 ## Step-by-Step Tutorial: Download, Save, and Share GIFs From Social Networks Like FB
 
-# How to Download GIF from Facebook on PC, Android and iPhone
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Download GIF from Facebook on PC, Android and iPhone ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

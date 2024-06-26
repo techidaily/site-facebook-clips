@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Aspect Ratios in Action  Facebook's Video Direction\""
-date: 2024-05-20T16:20:37.314Z
-updated: 2024-05-21T16:20:37.314Z
+date: 2024-06-25T22:49:05.752Z
+updated: 2024-06-26T22:49:05.752Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Aspect Ratios in Action: Facebook's Video Direction\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Aspect Ratios in Action: Facebook's Video Direction\""
 keywords: "FB Video Aspect,Action Ratio,Social Media Img,Video Orientation,Aspect Ratio FB,Directional Pixels,Social Video Ratios"
-thumbnail: https://www.lifewire.com/thmb/ykb-X1fleqsocOPzjbEHKe67iWs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/1-fda3dfcb691444eebe2921baebecd372.jpg
+thumbnail: https://thmb.techidaily.com/288c4a8a533b0f1094aca3a28c5db0188ea8b5a3c3aca95005c1c84fe62729c2.jpg
 ---
 
 ## Aspect Ratios in Action: Facebook's Video Direction

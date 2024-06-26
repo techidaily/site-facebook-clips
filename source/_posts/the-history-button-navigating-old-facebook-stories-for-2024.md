@@ -1,7 +1,7 @@
 ---
 title: "\"The History Button  Navigating Old Facebook Stories for 2024\""
-date: 2024-06-18T04:22:53.820Z
-updated: 2024-06-19T04:22:53.820Z
+date: 2024-06-25T22:49:06.122Z
+updated: 2024-06-26T22:49:06.122Z
 tags:
   - ai video
   - ai facebook
@@ -17,9 +17,7 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 
 ## The History Button: Navigating Old Facebook Stories
 
-# How to See Old Stories on Facebook: Find Story Archive Easily
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to See Old Stories on Facebook: Find Story Archive Easily ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

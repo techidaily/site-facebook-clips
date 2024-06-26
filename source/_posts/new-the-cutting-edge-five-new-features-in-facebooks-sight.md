@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Cutting-Edge Five  New Features in Facebook's Sight\""
-date: 2024-05-20T17:54:21.172Z
-updated: 2024-05-21T17:54:21.172Z
+date: 2024-06-25T22:49:03.384Z
+updated: 2024-06-26T22:49:03.384Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,12 @@ categories:
 description: "\"This Article Describes [New] The Cutting-Edge Five: New Features in Facebook's Sight\""
 excerpt: "\"This Article Describes [New] The Cutting-Edge Five: New Features in Facebook's Sight\""
 keywords: "Facebook Sight Update,Social Media Trends,Innovative Tech UI,Facebook Interface Enhancements,Newest Social Features,Latest FB Design Elements,Social Platform Upgrades"
-thumbnail: https://www.lifewire.com/thmb/necVDHY0jw2X8abfnDNPSwKEgJc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-973902638-5c055ec346e0fb0001dfd9f1.jpg
+thumbnail: https://thmb.techidaily.com/f13aeea6c73457fbc5bbd1b6bff4a0c00a428af0a90b0cd758e49ef9cfc3066d.jpg
 ---
 
 ## The Cutting-Edge Five: New Features in Facebook's Sight
 
-# Top Five New Facebook Features You Should Know
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# Top Five New Facebook Features You Should Know ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -29,7 +27,7 @@ thumbnail: https://www.lifewire.com/thmb/necVDHY0jw2X8abfnDNPSwKEgJc=/400x300/fi
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
-## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
+## 1\. Facebook 360
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
 
@@ -82,7 +80,7 @@ Follow @Shanoon Cox
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
-## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
+## 1\. Facebook 360
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
 
@@ -135,7 +133,7 @@ Follow @Shanoon Cox
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
-## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
+## 1\. Facebook 360
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
 
@@ -188,7 +186,7 @@ Follow @Shanoon Cox
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
-## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
+## 1\. Facebook 360
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
 

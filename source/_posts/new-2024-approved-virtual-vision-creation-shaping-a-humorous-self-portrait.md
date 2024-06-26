@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Virtual Vision Creation  Shaping a Humorous Self-Portrait\""
-date: 2024-05-20T17:17:22.061Z
-updated: 2024-05-21T17:17:22.061Z
+date: 2024-06-25T22:49:12.733Z
+updated: 2024-06-26T22:49:12.733Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,12 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Virtual Vision Creation: Shaping a Humorous Self-Portrait\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Virtual Vision Creation: Shaping a Humorous Self-Portrait\""
 keywords: "\"Virtual Vision Art,Funny Self-Art,Portrait Joke,Hidden Reality Laughs,Digital Humorist,Comic Face Sketch,Self-Portrait Guffaw\""
-thumbnail: https://www.lifewire.com/thmb/XuYrRPCOK72waHStn6mcmYJjfFs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/000-how-to-make-high-resolution-images-on-your-computer-or-smartphone-4588802-5c83b08746e0fb0001136657.jpg
+thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c6f73b5cf48b17efe5272ad6.jpg
 ---
 
 ## Virtual Vision Creation: Shaping a Humorous Self-Portrait
 
-# Facebook Avatar: Create Your Own Cartoonish Character
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# Facebook Avatar: Create Your Own Cartoonish Character ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

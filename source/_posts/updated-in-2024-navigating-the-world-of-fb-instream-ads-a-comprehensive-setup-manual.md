@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Navigating the World of FB Instream Ads  A Comprehensive Setup Manual\""
-date: 2024-05-20T16:53:12.912Z
-updated: 2024-05-21T16:53:12.912Z
+date: 2024-06-25T22:49:13.163Z
+updated: 2024-06-26T22:49:13.163Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Navigating the World of FB Instream Ads: A Comprehensive Setup Manual\""
 excerpt: "\"This Article Describes [Updated] In 2024, Navigating the World of FB Instream Ads: A Comprehensive Setup Manual\""
 keywords: "Facebook Ad Insights,Stream Ad Strategies,Instream Ad Management,Ad Creation Guide,Social Media Ads Setup,FB Instream Ad Basics,Digital Ad Implementation"
-thumbnail: https://www.lifewire.com/thmb/U2_ZVqdtVZUlaa1Hl3NAfB66OEY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/JSL2-de07f8b4e06e49d58026eedc72df66c7.png
+thumbnail: https://thmb.techidaily.com/45bc41dfd22bb4252a227dcc20488f6faf42f4a30eaffbfeaeadce5abdbcdc1d.png
 ---
 
 ## Navigating the World of FB Instream Ads: A Comprehensive Setup Manual
@@ -73,7 +73,7 @@ It is a common practice that Facebook Pages do live streams where they answer yo
 
 **Step 1**: First of all, head over to ‘Live Producer’ and set your stream. Now, you can access the instream ads from the dashboard of Live Producer under the Monetization section.
 
-![access live producer ](https://images.wondershare.com/filmora/article-images/2022/02/facebook-instream-ads-2.jpg)
+![access live producer](https://images.wondershare.com/filmora/article-images/2022/02/facebook-instream-ads-2.jpg)
 
 **Step 2**: Next, for accessing the default in-stream ad settings of your Page, you need to click on the expand icon. The icon will be visible within the widget.
 
@@ -235,7 +235,7 @@ It is a common practice that Facebook Pages do live streams where they answer yo
 
 **Step 1**: First of all, head over to ‘Live Producer’ and set your stream. Now, you can access the instream ads from the dashboard of Live Producer under the Monetization section.
 
-![access live producer ](https://images.wondershare.com/filmora/article-images/2022/02/facebook-instream-ads-2.jpg)
+![access live producer](https://images.wondershare.com/filmora/article-images/2022/02/facebook-instream-ads-2.jpg)
 
 **Step 2**: Next, for accessing the default in-stream ad settings of your Page, you need to click on the expand icon. The icon will be visible within the widget.
 
@@ -397,7 +397,7 @@ It is a common practice that Facebook Pages do live streams where they answer yo
 
 **Step 1**: First of all, head over to ‘Live Producer’ and set your stream. Now, you can access the instream ads from the dashboard of Live Producer under the Monetization section.
 
-![access live producer ](https://images.wondershare.com/filmora/article-images/2022/02/facebook-instream-ads-2.jpg)
+![access live producer](https://images.wondershare.com/filmora/article-images/2022/02/facebook-instream-ads-2.jpg)
 
 **Step 2**: Next, for accessing the default in-stream ad settings of your Page, you need to click on the expand icon. The icon will be visible within the widget.
 
@@ -559,7 +559,7 @@ It is a common practice that Facebook Pages do live streams where they answer yo
 
 **Step 1**: First of all, head over to ‘Live Producer’ and set your stream. Now, you can access the instream ads from the dashboard of Live Producer under the Monetization section.
 
-![access live producer ](https://images.wondershare.com/filmora/article-images/2022/02/facebook-instream-ads-2.jpg)
+![access live producer](https://images.wondershare.com/filmora/article-images/2022/02/facebook-instream-ads-2.jpg)
 
 **Step 2**: Next, for accessing the default in-stream ad settings of your Page, you need to click on the expand icon. The icon will be visible within the widget.
 

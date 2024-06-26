@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, A Guide to Retrieving Historic Facebook Stories"
-date: 2024-06-09T04:34:12.011Z
-updated: 2024-06-10T04:34:12.011Z
+date: 2024-06-25T22:49:19.392Z
+updated: 2024-06-26T22:49:19.392Z
 tags:
   - ai video
   - ai facebook
@@ -17,9 +17,7 @@ thumbnail: https://thmb.techidaily.com/a8b16314a41e8185a53e16911a8cd83652896b677
 
 ## A Guide to Retrieving Historic Facebook Stories
 
-# How to See Old Stories on Facebook: Find Story Archive Easily
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to See Old Stories on Facebook: Find Story Archive Easily ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

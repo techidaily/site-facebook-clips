@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Polishing Up Your Past  Looking Back in Style\""
-date: 2024-06-18T04:22:44.617Z
-updated: 2024-06-19T04:22:44.617Z
+date: 2024-06-25T22:49:13.082Z
+updated: 2024-06-26T22:49:13.082Z
 tags:
   - ai video
   - ai facebook
@@ -17,9 +17,7 @@ thumbnail: https://thmb.techidaily.com/2cb259c465a86a9d87c2ab8ed232a243225880491
 
 ## Polishing Up Your Past: Looking Back in Style
 
-# How to Edit Facebook Look Back Video
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Edit Facebook Look Back Video ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 
