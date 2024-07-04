@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Reddit Poster Canvas Ratio"
-date: 2024-05-20T16:22:39.474Z
-updated: 2024-05-21T16:22:39.474Z
+date: 2024-07-03T22:41:54.233Z
+updated: 2024-07-04T22:41:54.233Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes In 2024, Reddit Poster Canvas Ratio"
 excerpt: "This Article Describes In 2024, Reddit Poster Canvas Ratio"
 keywords: "Reddit Design Ratios,Canvas Aspects for Reddits,Resize Ratio Guide,Poster Dimensions Reddit,Image Ratio Adjustment,Optimal Reddit Picture Size,Balance Canvas & Width Reddit"
-thumbnail: https://www.lifewire.com/thmb/3zX1wSLUgOOUtfE8_n3UOx3eeL8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Amazon-Fire-Tablet-vs-iPad-c7412c25c83b4ac5b393596789f0e716.jpg
+thumbnail: https://thmb.techidaily.com/2cb259c465a86a9d87c2ab8ed232a243225880491ec4b7484688140a5b3e77f5.jpg
 ---
 
 ## Reddit Poster Canvas Ratio

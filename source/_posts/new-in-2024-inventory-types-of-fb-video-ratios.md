@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Inventory  Types of FB Video Ratios\""
-date: 2024-05-20T17:31:45.925Z
-updated: 2024-05-21T17:31:45.925Z
+date: 2024-07-03T22:41:53.520Z
+updated: 2024-07-04T22:41:53.520Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, Inventory: Types of FB Video Ratios\""
 excerpt: "\"This Article Describes [New] In 2024, Inventory: Types of FB Video Ratios\""
 keywords: "FB Video Ratio Types,Inventory FB Ratios,FB Video Ratio Analysis,Video Ratio Categories,FB Inventory Metrics,Inventory Video Quality,Ratios in FB Videos"
-thumbnail: https://www.lifewire.com/thmb/qnoyo_FzRWzXjLiqwQ7imSon984=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/6-things-to-consider-before-buying-a-gaming-pc-5221042-8a79710a1e4549edbc357125123fb04e.jpg
+thumbnail: https://thmb.techidaily.com/db6e8bb5b9330de241494205e28fd162607bcee64226c4e5f87f88fc35435d44.jpg
 ---
 
 ## Inventory: Types of FB Video Ratios
@@ -25,7 +25,7 @@ Therefore, it is essential that video quality complement with platform dimension
 
 #### In this article
 
-01 [Types of Facebook Video Aspect Ratios ](#Part 1)
+01 [Types of Facebook Video Aspect Ratios](#Part 1)
 
 02 [What is the Best Video Size for Facebook?](#Part 2)
 
@@ -187,7 +187,7 @@ Some other features are:
 
 **●** Upload videos directly on social media by Filmora
 
-![Upload on Social Media ](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-10.jpg)
+![Upload on Social Media](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-10.jpg)
 
 **●** Experience fast editing
 
@@ -259,7 +259,7 @@ Once you select the aspect ratio, click on the "Analyze" button. Filmora will Au
 
 After completing adjustment or reframing, click on the "Export" button to save your video. Change the name of the video and select the location where you want to save the video. Now, click on the "Export" again to save.
 
-![Click Export Button ](https://images.wondershare.com/filmora/article-images/auto-reframe-save-video.jpg)
+![Click Export Button](https://images.wondershare.com/filmora/article-images/auto-reframe-save-video.jpg)
 
 #### Method 5: Adjust Aspect Ratio at Exporting
 
@@ -449,7 +449,7 @@ Some other features are:
 
 **●** Upload videos directly on social media by Filmora
 
-![Upload on Social Media ](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-10.jpg)
+![Upload on Social Media](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-10.jpg)
 
 **●** Experience fast editing
 
@@ -521,7 +521,7 @@ Once you select the aspect ratio, click on the "Analyze" button. Filmora will Au
 
 After completing adjustment or reframing, click on the "Export" button to save your video. Change the name of the video and select the location where you want to save the video. Now, click on the "Export" again to save.
 
-![Click Export Button ](https://images.wondershare.com/filmora/article-images/auto-reframe-save-video.jpg)
+![Click Export Button](https://images.wondershare.com/filmora/article-images/auto-reframe-save-video.jpg)
 
 #### Method 5: Adjust Aspect Ratio at Exporting
 
@@ -711,7 +711,7 @@ Some other features are:
 
 **●** Upload videos directly on social media by Filmora
 
-![Upload on Social Media ](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-10.jpg)
+![Upload on Social Media](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-10.jpg)
 
 **●** Experience fast editing
 
@@ -783,7 +783,7 @@ Once you select the aspect ratio, click on the "Analyze" button. Filmora will Au
 
 After completing adjustment or reframing, click on the "Export" button to save your video. Change the name of the video and select the location where you want to save the video. Now, click on the "Export" again to save.
 
-![Click Export Button ](https://images.wondershare.com/filmora/article-images/auto-reframe-save-video.jpg)
+![Click Export Button](https://images.wondershare.com/filmora/article-images/auto-reframe-save-video.jpg)
 
 #### Method 5: Adjust Aspect Ratio at Exporting
 
@@ -973,7 +973,7 @@ Some other features are:
 
 **●** Upload videos directly on social media by Filmora
 
-![Upload on Social Media ](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-10.jpg)
+![Upload on Social Media](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-10.jpg)
 
 **●** Experience fast editing
 
@@ -1045,7 +1045,7 @@ Once you select the aspect ratio, click on the "Analyze" button. Filmora will Au
 
 After completing adjustment or reframing, click on the "Export" button to save your video. Change the name of the video and select the location where you want to save the video. Now, click on the "Export" again to save.
 
-![Click Export Button ](https://images.wondershare.com/filmora/article-images/auto-reframe-save-video.jpg)
+![Click Export Button](https://images.wondershare.com/filmora/article-images/auto-reframe-save-video.jpg)
 
 #### Method 5: Adjust Aspect Ratio at Exporting
 

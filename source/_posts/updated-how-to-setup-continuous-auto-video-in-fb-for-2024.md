@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] How to Setup Continuous Auto-Video in Fb for 2024\""
-date: 2024-05-20T16:30:53.273Z
-updated: 2024-05-21T16:30:53.273Z
+date: 2024-07-03T22:41:54.205Z
+updated: 2024-07-04T22:41:54.205Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] How to Setup Continuous Auto-Video in Fb for 2024\""
 excerpt: "\"This Article Describes [Updated] How to Setup Continuous Auto-Video in Fb for 2024\""
 keywords: "\"Video Auto Upload FB,Fb Live Streaming,Online Fb Video Recording,Real-Time FB Video Capture,Facebook Auto Video Send,Continuous FB Video Setup,Automatic FFmpeg Encoding\""
-thumbnail: https://www.lifewire.com/thmb/s5h4EoJ_52pHEL0Rb3-J6tcXCEs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/emoji-keyboard-57cc58a33df78c71b650ec86.jpg
+thumbnail: https://thmb.techidaily.com/e77b802386df347968174243d9eec6b1ff5aaa13a757fb94ecaebe8d1775e8b5.jpg
 ---
 
 ## How to Setup Continuous Auto-Video in Fb

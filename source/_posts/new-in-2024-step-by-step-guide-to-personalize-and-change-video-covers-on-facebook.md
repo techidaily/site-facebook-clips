@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step Guide to Personalize and Change Video Covers on Facebook\""
-date: 2024-06-25T22:49:04.627Z
-updated: 2024-06-26T22:49:04.627Z
+date: 2024-07-03T22:41:58.515Z
+updated: 2024-07-04T22:41:58.515Z
 tags:
   - ai video
   - ai facebook
@@ -17,7 +17,8 @@ thumbnail: https://thmb.techidaily.com/cf530c2c593b6932cef8db0cdf4cd19063a18ed96
 
 ## Step-by-Step Guide to Personalize and Change Video Covers on Facebook
 
-# How to Create and Change Video Cover on Facebook ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Create and Change Video Cover on Facebook
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Art of Bio Storytelling on Social Media Platforms"
-date: 2024-05-20T16:46:58.883Z
-updated: 2024-05-21T16:46:58.883Z
+date: 2024-07-03T22:41:51.098Z
+updated: 2024-07-04T22:41:51.098Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] The Art of Bio Storytelling on Social Media Platforms"
 excerpt: "This Article Describes [Updated] The Art of Bio Storytelling on Social Media Platforms"
 keywords: "BioStorytellingSocial,SocialMediaBioArt,StorytellingInMedia,BioNarrativesPlatform,ArtfulMediaTales,SocialBiosCrafting,MediaStoryWeaving"
-thumbnail: https://www.lifewire.com/thmb/j7-rZB6HuyeNRuibx63DJ8a6Fvc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/duet-c82ee94b39e24788bcfd51d1eea24288.jpg
+thumbnail: https://thmb.techidaily.com/3cd047344d86e8920c72e515095d66dfd7e255dbcb41fa2030513ad2ed26d835.jpg
 ---
 
 ## The Art of Bio Storytelling on Social Media Platforms

@@ -1,7 +1,7 @@
 ---
 title: "Aspect Ratio for Video Content on Social Platforms"
-date: 2024-05-20T16:57:49.968Z
-updated: 2024-05-21T16:57:49.968Z
+date: 2024-07-03T22:41:53.486Z
+updated: 2024-07-04T22:41:53.486Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Aspect Ratio for Video Content on Social Platforms"
 excerpt: "This Article Describes Aspect Ratio for Video Content on Social Platforms"
 keywords: "Social Video Aspect,Video Aspect Ratio,Aspect Ratio Online,Platform Video Ratios,Social Media Videos,Ratio Video Content,Social Ratio Dimensions"
-thumbnail: https://www.lifewire.com/thmb/xXXXABZAmSAt0BL3NSr1kTD8CVM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/tesla-bot-f6353f76ae214924916445da1da620ca.png
+thumbnail: https://thmb.techidaily.com/b3d61cb315de3688d633dcaa1de969d34c57d2ef4835c89401c3246551696a45.png
 ---
 
 ## Aspect Ratio for Video Content on Social Platforms

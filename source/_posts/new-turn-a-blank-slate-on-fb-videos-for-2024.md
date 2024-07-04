@@ -1,7 +1,7 @@
 ---
 title: "[New] Turn a Blank Slate on FB Videos for 2024"
-date: 2024-05-20T17:35:32.157Z
-updated: 2024-05-21T17:35:32.157Z
+date: 2024-07-03T22:41:53.707Z
+updated: 2024-07-04T22:41:53.707Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Turn a Blank Slate on FB Videos for 2024"
 excerpt: "This Article Describes [New] Turn a Blank Slate on FB Videos for 2024"
 keywords: "Facebook Video Launch,Blank Start FB Vids,Zero Content FB Video,New FB Video Begin,Empty FB Video Space,Fresh FB Video Pad,Unedited FB Videos"
-thumbnail: https://www.lifewire.com/thmb/NtWak-ToxcMPVb1t0Kn0t0QH8fU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/kids-and-ipads-177219460-resized-56a532c45f9b58b7d0db7169.jpg
+thumbnail: https://thmb.techidaily.com/43d04728eb067b27b181109747aeff382529cf3d84fbfcf0819906ab437cf25f.jpg
 ---
 
 ## Turn a Blank Slate on FB Videos

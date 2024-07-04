@@ -1,7 +1,7 @@
 ---
 title: "\"Simplifying Media Sharing  How to Enable Autoplay in Facebook Video Spaces\""
-date: 2024-05-20T17:42:37.868Z
-updated: 2024-05-21T17:42:37.868Z
+date: 2024-07-03T22:41:56.671Z
+updated: 2024-07-04T22:41:56.671Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Simplifying Media Sharing: How to Enable Autoplay in Facebook Video Spaces\""
 excerpt: "\"This Article Describes Simplifying Media Sharing: How to Enable Autoplay in Facebook Video Spaces\""
 keywords: "FB Video Autoplay,Share Videos Easily,Simplify Media Post,Enable Vid Playback,Facebook Video Share,Autoplay in FB Spaces,Media Sharing on FB"
-thumbnail: https://www.lifewire.com/thmb/BPaA9dwb5GKoBRGMB8q-VzZ2Am8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-92259124-ed470a8e78084702b142c374c57f3dbf.jpg
+thumbnail: https://thmb.techidaily.com/af6a241ce73781e980e91fb32b5f340b0c43ca449b76945212041b79725c225d.jpg
 ---
 
 ## Simplifying Media Sharing: How to Enable Autoplay in Facebook Video Spaces
@@ -151,7 +151,7 @@ In order to enable this feature on your mobile, follow these few simple steps gi
 
 Go to the home screen of your phone and tap on the Facebook app to launch it.
 
-![Open Facebook ](https://images.wondershare.com/filmora/article-images/2021/autoplay-youtube-videos-on-facebook-7.jpg)
+![Open Facebook](https://images.wondershare.com/filmora/article-images/2021/autoplay-youtube-videos-on-facebook-7.jpg)
 
 **Step 2: Go to the Menu**
 
@@ -317,7 +317,7 @@ In order to enable this feature on your mobile, follow these few simple steps gi
 
 Go to the home screen of your phone and tap on the Facebook app to launch it.
 
-![Open Facebook ](https://images.wondershare.com/filmora/article-images/2021/autoplay-youtube-videos-on-facebook-7.jpg)
+![Open Facebook](https://images.wondershare.com/filmora/article-images/2021/autoplay-youtube-videos-on-facebook-7.jpg)
 
 **Step 2: Go to the Menu**
 
@@ -483,7 +483,7 @@ In order to enable this feature on your mobile, follow these few simple steps gi
 
 Go to the home screen of your phone and tap on the Facebook app to launch it.
 
-![Open Facebook ](https://images.wondershare.com/filmora/article-images/2021/autoplay-youtube-videos-on-facebook-7.jpg)
+![Open Facebook](https://images.wondershare.com/filmora/article-images/2021/autoplay-youtube-videos-on-facebook-7.jpg)
 
 **Step 2: Go to the Menu**
 
@@ -649,7 +649,7 @@ In order to enable this feature on your mobile, follow these few simple steps gi
 
 Go to the home screen of your phone and tap on the Facebook app to launch it.
 
-![Open Facebook ](https://images.wondershare.com/filmora/article-images/2021/autoplay-youtube-videos-on-facebook-7.jpg)
+![Open Facebook](https://images.wondershare.com/filmora/article-images/2021/autoplay-youtube-videos-on-facebook-7.jpg)
 
 **Step 2: Go to the Menu**
 

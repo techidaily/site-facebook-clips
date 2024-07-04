@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, A Step-by-Step for Delving Into FB Archives\""
-date: 2024-05-20T17:07:43.461Z
-updated: 2024-05-21T17:07:43.461Z
+date: 2024-07-03T22:41:52.827Z
+updated: 2024-07-04T22:41:52.827Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, A Step-by-Step for Delving Into FB Archives\""
 excerpt: "\"This Article Describes [New] In 2024, A Step-by-Step for Delving Into FB Archives\""
 keywords: "Explore Facebook Archives,Accessing FB Archive,Navigate Facebook History,Delve Into FB Records,Uncovering FB Past,Step Guide to FB Archives,Review Facebook Archive"
-thumbnail: https://www.lifewire.com/thmb/3IFVI_P47uIZk4HH2tdwmX9RyGw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/samsungappstore-c0194a478ba54e90a798b3bb5ff4f6d5.jpg
+thumbnail: https://thmb.techidaily.com/ff65255da837891834ddbec118debc41ab0f1d1e57de67c2dd583540d5810764.jpg
 ---
 
 ## A Step-by-Step for Delving Into FB Archives

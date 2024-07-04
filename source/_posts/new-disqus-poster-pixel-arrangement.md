@@ -1,7 +1,7 @@
 ---
 title: "[New] Disqus Poster Pixel Arrangement"
-date: 2024-05-20T17:00:17.488Z
-updated: 2024-05-21T17:00:17.488Z
+date: 2024-07-03T22:41:57.262Z
+updated: 2024-07-04T22:41:57.262Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Disqus Poster Pixel Arrangement"
 excerpt: "This Article Describes [New] Disqus Poster Pixel Arrangement"
 keywords: "Disqus Design Patterns,Pixel Artwork Layout,Social Media Commenting,Web Comment System,Digital Discussion Boards,Online Forum Display,Poster Visual Arrangement"
-thumbnail: https://www.lifewire.com/thmb/izBIha32HgabjptVJirtpKdPFJM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/youtubekids-30ac14dece6546eb98e32e3e18e447f8.jpg
+thumbnail: https://thmb.techidaily.com/57ebcefbd038d5518117756c100dd6989f85e0e6cff4615a7e12084a4473983a.jpg
 ---
 
 ## Disqus Poster Pixel Arrangement

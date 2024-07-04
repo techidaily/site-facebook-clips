@@ -1,7 +1,7 @@
 ---
 title: "Quick Tip to Uncover Your Recently Watched Movies on FB"
-date: 2024-05-20T16:26:36.135Z
-updated: 2024-05-21T16:26:36.135Z
+date: 2024-07-03T22:41:54.121Z
+updated: 2024-07-04T22:41:54.121Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Quick Tip to Uncover Your Recently Watched Movies on FB"
 excerpt: "This Article Describes Quick Tip to Uncover Your Recently Watched Movies on FB"
 keywords: "Facebook Movie Watchlist,FB Watch History Access,Quick FB Movie Views,Reveal FB Watched Films,Uncover FB Recent Views,FB Movies Just Seen,Discover FB Watched Titles"
-thumbnail: https://www.lifewire.com/thmb/0fsaNQxxMm2r8t8zueL3nfHWATw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-973722484-5bb13fa7c9e77c0026378db7.jpg
+thumbnail: https://thmb.techidaily.com/425081092e1a679d02f1bd0f9b8040f12a7c3e9a90f0ca40e490e9a1586e5331.jpg
 ---
 
 ## Quick Tip to Uncover Your Recently Watched Movies on FB

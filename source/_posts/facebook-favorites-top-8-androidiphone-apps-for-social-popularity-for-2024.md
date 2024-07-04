@@ -1,7 +1,7 @@
 ---
 title: "\"Facebook Favorites  Top 8 Android/iPhone Apps for Social Popularity for 2024\""
-date: 2024-06-25T22:49:54.602Z
-updated: 2024-06-26T22:49:54.602Z
+date: 2024-07-03T22:41:51.186Z
+updated: 2024-07-04T22:41:51.186Z
 tags:
   - ai video
   - ai facebook
@@ -40,7 +40,8 @@ Do you want to make videos and post them on Facebook to get more likes? Well, [W
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
-## A cross-platform for making videos anywhere for all creators ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
+## A cross-platform for making videos anywhere for all creators
+![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
  Why your video editing isn't good enough? How about some creative inspo?
 

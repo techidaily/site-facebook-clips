@@ -1,7 +1,7 @@
 ---
 title: "The Insider's Look at Creating Viral FB Cover Videos"
-date: 2024-05-20T17:10:31.581Z
-updated: 2024-05-21T17:10:31.581Z
+date: 2024-07-03T22:41:53.669Z
+updated: 2024-07-04T22:41:53.669Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes The Insider's Look at Creating Viral FB Cover Videos"
 excerpt: "This Article Describes The Insider's Look at Creating Viral FB Cover Videos"
 keywords: "Viral Video Tips,FB Cover Creation,Cover Video SEO,Viral Social Media,Insider Video Tricks,Engaging Facebook Covers,Video Marketing Strategies"
-thumbnail: https://www.lifewire.com/thmb/-h7Mq8d0i9xOEDt1viZ-IC9amFI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/henry-perks-BJXAxQ1L7dI-unsplash-8268774140134c6a8d61b7c4037a3629.jpg
+thumbnail: https://thmb.techidaily.com/fa8c86c87f3c1271d21091d603f6092e646d5c6b0bc9d94d28fa82fd16469a26.jpg
 ---
 
 ## The Insider's Look at Creating Viral FB Cover Videos

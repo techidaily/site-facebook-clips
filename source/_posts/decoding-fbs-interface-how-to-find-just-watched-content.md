@@ -1,7 +1,7 @@
 ---
 title: "\"Decoding FB's Interface  How To Find Just-Watched Content\""
-date: 2024-05-20T17:39:00.522Z
-updated: 2024-05-21T17:39:00.522Z
+date: 2024-07-03T22:41:55.886Z
+updated: 2024-07-04T22:41:55.886Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Decoding FB's Interface: How To Find Just-Watched Content\""
 excerpt: "\"This Article Describes Decoding FB's Interface: How To Find Just-Watched Content\""
 keywords: "\"Facebook Watch Interface Guide,Accessing Recently Viewed FB Videos,Decoding FB Video Stream,Uncover FB's Latest Content,Navigating Just-Watched Feature,Mastering FB Watch History,Trendy TV Shows on Facebook\""
-thumbnail: https://www.lifewire.com/thmb/StRC1gceN7hy3J92zKVQDdA6qG8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1316489017-cab6da86c84e4a379cb658ec51faf24a.jpg
+thumbnail: https://thmb.techidaily.com/bca79052c5cd9d97263eb9f9d9f77145f2fe6968554def245326bd7e9d126f27.jpg
 ---
 
 ## Decoding FB's Interface: How To Find Just-Watched Content

@@ -1,7 +1,7 @@
 ---
 title: "Ensuring Relevance and Engagement with Proper FB Hashtags for 2024"
-date: 2024-06-25T22:49:23.864Z
-updated: 2024-06-26T22:49:23.864Z
+date: 2024-07-03T22:41:50.124Z
+updated: 2024-07-04T22:41:50.124Z
 tags:
   - ai video
   - ai facebook
@@ -17,7 +17,8 @@ thumbnail: https://www.lifewire.com/thmb/FWk05mAOsswR6xQHLpT1yCa5u-o=/400x300/fi
 
 ## Ensuring Relevance and Engagement with Proper FB Hashtags
 
-# How Marketers Should Use Hashtags on Facebook Properly ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How Marketers Should Use Hashtags on Facebook Properly
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

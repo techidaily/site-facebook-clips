@@ -1,7 +1,7 @@
 ---
 title: "[New] Tackle Chrome's Inability to Load FB Videos"
-date: 2024-05-20T17:51:01.183Z
-updated: 2024-05-21T17:51:01.183Z
+date: 2024-07-03T22:41:55.274Z
+updated: 2024-07-04T22:41:55.274Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Tackle Chrome's Inability to Load FB Videos"
 excerpt: "This Article Describes [New] Tackle Chrome's Inability to Load FB Videos"
 keywords: "Fix FB Video Loading,Chrome Facebook Issue,Resolve Browser Glitch,Stop FB Video Failure,Tweak Chrome Settings,Enhance Browser Performance,Optimize Chrome for FB Content"
-thumbnail: https://www.lifewire.com/thmb/9Yt_RjRUC9OKjWNte1YSKLjW9fs=/564x250/filters:no_upscale():max_bytes(150000):strip_icc()/ConnectedCarTech_metamorworks_GettyImages-966859036_CROPPED-a9460403602c4b67a7a8c1acd599c9be.jpg
+thumbnail: https://thmb.techidaily.com/5f1d20c9cdc38cb1d77f47c43dee5a5d477e2ff178ada3de9653ceb21ae65a7a.jpg
 ---
 
 ## Tackle Chrome's Inability to Load FB Videos

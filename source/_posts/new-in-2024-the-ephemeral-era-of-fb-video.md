@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Ephemeral Era of FB Video"
-date: 2024-05-20T17:22:54.174Z
-updated: 2024-05-21T17:22:54.174Z
+date: 2024-07-03T22:41:51.509Z
+updated: 2024-07-04T22:41:51.509Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, The Ephemeral Era of FB Video"
 excerpt: "This Article Describes [New] In 2024, The Ephemeral Era of FB Video"
 keywords: "\"Temporary FB Videos,Social Media Vids,Transient Facebook Content,Ephemeral Video Trend,Short-Lived FB Screens,Fleeting Video Era,Brief FB Video Life\""
-thumbnail: https://www.lifewire.com/thmb/DZMi6Nl4RVq5RlOfnw8VY-69-jk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/car-tech-key-concepts-534885-d604a819aa2c4037820a4b8c1e174c5b.png
+thumbnail: https://thmb.techidaily.com/403ee604a3f16d045c6709201099032edd204086d93c80ae19bbdd0f525004e0.png
 ---
 
 ## The Ephemeral Era of FB Video

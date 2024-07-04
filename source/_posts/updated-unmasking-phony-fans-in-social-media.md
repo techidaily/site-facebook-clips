@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unmasking Phony Fans in Social Media"
-date: 2024-05-20T17:33:51.227Z
-updated: 2024-05-21T17:33:51.227Z
+date: 2024-07-03T22:41:52.120Z
+updated: 2024-07-04T22:41:52.120Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Unmasking Phony Fans in Social Media"
 excerpt: "This Article Describes [Updated] Unmasking Phony Fans in Social Media"
 keywords: "Phony Fan Detection,Social Media Fraud,False Engagement Spotting,Authentic Fan Recognition,Deceptive Online Support,Genuine User Identification,Uncovered Social Illusions"
-thumbnail: https://www.lifewire.com/thmb/sG54Bv1qiSAYEfTgb-qRImj7dlo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-524282176-5bf20266c9e77c0051af5697.jpg
+thumbnail: https://thmb.techidaily.com/aa427c93a364e264a275d02d7b783f7e962d85c1fac24bb52cc0d4742cbe1750.jpg
 ---
 
 ## Unmasking Phony Fans in Social Media
@@ -34,7 +34,7 @@ If you want to edit FB video, [Filmora Business](https://tools.techidaily.com/wo
 
 ## Part 1: What are Fake Facebook followers?
 
-Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
+Countries such as Indonesia, Nigeria and Bangladesh are [flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
 
 No doubt, the Facebook page gains more likes through them, but not effective in the long run. These fake followers have fake accounts intended for selling their like to others accounts. 1000s and 10000s accounts are purchased by brands over social media. Social media platforms such as Instagram pick them up and deletes every now and then.
 
@@ -99,7 +99,7 @@ If you want to edit FB video, [Filmora Business](https://tools.techidaily.com/wo
 
 ## Part 1: What are Fake Facebook followers?
 
-Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
+Countries such as Indonesia, Nigeria and Bangladesh are [flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
 
 No doubt, the Facebook page gains more likes through them, but not effective in the long run. These fake followers have fake accounts intended for selling their like to others accounts. 1000s and 10000s accounts are purchased by brands over social media. Social media platforms such as Instagram pick them up and deletes every now and then.
 
@@ -164,7 +164,7 @@ If you want to edit FB video, [Filmora Business](https://tools.techidaily.com/wo
 
 ## Part 1: What are Fake Facebook followers?
 
-Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
+Countries such as Indonesia, Nigeria and Bangladesh are [flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
 
 No doubt, the Facebook page gains more likes through them, but not effective in the long run. These fake followers have fake accounts intended for selling their like to others accounts. 1000s and 10000s accounts are purchased by brands over social media. Social media platforms such as Instagram pick them up and deletes every now and then.
 
@@ -229,7 +229,7 @@ If you want to edit FB video, [Filmora Business](https://tools.techidaily.com/wo
 
 ## Part 1: What are Fake Facebook followers?
 
-Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
+Countries such as Indonesia, Nigeria and Bangladesh are [flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
 
 No doubt, the Facebook page gains more likes through them, but not effective in the long run. These fake followers have fake accounts intended for selling their like to others accounts. 1000s and 10000s accounts are purchased by brands over social media. Social media platforms such as Instagram pick them up and deletes every now and then.
 

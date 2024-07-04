@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  What's Shaking? The Breaking Down of Top 8 Social Videos\""
-date: 2024-05-20T17:32:02.069Z
-updated: 2024-05-21T17:32:02.069Z
+date: 2024-07-03T22:42:00.387Z
+updated: 2024-07-04T22:42:00.387Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: What's Shaking? The Breaking Down of Top 8 Social Videos\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: What's Shaking? The Breaking Down of Top 8 Social Videos\""
 keywords: "Social Video Trends,Top Video Insights,Popular Video Content,Viral Video Analysis,Social Media Breakdown,Leading Video Statistics,Massive Video Views"
-thumbnail: https://www.lifewire.com/thmb/sRg_08XfVq4XQxaZ8LbMjkBmMPo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-534572567-56facec43df78c784197b92d.jpg
+thumbnail: https://thmb.techidaily.com/271cc892260da7f0b1d8f207b3fb271cd7c70ce8ff0fa954ebc9cead95a6f721.jpg
 ---
 
 ## What's Shaking? The Breaking Down of Top 8 Social Videos
