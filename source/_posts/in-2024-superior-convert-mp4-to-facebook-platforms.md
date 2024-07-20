@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Superior Convert  MP4 to Facebook Platforms\""
-date: 2024-05-20T17:26:56.992Z
-updated: 2024-05-21T17:26:56.992Z
+date: 2024-07-19T02:55:46.514Z
+updated: 2024-07-20T02:55:46.514Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Superior Convert: MP4 to Facebook Platforms\""
 excerpt: "\"This Article Describes In 2024, Superior Convert: MP4 to Facebook Platforms\""
 keywords: "\"MP4 Conversion Guide,Video Format MP4,MP4 to FB Streaming,MP4 Adjustment for FB,Convert MP4 to Facebook,MP4 Platform Compatibility,Cross-Platform MP4 Use\""
-thumbnail: https://www.lifewire.com/thmb/-r2FQ2PQFLG4mDqc5GgYlp6WWjc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ScreenShot2022-01-14at12.36.22PM-8a595c9af6dc49f09abafcea8ab8e98c.png
+thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18ab57de64728f0cbbe83b061.png
 ---
 
 ## Superior Convert: MP4 to Facebook Platforms
@@ -27,10 +27,272 @@ Part 1: [Top 3 MP4 to Facebook Converters](#step1)
 
 Part 2: [Bonus Tip! Video File Formats Applicable on Facebook](#step2)
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1: Top 3 MP4 to Facebook Converters
 
 The conversion of MP4 video formats to Facebook compatible formats is essential, especially for creative professionals in the field. Most brands use Facebook Shops to take their company to the next level, which is why the right format is important to streamline the process. Let us look at **MP4 to Facebook converters online** with their procedure. Time to start!
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) \- Convert MP4 to Facebook Cover Video
+
+Wondershare Filmora is the biggest name for video editing, audio editing, and converting one format to another. Most graphic designers, Facebook celebrities, content creators, YouTubers, vloggers, bloggers, and media professionals are looking for a tool that their editing itch and presents ways to **convert MP4 to Facebook cover video.**
+
+There is no better software in the world other than Filmora to change the MP4 format of the video into something acceptable by Facebook. The user is free to rotate, merge, split, crop, flip, and trim videos through limited steps. It means that apart from a well-crafted interface and well-designed icons, Filmora brings productivity to the workplace multifold.
+
+The videos can be enhanced by adding stunning effects, overlays, titles, transitions, elements, and text. You can also input audio into the video and make the output captivating for human eyes. Additionally, Filmora comes up with popular formats to convert the MP4 video. The Green Screen and Audio Mixer are some of the most used features in the creative film industry.
+
+One can also tune color, screen record, stabilize the video, play with the noise, and split-screen effortlessly. All advanced features can be accessed under one platform, making Filmora a good deal for professionals in the field. The video formats supported by this converter include MP4, AVI, H261, FLV, MKV, M4V, 3GP, MOV, MPEG, VOB, RMVB, TS, M2TS, WMV, ASF, and many more.
+
+The video output can be shared with different devices and online as well. If you need to know the complete procedure to convert **MP4 to Facebook cover video,** follow the guide below.
+
+**Step 1: Importing the Media**
+
+The users are directed to download Wondershare Filmora in the system to begin the process. After it is installed, launch it immediately. Head to the "File" in the top panel and click on "Import Media."
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![import media in filmora](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-1.jpg)
+
+**Step 2: Adding to the Timeline**
+
+Import the desired file that needs to be converted into Facebook and add it to the timeline. After that, you are free to play with the media as you want.
+
+![add video to timeline](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-2.jpg)
+
+**Step 3: Making Necessary Edits**
+
+You can make necessary edits to the file by inserting audio, titles, transitions, elements, and effects. Moreover, do not hesitate to change the speed of the video. Preview the video after you are done.
+
+![edit facebook video](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-3.jpg)
+
+**Step 4: Exporting the Video**
+
+Now, click on the "Export" video from the top panel. Pick the format which is Facebook compatible and press "Export." The process is completed.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
+![export video as facebook video](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-4.jpg)
+
+### [Web Service Online](https://webservice.online-convert.com/convert-for-facebook)\- Convert MP4 to Facebook Video Online
+
+Web Service Online, also known as the ultimate Online Convert tool, is an all-in-one converter that has revolutionized the film industry. The targeted file can be imported via Dropbox, Google Drive, and URL can also be used.
+
+One of the promising features of this online web service is the wide range of presets it offers. The users can navigate between different formats, quality, and speed so that Facebook has no choice but to accept the video. You can also cut the video and enable audio track as you deem necessary. In short, Online-Convert can be relied upon for great results.
+
+Let us look at the process to **convert MP4 to Facebook video online** through Online-Convert.
+
+**Step 1: Vising the Website**
+
+Visit Online-Convert from your favorite browser. As soon as the interface comes up, hit "Choose File." Browse the video that needs your attention.
+
+![browse video file](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-8.jpg)
+
+**Step 2: Video Loading**
+
+The video will be loaded on the interface with size. Alter the preset as you need and tap on "Start" to avoid further delay in the proceedings.
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![click on start button](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-9.jpg)
+
+**Step 3: Saving the Video**
+
+The video will be converted, and the tool will take you to a new window. From there, press "Download," and there you go.
+
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
+![export the converted video](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-10.jpg)
+
+## Part 2: Bonus Tip! Video File Formats Applicable on Facebook
+
+As mentioned above, Facebook operates on a list of standards which include specific dimensions, sizes, aspect ratios, and video length. If the user fails to follow these video specs, the video wouldn't upload and will create complications. There are different specs for story videos, 360 videos, news feed, and Carousel video ads.
+
+The standards have been set for a frictionless process. For instance, the dimension for Facebook stories has to be 500\*500 minimum, and its aspect ratio should be 1.91:1 – 9:16\. Similarly, the resolution should be 1080\*1920 px, with a maximum file size of 4GB, and video length should be within 1 to 15 seconds.
+
+There is a diverse range of video formats successfully applicable on Facebook. Most beginners and even advanced users don't know the formats. Henceforth, the sub-section has taken the opportunity to mention those formats other than MP4 and MOV.
+
+* MP4 (MPEG-4 video)
+* MPE (MPEG video)
+* MPEG (MPEG video)
+* MPEG4 (MPEG-4 video)
+* M2TS (M2TS video)
+* M4V (MPEG-4 video)
+* MKV (Matroska format)
+* MOD (MOD video)
+* MOV (QuickTime movie)
+* MPG (MPEG video)
+* MTS (AVCHD video)
+* DIVX (DIVX video)
+* OGV (Ogg video format)
+* QT (QuickTime movie)
+* TOD (TOD video)
+* TS (MPEG transport stream)
+* VOB (DVD video)
+* WMV (Windows Media Video)
+* DV (DV video)
+* F4V (Flash video)
+* FLV (Flash video)
+* GIF (graphics interchange format)
+* NSV (Nullsoft video)
+* OGM (Ogg media format)
+* 3G2 (mobile video)
+* 3GP (mobile video)
+* 3GPP (mobile video)
+* ASF (Windows Media video)
+* AVI (AVI video)
+* DAT (MPEG video)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Closing Words
+
+Facebook influencers and business owners need to work hard for brand awareness and visibility, done with different media types. The product descriptions are presented in videos; however, to upload them on Facebook, it is necessary to consider the format.
+
+Hence, the article focused on the best three **MP4 to FB** converters to **convert MP4 to Facebook cover video.** The step-by-step guide of using the converters was also highlighted in detail. The last section covered some formats that Facebook accepts. The users are recommended to know them to continue creating impeccable content and engaging the audience.
+
+Part 2: [Bonus Tip! Video File Formats Applicable on Facebook](#step2)
+
+## Part 1: Top 3 MP4 to Facebook Converters
+
+The conversion of MP4 video formats to Facebook compatible formats is essential, especially for creative professionals in the field. Most brands use Facebook Shops to take their company to the next level, which is why the right format is important to streamline the process. Let us look at **MP4 to Facebook converters online** with their procedure. Time to start!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) \- Convert MP4 to Facebook Cover Video
+
+Wondershare Filmora is the biggest name for video editing, audio editing, and converting one format to another. Most graphic designers, Facebook celebrities, content creators, YouTubers, vloggers, bloggers, and media professionals are looking for a tool that their editing itch and presents ways to **convert MP4 to Facebook cover video.**
+
+There is no better software in the world other than Filmora to change the MP4 format of the video into something acceptable by Facebook. The user is free to rotate, merge, split, crop, flip, and trim videos through limited steps. It means that apart from a well-crafted interface and well-designed icons, Filmora brings productivity to the workplace multifold.
+
+The videos can be enhanced by adding stunning effects, overlays, titles, transitions, elements, and text. You can also input audio into the video and make the output captivating for human eyes. Additionally, Filmora comes up with popular formats to convert the MP4 video. The Green Screen and Audio Mixer are some of the most used features in the creative film industry.
+
+One can also tune color, screen record, stabilize the video, play with the noise, and split-screen effortlessly. All advanced features can be accessed under one platform, making Filmora a good deal for professionals in the field. The video formats supported by this converter include MP4, AVI, H261, FLV, MKV, M4V, 3GP, MOV, MPEG, VOB, RMVB, TS, M2TS, WMV, ASF, and many more.
+
+The video output can be shared with different devices and online as well. If you need to know the complete procedure to convert **MP4 to Facebook cover video,** follow the guide below.
+
+**Step 1: Importing the Media**
+
+The users are directed to download Wondershare Filmora in the system to begin the process. After it is installed, launch it immediately. Head to the "File" in the top panel and click on "Import Media."
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
+![import media in filmora](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-1.jpg)
+
+**Step 2: Adding to the Timeline**
+
+Import the desired file that needs to be converted into Facebook and add it to the timeline. After that, you are free to play with the media as you want.
+
+![add video to timeline](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-2.jpg)
+
+**Step 3: Making Necessary Edits**
+
+You can make necessary edits to the file by inserting audio, titles, transitions, elements, and effects. Moreover, do not hesitate to change the speed of the video. Preview the video after you are done.
+
+![edit facebook video](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-3.jpg)
+
+**Step 4: Exporting the Video**
+
+Now, click on the "Export" video from the top panel. Pick the format which is Facebook compatible and press "Export." The process is completed.
+
+![export video as facebook video](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### [Web Service Online](https://webservice.online-convert.com/convert-for-facebook)\- Convert MP4 to Facebook Video Online
+
+Web Service Online, also known as the ultimate Online Convert tool, is an all-in-one converter that has revolutionized the film industry. The targeted file can be imported via Dropbox, Google Drive, and URL can also be used.
+
+One of the promising features of this online web service is the wide range of presets it offers. The users can navigate between different formats, quality, and speed so that Facebook has no choice but to accept the video. You can also cut the video and enable audio track as you deem necessary. In short, Online-Convert can be relied upon for great results.
+
+Let us look at the process to **convert MP4 to Facebook video online** through Online-Convert.
+
+**Step 1: Vising the Website**
+
+Visit Online-Convert from your favorite browser. As soon as the interface comes up, hit "Choose File." Browse the video that needs your attention.
+
+![browse video file](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-8.jpg)
+
+**Step 2: Video Loading**
+
+The video will be loaded on the interface with size. Alter the preset as you need and tap on "Start" to avoid further delay in the proceedings.
+
+![click on start button](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-9.jpg)
+
+**Step 3: Saving the Video**
+
+The video will be converted, and the tool will take you to a new window. From there, press "Download," and there you go.
+
+![export the converted video](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-10.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: Bonus Tip! Video File Formats Applicable on Facebook
+
+As mentioned above, Facebook operates on a list of standards which include specific dimensions, sizes, aspect ratios, and video length. If the user fails to follow these video specs, the video wouldn't upload and will create complications. There are different specs for story videos, 360 videos, news feed, and Carousel video ads.
+
+The standards have been set for a frictionless process. For instance, the dimension for Facebook stories has to be 500\*500 minimum, and its aspect ratio should be 1.91:1 – 9:16\. Similarly, the resolution should be 1080\*1920 px, with a maximum file size of 4GB, and video length should be within 1 to 15 seconds.
+
+There is a diverse range of video formats successfully applicable on Facebook. Most beginners and even advanced users don't know the formats. Henceforth, the sub-section has taken the opportunity to mention those formats other than MP4 and MOV.
+
+* MP4 (MPEG-4 video)
+* MPE (MPEG video)
+* MPEG (MPEG video)
+* MPEG4 (MPEG-4 video)
+* M2TS (M2TS video)
+* M4V (MPEG-4 video)
+* MKV (Matroska format)
+* MOD (MOD video)
+* MOV (QuickTime movie)
+* MPG (MPEG video)
+* MTS (AVCHD video)
+* DIVX (DIVX video)
+* OGV (Ogg video format)
+* QT (QuickTime movie)
+* TOD (TOD video)
+* TS (MPEG transport stream)
+* VOB (DVD video)
+* WMV (Windows Media Video)
+* DV (DV video)
+* F4V (Flash video)
+* FLV (Flash video)
+* GIF (graphics interchange format)
+* NSV (Nullsoft video)
+* OGM (Ogg media format)
+* 3G2 (mobile video)
+* 3GP (mobile video)
+* 3GPP (mobile video)
+* ASF (Windows Media video)
+* AVI (AVI video)
+* DAT (MPEG video)
+
+## Closing Words
+
+Facebook influencers and business owners need to work hard for brand awareness and visibility, done with different media types. The product descriptions are presented in videos; however, to upload them on Facebook, it is necessary to consider the format.
+
+Hence, the article focused on the best three **MP4 to FB** converters to **convert MP4 to Facebook cover video.** The step-by-step guide of using the converters was also highlighted in detail. The last section covered some formats that Facebook accepts. The users are recommended to know them to continue creating impeccable content and engaging the audience.
+
+Part 2: [Bonus Tip! Video File Formats Applicable on Facebook](#step2)
+
+## Part 1: Top 3 MP4 to Facebook Converters
+
+The conversion of MP4 video formats to Facebook compatible formats is essential, especially for creative professionals in the field. Most brands use Facebook Shops to take their company to the next level, which is why the right format is important to streamline the process. Let us look at **MP4 to Facebook converters online** with their procedure. Time to start!
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) \- Convert MP4 to Facebook Cover Video
 
 Wondershare Filmora is the biggest name for video editing, audio editing, and converting one format to another. Most graphic designers, Facebook celebrities, content creators, YouTubers, vloggers, bloggers, and media professionals are looking for a tool that their editing itch and presents ways to **convert MP4 to Facebook cover video.**
@@ -65,8 +327,14 @@ You can make necessary edits to the file by inserting audio, titles, transitions
 
 Now, click on the "Export" video from the top panel. Pick the format which is Facebook compatible and press "Export." The process is completed.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![export video as facebook video](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### [Web Service Online](https://webservice.online-convert.com/convert-for-facebook)\- Convert MP4 to Facebook Video Online
 
 Web Service Online, also known as the ultimate Online Convert tool, is an all-in-one converter that has revolutionized the film industry. The targeted file can be imported via Dropbox, Google Drive, and URL can also be used.
@@ -79,18 +347,27 @@ Let us look at the process to **convert MP4 to Facebook video online** through O
 
 Visit Online-Convert from your favorite browser. As soon as the interface comes up, hit "Choose File." Browse the video that needs your attention.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![browse video file](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-8.jpg)
 
 **Step 2: Video Loading**
 
 The video will be loaded on the interface with size. Alter the preset as you need and tap on "Start" to avoid further delay in the proceedings.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![click on start button](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-9.jpg)
 
 **Step 3: Saving the Video**
 
 The video will be converted, and the tool will take you to a new window. From there, press "Download," and there you go.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![export the converted video](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-10.jpg)
 
 ## Part 2: Bonus Tip! Video File Formats Applicable on Facebook
@@ -172,6 +449,9 @@ Import the desired file that needs to be converted into Facebook and add it to t
 
 You can make necessary edits to the file by inserting audio, titles, transitions, elements, and effects. Moreover, do not hesitate to change the speed of the video. Preview the video after you are done.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![edit facebook video](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-3.jpg)
 
 **Step 4: Exporting the Video**
@@ -198,238 +478,18 @@ Visit Online-Convert from your favorite browser. As soon as the interface comes 
 
 The video will be loaded on the interface with size. Alter the preset as you need and tap on "Start" to avoid further delay in the proceedings.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![click on start button](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-9.jpg)
 
 **Step 3: Saving the Video**
 
 The video will be converted, and the tool will take you to a new window. From there, press "Download," and there you go.
 
-![export the converted video](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-10.jpg)
-
-## Part 2: Bonus Tip! Video File Formats Applicable on Facebook
-
-As mentioned above, Facebook operates on a list of standards which include specific dimensions, sizes, aspect ratios, and video length. If the user fails to follow these video specs, the video wouldn't upload and will create complications. There are different specs for story videos, 360 videos, news feed, and Carousel video ads.
-
-The standards have been set for a frictionless process. For instance, the dimension for Facebook stories has to be 500\*500 minimum, and its aspect ratio should be 1.91:1 – 9:16\. Similarly, the resolution should be 1080\*1920 px, with a maximum file size of 4GB, and video length should be within 1 to 15 seconds.
-
-There is a diverse range of video formats successfully applicable on Facebook. Most beginners and even advanced users don't know the formats. Henceforth, the sub-section has taken the opportunity to mention those formats other than MP4 and MOV.
-
-* MP4 (MPEG-4 video)
-* MPE (MPEG video)
-* MPEG (MPEG video)
-* MPEG4 (MPEG-4 video)
-* M2TS (M2TS video)
-* M4V (MPEG-4 video)
-* MKV (Matroska format)
-* MOD (MOD video)
-* MOV (QuickTime movie)
-* MPG (MPEG video)
-* MTS (AVCHD video)
-* DIVX (DIVX video)
-* OGV (Ogg video format)
-* QT (QuickTime movie)
-* TOD (TOD video)
-* TS (MPEG transport stream)
-* VOB (DVD video)
-* WMV (Windows Media Video)
-* DV (DV video)
-* F4V (Flash video)
-* FLV (Flash video)
-* GIF (graphics interchange format)
-* NSV (Nullsoft video)
-* OGM (Ogg media format)
-* 3G2 (mobile video)
-* 3GP (mobile video)
-* 3GPP (mobile video)
-* ASF (Windows Media video)
-* AVI (AVI video)
-* DAT (MPEG video)
-
-## Closing Words
-
-Facebook influencers and business owners need to work hard for brand awareness and visibility, done with different media types. The product descriptions are presented in videos; however, to upload them on Facebook, it is necessary to consider the format.
-
-Hence, the article focused on the best three **MP4 to FB** converters to **convert MP4 to Facebook cover video.** The step-by-step guide of using the converters was also highlighted in detail. The last section covered some formats that Facebook accepts. The users are recommended to know them to continue creating impeccable content and engaging the audience.
-
-Part 2: [Bonus Tip! Video File Formats Applicable on Facebook](#step2)
-
-## Part 1: Top 3 MP4 to Facebook Converters
-
-The conversion of MP4 video formats to Facebook compatible formats is essential, especially for creative professionals in the field. Most brands use Facebook Shops to take their company to the next level, which is why the right format is important to streamline the process. Let us look at **MP4 to Facebook converters online** with their procedure. Time to start!
-
-### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) \- Convert MP4 to Facebook Cover Video
-
-Wondershare Filmora is the biggest name for video editing, audio editing, and converting one format to another. Most graphic designers, Facebook celebrities, content creators, YouTubers, vloggers, bloggers, and media professionals are looking for a tool that their editing itch and presents ways to **convert MP4 to Facebook cover video.**
-
-There is no better software in the world other than Filmora to change the MP4 format of the video into something acceptable by Facebook. The user is free to rotate, merge, split, crop, flip, and trim videos through limited steps. It means that apart from a well-crafted interface and well-designed icons, Filmora brings productivity to the workplace multifold.
-
-The videos can be enhanced by adding stunning effects, overlays, titles, transitions, elements, and text. You can also input audio into the video and make the output captivating for human eyes. Additionally, Filmora comes up with popular formats to convert the MP4 video. The Green Screen and Audio Mixer are some of the most used features in the creative film industry.
-
-One can also tune color, screen record, stabilize the video, play with the noise, and split-screen effortlessly. All advanced features can be accessed under one platform, making Filmora a good deal for professionals in the field. The video formats supported by this converter include MP4, AVI, H261, FLV, MKV, M4V, 3GP, MOV, MPEG, VOB, RMVB, TS, M2TS, WMV, ASF, and many more.
-
-The video output can be shared with different devices and online as well. If you need to know the complete procedure to convert **MP4 to Facebook cover video,** follow the guide below.
-
-**Step 1: Importing the Media**
-
-The users are directed to download Wondershare Filmora in the system to begin the process. After it is installed, launch it immediately. Head to the "File" in the top panel and click on "Import Media."
-
-![import media in filmora](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-1.jpg)
-
-**Step 2: Adding to the Timeline**
-
-Import the desired file that needs to be converted into Facebook and add it to the timeline. After that, you are free to play with the media as you want.
-
-![add video to timeline](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-2.jpg)
-
-**Step 3: Making Necessary Edits**
-
-You can make necessary edits to the file by inserting audio, titles, transitions, elements, and effects. Moreover, do not hesitate to change the speed of the video. Preview the video after you are done.
-
-![edit facebook video](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-3.jpg)
-
-**Step 4: Exporting the Video**
-
-Now, click on the "Export" video from the top panel. Pick the format which is Facebook compatible and press "Export." The process is completed.
-
-![export video as facebook video](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-4.jpg)
-
-### [Web Service Online](https://webservice.online-convert.com/convert-for-facebook)\- Convert MP4 to Facebook Video Online
-
-Web Service Online, also known as the ultimate Online Convert tool, is an all-in-one converter that has revolutionized the film industry. The targeted file can be imported via Dropbox, Google Drive, and URL can also be used.
-
-One of the promising features of this online web service is the wide range of presets it offers. The users can navigate between different formats, quality, and speed so that Facebook has no choice but to accept the video. You can also cut the video and enable audio track as you deem necessary. In short, Online-Convert can be relied upon for great results.
-
-Let us look at the process to **convert MP4 to Facebook video online** through Online-Convert.
-
-**Step 1: Vising the Website**
-
-Visit Online-Convert from your favorite browser. As soon as the interface comes up, hit "Choose File." Browse the video that needs your attention.
-
-![browse video file](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-8.jpg)
-
-**Step 2: Video Loading**
-
-The video will be loaded on the interface with size. Alter the preset as you need and tap on "Start" to avoid further delay in the proceedings.
-
-![click on start button](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-9.jpg)
-
-**Step 3: Saving the Video**
-
-The video will be converted, and the tool will take you to a new window. From there, press "Download," and there you go.
-
-![export the converted video](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-10.jpg)
-
-## Part 2: Bonus Tip! Video File Formats Applicable on Facebook
-
-As mentioned above, Facebook operates on a list of standards which include specific dimensions, sizes, aspect ratios, and video length. If the user fails to follow these video specs, the video wouldn't upload and will create complications. There are different specs for story videos, 360 videos, news feed, and Carousel video ads.
-
-The standards have been set for a frictionless process. For instance, the dimension for Facebook stories has to be 500\*500 minimum, and its aspect ratio should be 1.91:1 – 9:16\. Similarly, the resolution should be 1080\*1920 px, with a maximum file size of 4GB, and video length should be within 1 to 15 seconds.
-
-There is a diverse range of video formats successfully applicable on Facebook. Most beginners and even advanced users don't know the formats. Henceforth, the sub-section has taken the opportunity to mention those formats other than MP4 and MOV.
-
-* MP4 (MPEG-4 video)
-* MPE (MPEG video)
-* MPEG (MPEG video)
-* MPEG4 (MPEG-4 video)
-* M2TS (M2TS video)
-* M4V (MPEG-4 video)
-* MKV (Matroska format)
-* MOD (MOD video)
-* MOV (QuickTime movie)
-* MPG (MPEG video)
-* MTS (AVCHD video)
-* DIVX (DIVX video)
-* OGV (Ogg video format)
-* QT (QuickTime movie)
-* TOD (TOD video)
-* TS (MPEG transport stream)
-* VOB (DVD video)
-* WMV (Windows Media Video)
-* DV (DV video)
-* F4V (Flash video)
-* FLV (Flash video)
-* GIF (graphics interchange format)
-* NSV (Nullsoft video)
-* OGM (Ogg media format)
-* 3G2 (mobile video)
-* 3GP (mobile video)
-* 3GPP (mobile video)
-* ASF (Windows Media video)
-* AVI (AVI video)
-* DAT (MPEG video)
-
-## Closing Words
-
-Facebook influencers and business owners need to work hard for brand awareness and visibility, done with different media types. The product descriptions are presented in videos; however, to upload them on Facebook, it is necessary to consider the format.
-
-Hence, the article focused on the best three **MP4 to FB** converters to **convert MP4 to Facebook cover video.** The step-by-step guide of using the converters was also highlighted in detail. The last section covered some formats that Facebook accepts. The users are recommended to know them to continue creating impeccable content and engaging the audience.
-
-Part 2: [Bonus Tip! Video File Formats Applicable on Facebook](#step2)
-
-## Part 1: Top 3 MP4 to Facebook Converters
-
-The conversion of MP4 video formats to Facebook compatible formats is essential, especially for creative professionals in the field. Most brands use Facebook Shops to take their company to the next level, which is why the right format is important to streamline the process. Let us look at **MP4 to Facebook converters online** with their procedure. Time to start!
-
-### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) \- Convert MP4 to Facebook Cover Video
-
-Wondershare Filmora is the biggest name for video editing, audio editing, and converting one format to another. Most graphic designers, Facebook celebrities, content creators, YouTubers, vloggers, bloggers, and media professionals are looking for a tool that their editing itch and presents ways to **convert MP4 to Facebook cover video.**
-
-There is no better software in the world other than Filmora to change the MP4 format of the video into something acceptable by Facebook. The user is free to rotate, merge, split, crop, flip, and trim videos through limited steps. It means that apart from a well-crafted interface and well-designed icons, Filmora brings productivity to the workplace multifold.
-
-The videos can be enhanced by adding stunning effects, overlays, titles, transitions, elements, and text. You can also input audio into the video and make the output captivating for human eyes. Additionally, Filmora comes up with popular formats to convert the MP4 video. The Green Screen and Audio Mixer are some of the most used features in the creative film industry.
-
-One can also tune color, screen record, stabilize the video, play with the noise, and split-screen effortlessly. All advanced features can be accessed under one platform, making Filmora a good deal for professionals in the field. The video formats supported by this converter include MP4, AVI, H261, FLV, MKV, M4V, 3GP, MOV, MPEG, VOB, RMVB, TS, M2TS, WMV, ASF, and many more.
-
-The video output can be shared with different devices and online as well. If you need to know the complete procedure to convert **MP4 to Facebook cover video,** follow the guide below.
-
-**Step 1: Importing the Media**
-
-The users are directed to download Wondershare Filmora in the system to begin the process. After it is installed, launch it immediately. Head to the "File" in the top panel and click on "Import Media."
-
-![import media in filmora](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-1.jpg)
-
-**Step 2: Adding to the Timeline**
-
-Import the desired file that needs to be converted into Facebook and add it to the timeline. After that, you are free to play with the media as you want.
-
-![add video to timeline](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-2.jpg)
-
-**Step 3: Making Necessary Edits**
-
-You can make necessary edits to the file by inserting audio, titles, transitions, elements, and effects. Moreover, do not hesitate to change the speed of the video. Preview the video after you are done.
-
-![edit facebook video](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-3.jpg)
-
-**Step 4: Exporting the Video**
-
-Now, click on the "Export" video from the top panel. Pick the format which is Facebook compatible and press "Export." The process is completed.
-
-![export video as facebook video](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-4.jpg)
-
-### [Web Service Online](https://webservice.online-convert.com/convert-for-facebook)\- Convert MP4 to Facebook Video Online
-
-Web Service Online, also known as the ultimate Online Convert tool, is an all-in-one converter that has revolutionized the film industry. The targeted file can be imported via Dropbox, Google Drive, and URL can also be used.
-
-One of the promising features of this online web service is the wide range of presets it offers. The users can navigate between different formats, quality, and speed so that Facebook has no choice but to accept the video. You can also cut the video and enable audio track as you deem necessary. In short, Online-Convert can be relied upon for great results.
-
-Let us look at the process to **convert MP4 to Facebook video online** through Online-Convert.
-
-**Step 1: Vising the Website**
-
-Visit Online-Convert from your favorite browser. As soon as the interface comes up, hit "Choose File." Browse the video that needs your attention.
-
-![browse video file](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-8.jpg)
-
-**Step 2: Video Loading**
-
-The video will be loaded on the interface with size. Alter the preset as you need and tap on "Start" to avoid further delay in the proceedings.
-
-![click on start button](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-9.jpg)
-
-**Step 3: Saving the Video**
-
-The video will be converted, and the tool will take you to a new window. From there, press "Download," and there you go.
-
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![export the converted video](https://images.wondershare.com/filmora/article-images/2021/mp4-to-facebook-converter-10.jpg)
 
 ## Part 2: Bonus Tip! Video File Formats Applicable on Facebook
@@ -500,3 +560,45 @@ Hence, the article focused on the best three **MP4 to FB** converters to **conve
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-a-comprehensive-guide-to-climbing-the-facebook-rankings-ladder/"><u>[New] A Comprehensive Guide to Climbing the Facebook Rankings Ladder</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-achieve-peak-performance-with-these-8-scheduler-apps/"><u>[New] Achieve Peak Performance with These 8 Scheduler Apps</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-best-in-class-facebook-media-firefox-edition/"><u>[New] Best-in-Class Facebook Media  FireFox Edition</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-dual-domain-delight-posting-videos-across-social-platforms-for-2024/"><u>[New] Dual-Domain Delight  Posting Videos Across Social Platforms for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-expert-tips-on-inserting-captions-into-youtube-videos/"><u>[New] Expert Tips on Inserting Captions Into YouTube Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-innovating-tiktok-posts-for-twitters-platform-for-2024/"><u>[New] Innovating TikTok Posts for Twitter's Platform for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-a-step-by-step-guide-to-the-top-20-strategies-for-successful-fb-videos/"><u>[Updated] A Step-by-Step Guide to the Top 20 Strategies for Successful FB Videos</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-boosting-discords-potential-with-the-leading-10-plugins-for-2024/"><u>[Updated] Boosting Discord's Potential with the Leading 10 Plugins for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-secure-increase-in-your-tiktok-clout/"><u>[Updated] In 2024, Secure Increase in Your TikTok Clout</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-avoid-livestream-frustration-addressing-facebook-outages/"><u>2024 Approved  Avoid Livestream Frustration  Addressing Facebook Outages</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/banish-buffering-repair-facebook-videos-on-phonestablets-for-2024/"><u>Banish Buffering – Repair Facebook Videos on Phones/Tablets for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/best-8-concealed-video-downloading-software-of-2023-for-2024/"><u>Best 8 Concealed Video Downloading Software of 2023 for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/clearing-the-fuzziness-tips-to-improve-chrome-videography/"><u>Clearing the Fuzziness  Tips to Improve Chrome Videography</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/cross-device-the-ultimate-tutorial-for-scraping-gifs-from-fb/"><u>Cross-Device  The Ultimate Tutorial for Scraping GIFs From FB</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/decoding-instagram-selfies-the-validation-handbook-for-2024/"><u>Decoding Instagram Selfies  The Validation Handbook for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/demystifying-how-to-access-youtube-via-facebook/"><u>Demystifying How to Access YouTube via Facebook</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Vivo T2 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/downloading-facebook-gifs-pc-android-and-ios-guide/"><u>Downloading Facebook GIFs  PC, Android & iOS Guide</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/essential-tips-for-enhancing-voiceovers-in-presentations-for-2024/"><u>Essential Tips for Enhancing Voiceovers in Presentations for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-delete-video-posts-android-and-windows-devices/"><u>How to Delete Video Posts  Android & Windows Devices</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-enhance-tv-audiences-with-fb-live-content/"><u>How to Enhance TV Audiences with FB Live Content</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-it-oppo-a58-4g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Oppo A58 4G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-2023s-leading-choices-for-downloading-facebook-lite-videos/"><u>In 2024, 2023'S Leading Choices for Downloading Facebook Lite Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-achieve-excellence-in-fb-video-marketing-essential-free-kit-included/"><u>In 2024, Achieve Excellence in FB Video Marketing - Essential FREE Kit Included</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/leveraging-tweet-sharing-for-facebook-audience/"><u>Leveraging Tweet Sharing for Facebook Audience</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/masterful-mp4-transformation-tools-facebook-edition/"><u>Masterful MP4 Transformation Tools (Facebook Edition)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/rhythms-unlocked-fb-downloads-galore/"><u>Rhythms Unlocked  FB Downloads Galore</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-recent-calls-back-from-pova-5-pro-by-fonelab-android-recover-call-logs/"><u>Simple ways to get recent calls back from Pova 5 Pro</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/swiftly-stow-facebook-broadcasts-for-smartphonedesktop-users/"><u>Swiftly Stow Facebook Broadcasts for Smartphone/Desktop Users</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-ultimate-pathway-for-storytellers-mastery-over-facebook-live-feature/"><u>The Ultimate Pathway for Storytellers  Mastery Over Facebook Live Feature</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unlock-the-potential-of-live-streaming-facebook-via-obs-devices/"><u>Unlock the Potential of Live Streaming Facebook via OBS Devices</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unlock-the-power-of-engagement-to-monetize-facebook/"><u>Unlock the Power of Engagement to Monetize Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unlocking-viral-potential-in-digital-content-creation/"><u>Unlocking Viral Potential in Digital Content Creation</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unlocking-viral-potential-through-strategic-fb-videos/"><u>Unlocking Viral Potential Through Strategic FB Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unplugging-pauses-from-social-streams-a-2023-approach-to-fixing-livestream-issues/"><u>Unplugging Pauses From Social Streams  A 2023 Approach to Fixing Livestream Issues</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unveiling-techniques-to-harvest-gif-images-directly-from-fb/"><u>Unveiling Techniques to Harvest GIF Images Directly From FB</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-access-all-matches-free-world-cup-live-streaming-options/"><u>Updated Access All Matches Free World Cup Live Streaming Options</u></a></li>
+</ul></div>

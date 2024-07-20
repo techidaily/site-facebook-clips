@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Maximize Online Sales  The Most Reliable 15 Facebook Analysis Tools\""
-date: 2024-06-09T04:34:15.443Z
-updated: 2024-06-10T04:34:15.443Z
+date: 2024-07-19T02:36:36.917Z
+updated: 2024-07-20T02:36:36.917Z
 tags:
   - ai video
   - ai facebook
@@ -19,6 +19,9 @@ thumbnail: https://thmb.techidaily.com/f35affd0446f81f879a70f50fd131f599003c290d
 
 # 15 Best Facebook Analyzers to Increase Sales
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -33,22 +36,202 @@ Luckily, there is no lack of Facebook analytics tools. The Facebook analyzers he
 
 ## Free Facebook Analyzers
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1. [Facebook Insights](https://www.facebook.com/business/a/page/page-insights)
 
 Starting from the Facebook Home, the Insights platform offers free analytics to Facebook marketers. Anyone who handles your company page with admin details can access this Facebook analyzer if your page has over 30 followers and fans. You can understand your followers better with the help of Facebook Insights as it offers a thorough metrics about the posts and its engagements among the users. It also breaks down the figures of traffic, location, gender, age group following the posts made by you to help in understanding your audiences better. This Facebook analytics tool lets you understand the type of content your audiences prefer, organic and paid likes, reach of your post and much more.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook insights](https://images.wondershare.com/filmora/article-images/facebook-insights.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2. [SharedCount](https://www.sharedcount.com/)
 
 SharedCount is a free Facebook analytics tool that helps to track the number of social shares, likes, and comments on your posted content. You just need to type out or paste your website URL on the available search bar and get the metrics of your page. It is a free Facebook analyzer to keep a track on the reach and engagement of your page.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![SharedCount](https://images.wondershare.com/filmora/article-images/SharedCount.JPG)
 
 ### 3. [Sociograph.io](https://sociograph.io/landing)
 
 The more you know your audience, the easier it becomes to boost your revenue. Sociograph.io is one of the best Facebook analytics tools that help to know your audience and fans better. From an average number of comments, likes, and shares on your posts to the total number of likers, commenters, and authors, you get a report on all. This Facebook analyzer also enables you to track the top post within a particular timeframe. It is a free tool.
 
+![Sociograph](https://images.wondershare.com/filmora/article-images/Sociograph.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
+### 4. Komfo
+
+Komfo is a free basic Facebook analytics tool. For advanced tools, you need to request a price. The basic features include segmenting country or language, summaries of posts, demographics, sentiments, and tracking the efficacy of the organic social mentions and advertising campaigns on Facebook.
+
+![Komfo](https://images.wondershare.com/filmora/article-images/Komfo.JPG)
+
+### 5. [Cyfe](https://www.cyfe.com/)
+
+Cyfe is also a free Facebook analyzer. You get a customized analytics dashboard. Not only web and finance metrics, but it also enables you to remove and add 50 and more Facebook widgets. The demographic data and page metrics can be tracked through these widgets. Check your audience’s engagement on your posts easily with Cyfe, the Facebook analytics tool.
+
+![Cyfe](https://images.wondershare.com/filmora/article-images/Cyfe.JPG)
+
+## Paid Facebook Analyzer
+
+### 6. [Keyhole](https://keyhole.co/)
+
+Keyhole is one of the best Facebook analytics tools that allow you to optimize and strategize data for the public pages on Facebook. You just need to input your page’s name and you can easily get the metrics for the engagement for each post. From the best time of engagement to type or length on content, you get an idea of all. Understanding the strategies of your competitors becomes easier when you keep a track of the metrics of your page. The price of this Facebook analyzer is $89 USD/month and varies with the advanced tools.
+
+![keyhole](https://images.wondershare.com/filmora/article-images/keyhole.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 7. [Brand24](https://brand24.com/)
+
+Brand24 is a Facebook analyzer that lets you track the metrics for any sort of content on your Facebook page. It enables you to learn the number of times your company name was mentioned in the conversations. It helps you to measure how the users are influencing with the help of charts, illustrations, and more. It is a paid Facebook analytics tools that are priced between $49 and $349 USD per month.
+
+![Brand24](https://images.wondershare.com/filmora/article-images/Brand24.JPG)
+
+### 8. [Simply Measured](https://sproutsocial.com/)
+
+Simply Measured Facebook analyzer gives you 4 different reports on the Facebook content analysis for free. Firstly, the Facebook Insights data is given a graphical representation including reach, engagement, likes, comments, shares, traffic, fans, demographics, and activities, about the post. You also receive your competitors’ analysis report showing 10 fan pages. It also shows you an overall relative metrics for various engagements and responses from the fans. This Facebook analytics tool also gives you a detailed report per week or per day, top users report and more. It also gives you the breakdown for your content analysis. Although Simply Measure advanced suite is priced at $500 USD per month, the first four basic reports are free.
+
+![Simply Measured](https://images.wondershare.com/filmora/article-images/simply-measured.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 9. [Agorapulse](https://www.agorapulse.com/)
+
+Agorapulse offers 2 free basic Facebook reports that give you the metrics for how your content is performing and also lets you run sweepstakes, quizzes, and competitions on your Facebook timeline. The advanced main suite of Agorapulse is priced at $29 USD per month. This Facebook analytics tool gives you a breakdown of viral, organic, and paid reach. The reports can be tailored as per your requirement and you can get a 20 slide power point presentation.
+
+![Agorapulse](https://images.wondershare.com/filmora/article-images/AgoraPulse.JPG)
+
+### 10. [Quintly](https://www.quintly.com/)
+
+The dashboard of Quintly can be customized as per your requirement to keep a track of the metrics of your pages. It covers many of your social profile that includes Facebook, Twitter, Google+, LinkedIn, Instagram and YouTube. The Facebook analytics tool is a free one that enables you to compare metrics and understand the best content but the rest are chargeable after a 14 day trial period. The advanced suite is priced at $129 USD per month.
+
+![Quintly](https://images.wondershare.com/filmora/article-images/Quintly.JPG)
+
+### 11. [SoTrender](https://www.sotrender.com/)
+
+SoTrender is a Facebook analytics tool that lets you analyze the performance of other industry leaders and your competitors. Tracking the organic and paid reach, the behavior of the users, their engagement, various types of post, you can get every kind of metrics from this Facebook analyzer. After a 14-day trial, SoTrender is charged at $50 for 2 brands per month.
+
+![SoTrender](https://images.wondershare.com/filmora/article-images/SoTrender.JPG)
+
+### 12. [SocialPilot](https://www.socialpilot.co/)
+
+SocialPilot is a powerful Facebook analytics tool that lets you make data-driven judgments and help you enhance the engagement and adjust your strategies for social media campaigns. It helps you to analyze the performance of your content and keep a track of the metrics for better engagement and boost revenues. SocialPilot has a 14-day trial for all suites and is priced between $10 and $80 per month.
+
+![SocialPilot](https://images.wondershare.com/filmora/article-images/SocialPilot.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+### 13. [Unmetric](https://unmetric.com/)
+
+Unmetric is a great Facebook analyzer for guiding your growth tactic. It has past and recording analysis feature that shows you the metrics of up to last 4 years. Get the record of the past and analyze how well a strategy performed in the past for your competitors as well as you. The paid and organic metrics are shown separately in this Facebook analytics tool. The advanced plan of Unmetric starts at $490 USD.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Unmetric](https://images.wondershare.com/filmora/article-images/Unmetric.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 14. [Rival IQ](https://www.rivaliq.com/)
+
+Rival IQ covers a comprehensive range of metrics including influencers, audience, sentiments, mentions, and engagement. This Facebook analytic tool also allows you to monitor the social media updates, posts, and bios of your competitor. You can build your own reports or get various kinds of reports available. With a 7-days free trial, Rival IQ plans start at $199.
+
+![Rival IQ](https://images.wondershare.com/filmora/article-images/Rival-IQ.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 15. LikeAlyzer
+
+Optimizing your Facebook page’s performance is now easy with the LikeAlyzer Facebook analyzer. It is a simple Facebook analytics tool that offers valuable insights on your competitors’ pages and grades it in 100\. With LikeAlyzer, you can keep a track of engagement rate, length of post, timing and much more. You may also get recommendations for improving your output and drive better engagement. This is used only for Facebook and is a free tool for all.
+
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![LikeAlyzer](https://images.wondershare.com/filmora/article-images/LikeAlyzer.JPG)
+
+Note: In November 2019, LikeAlyzer was shut down because of Facebook API changes.
+
+**You may also like:** [How to Schedule a Post on Your Facebook: The Ultimate Guide >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### Conclusion
+
+The Facebook analyzers are a great way to keep a track of the metrics of your pages and drive engagement on your posts. Try some of these Facebook analytics tools to get an overview of your competitors’ pages and also work on your own content strategies for progress and growth.
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+With around 1.55 billion users, Facebook is one of the most used social media platforms in the world. As a marketer, taking an effective social media approach is highly important, which includes observing the metrics and evaluating the performance of your posts.
+
+Luckily, there is no lack of Facebook analytics tools. The Facebook analyzers help in maximizing its potential by effectively evaluating your Facebook posts according to their dates. In this article, we will introduce you to 15 best Facebook Analyzers to boost your business.
+
+**You may also like:** [Facebook Jail: 10 Secrets to Avoid Being Blocked / Get Out of It >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Free Facebook Analyzers
+
+### 1. [Facebook Insights](https://www.facebook.com/business/a/page/page-insights)
+
+Starting from the Facebook Home, the Insights platform offers free analytics to Facebook marketers. Anyone who handles your company page with admin details can access this Facebook analyzer if your page has over 30 followers and fans. You can understand your followers better with the help of Facebook Insights as it offers a thorough metrics about the posts and its engagements among the users. It also breaks down the figures of traffic, location, gender, age group following the posts made by you to help in understanding your audiences better. This Facebook analytics tool lets you understand the type of content your audiences prefer, organic and paid likes, reach of your post and much more.
+
+![facebook insights](https://images.wondershare.com/filmora/article-images/facebook-insights.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 2. [SharedCount](https://www.sharedcount.com/)
+
+SharedCount is a free Facebook analytics tool that helps to track the number of social shares, likes, and comments on your posted content. You just need to type out or paste your website URL on the available search bar and get the metrics of your page. It is a free Facebook analyzer to keep a track on the reach and engagement of your page.
+
+![SharedCount](https://images.wondershare.com/filmora/article-images/SharedCount.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
+### 3. [Sociograph.io](https://sociograph.io/landing)
+
+The more you know your audience, the easier it becomes to boost your revenue. Sociograph.io is one of the best Facebook analytics tools that help to know your audience and fans better. From an average number of comments, likes, and shares on your posts to the total number of likers, commenters, and authors, you get a report on all. This Facebook analyzer also enables you to track the top post within a particular timeframe. It is a free tool.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Sociograph](https://images.wondershare.com/filmora/article-images/Sociograph.JPG)
 
 ### 4. Komfo
@@ -75,6 +258,9 @@ Keyhole is one of the best Facebook analytics tools that allow you to optimize a
 
 Brand24 is a Facebook analyzer that lets you track the metrics for any sort of content on your Facebook page. It enables you to learn the number of times your company name was mentioned in the conversations. It helps you to measure how the users are influencing with the help of charts, illustrations, and more. It is a paid Facebook analytics tools that are priced between $49 and $349 USD per month.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Brand24](https://images.wondershare.com/filmora/article-images/Brand24.JPG)
 
 ### 8. [Simply Measured](https://sproutsocial.com/)
@@ -95,10 +281,16 @@ The dashboard of Quintly can be customized as per your requirement to keep a tra
 
 ![Quintly](https://images.wondershare.com/filmora/article-images/Quintly.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 11. [SoTrender](https://www.sotrender.com/)
 
 SoTrender is a Facebook analytics tool that lets you analyze the performance of other industry leaders and your competitors. Tracking the organic and paid reach, the behavior of the users, their engagement, various types of post, you can get every kind of metrics from this Facebook analyzer. After a 14-day trial, SoTrender is charged at $50 for 2 brands per month.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![SoTrender](https://images.wondershare.com/filmora/article-images/SoTrender.JPG)
 
 ### 12. [SocialPilot](https://www.socialpilot.co/)
@@ -107,10 +299,16 @@ SocialPilot is a powerful Facebook analytics tool that lets you make data-driven
 
 ![SocialPilot](https://images.wondershare.com/filmora/article-images/SocialPilot.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 13. [Unmetric](https://unmetric.com/)
 
 Unmetric is a great Facebook analyzer for guiding your growth tactic. It has past and recording analysis feature that shows you the metrics of up to last 4 years. Get the record of the past and analyze how well a strategy performed in the past for your competitors as well as you. The paid and organic metrics are shown separately in this Facebook analytics tool. The advanced plan of Unmetric starts at $490 USD.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Unmetric](https://images.wondershare.com/filmora/article-images/Unmetric.JPG)
 
 ### 14. [Rival IQ](https://www.rivaliq.com/)
@@ -123,6 +321,9 @@ Rival IQ covers a comprehensive range of metrics including influencers, audience
 
 Optimizing your Facebook page’s performance is now easy with the LikeAlyzer Facebook analyzer. It is a simple Facebook analytics tool that offers valuable insights on your competitors’ pages and grades it in 100\. With LikeAlyzer, you can keep a track of engagement rate, length of post, timing and much more. You may also get recommendations for improving your output and drive better engagement. This is used only for Facebook and is a free tool for all.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![LikeAlyzer](https://images.wondershare.com/filmora/article-images/LikeAlyzer.JPG)
 
 Note: In November 2019, LikeAlyzer was shut down because of Facebook API changes.
@@ -151,8 +352,14 @@ Luckily, there is no lack of Facebook analytics tools. The Facebook analyzers he
 
 **You may also like:** [Facebook Jail: 10 Secrets to Avoid Being Blocked / Get Out of It >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Free Facebook Analyzers
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1. [Facebook Insights](https://www.facebook.com/business/a/page/page-insights)
 
 Starting from the Facebook Home, the Insights platform offers free analytics to Facebook marketers. Anyone who handles your company page with admin details can access this Facebook analyzer if your page has over 30 followers and fans. You can understand your followers better with the help of Facebook Insights as it offers a thorough metrics about the posts and its engagements among the users. It also breaks down the figures of traffic, location, gender, age group following the posts made by you to help in understanding your audiences better. This Facebook analytics tool lets you understand the type of content your audiences prefer, organic and paid likes, reach of your post and much more.
@@ -175,12 +382,30 @@ The more you know your audience, the easier it becomes to boost your revenue. So
 
 Komfo is a free basic Facebook analytics tool. For advanced tools, you need to request a price. The basic features include segmenting country or language, summaries of posts, demographics, sentiments, and tracking the efficacy of the organic social mentions and advertising campaigns on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Komfo](https://images.wondershare.com/filmora/article-images/Komfo.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5. [Cyfe](https://www.cyfe.com/)
 
 Cyfe is also a free Facebook analyzer. You get a customized analytics dashboard. Not only web and finance metrics, but it also enables you to remove and add 50 and more Facebook widgets. The demographic data and page metrics can be tracked through these widgets. Check your audience’s engagement on your posts easily with Cyfe, the Facebook analytics tool.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Cyfe](https://images.wondershare.com/filmora/article-images/Cyfe.JPG)
 
 ## Paid Facebook Analyzer
@@ -189,8 +414,14 @@ Cyfe is also a free Facebook analyzer. You get a customized analytics dashboard.
 
 Keyhole is one of the best Facebook analytics tools that allow you to optimize and strategize data for the public pages on Facebook. You just need to input your page’s name and you can easily get the metrics for the engagement for each post. From the best time of engagement to type or length on content, you get an idea of all. Understanding the strategies of your competitors becomes easier when you keep a track of the metrics of your page. The price of this Facebook analyzer is $89 USD/month and varies with the advanced tools.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![keyhole](https://images.wondershare.com/filmora/article-images/keyhole.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 7. [Brand24](https://brand24.com/)
 
 Brand24 is a Facebook analyzer that lets you track the metrics for any sort of content on your Facebook page. It enables you to learn the number of times your company name was mentioned in the conversations. It helps you to measure how the users are influencing with the help of charts, illustrations, and more. It is a paid Facebook analytics tools that are priced between $49 and $349 USD per month.
@@ -203,16 +434,25 @@ Simply Measured Facebook analyzer gives you 4 different reports on the Facebook 
 
 ![Simply Measured](https://images.wondershare.com/filmora/article-images/simply-measured.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 9. [Agorapulse](https://www.agorapulse.com/)
 
 Agorapulse offers 2 free basic Facebook reports that give you the metrics for how your content is performing and also lets you run sweepstakes, quizzes, and competitions on your Facebook timeline. The advanced main suite of Agorapulse is priced at $29 USD per month. This Facebook analytics tool gives you a breakdown of viral, organic, and paid reach. The reports can be tailored as per your requirement and you can get a 20 slide power point presentation.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Agorapulse](https://images.wondershare.com/filmora/article-images/AgoraPulse.JPG)
 
 ### 10. [Quintly](https://www.quintly.com/)
 
 The dashboard of Quintly can be customized as per your requirement to keep a track of the metrics of your pages. It covers many of your social profile that includes Facebook, Twitter, Google+, LinkedIn, Instagram and YouTube. The Facebook analytics tool is a free one that enables you to compare metrics and understand the best content but the rest are chargeable after a 14 day trial period. The advanced suite is priced at $129 USD per month.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Quintly](https://images.wondershare.com/filmora/article-images/Quintly.JPG)
 
 ### 11. [SoTrender](https://www.sotrender.com/)
@@ -221,12 +461,21 @@ SoTrender is a Facebook analytics tool that lets you analyze the performance of 
 
 ![SoTrender](https://images.wondershare.com/filmora/article-images/SoTrender.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 12. [SocialPilot](https://www.socialpilot.co/)
 
 SocialPilot is a powerful Facebook analytics tool that lets you make data-driven judgments and help you enhance the engagement and adjust your strategies for social media campaigns. It helps you to analyze the performance of your content and keep a track of the metrics for better engagement and boost revenues. SocialPilot has a 14-day trial for all suites and is priced between $10 and $80 per month.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![SocialPilot](https://images.wondershare.com/filmora/article-images/SocialPilot.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 13. [Unmetric](https://unmetric.com/)
 
 Unmetric is a great Facebook analyzer for guiding your growth tactic. It has past and recording analysis feature that shows you the metrics of up to last 4 years. Get the record of the past and analyze how well a strategy performed in the past for your competitors as well as you. The paid and organic metrics are shown separately in this Facebook analytics tool. The advanced plan of Unmetric starts at $490 USD.
@@ -237,8 +486,14 @@ Unmetric is a great Facebook analyzer for guiding your growth tactic. It has pas
 
 Rival IQ covers a comprehensive range of metrics including influencers, audience, sentiments, mentions, and engagement. This Facebook analytic tool also allows you to monitor the social media updates, posts, and bios of your competitor. You can build your own reports or get various kinds of reports available. With a 7-days free trial, Rival IQ plans start at $199.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Rival IQ](https://images.wondershare.com/filmora/article-images/Rival-IQ.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 15. LikeAlyzer
 
 Optimizing your Facebook page’s performance is now easy with the LikeAlyzer Facebook analyzer. It is a simple Facebook analytics tool that offers valuable insights on your competitors’ pages and grades it in 100\. With LikeAlyzer, you can keep a track of engagement rate, length of post, timing and much more. You may also get recommendations for improving your output and drive better engagement. This is used only for Facebook and is a free tool for all.
@@ -253,6 +508,9 @@ Note: In November 2019, LikeAlyzer was shut down because of Facebook API changes
 
 The Facebook analyzers are a great way to keep a track of the metrics of your pages and drive engagement on your posts. Try some of these Facebook analytics tools to get an overview of your competitors’ pages and also work on your own content strategies for progress and growth.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -273,12 +531,21 @@ Luckily, there is no lack of Facebook analytics tools. The Facebook analyzers he
 
 ## Free Facebook Analyzers
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1. [Facebook Insights](https://www.facebook.com/business/a/page/page-insights)
 
 Starting from the Facebook Home, the Insights platform offers free analytics to Facebook marketers. Anyone who handles your company page with admin details can access this Facebook analyzer if your page has over 30 followers and fans. You can understand your followers better with the help of Facebook Insights as it offers a thorough metrics about the posts and its engagements among the users. It also breaks down the figures of traffic, location, gender, age group following the posts made by you to help in understanding your audiences better. This Facebook analytics tool lets you understand the type of content your audiences prefer, organic and paid likes, reach of your post and much more.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook insights](https://images.wondershare.com/filmora/article-images/facebook-insights.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### 2. [SharedCount](https://www.sharedcount.com/)
 
 SharedCount is a free Facebook analytics tool that helps to track the number of social shares, likes, and comments on your posted content. You just need to type out or paste your website URL on the available search bar and get the metrics of your page. It is a free Facebook analyzer to keep a track on the reach and engagement of your page.
@@ -303,36 +570,63 @@ Cyfe is also a free Facebook analyzer. You get a customized analytics dashboard.
 
 ![Cyfe](https://images.wondershare.com/filmora/article-images/Cyfe.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Paid Facebook Analyzer
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 6. [Keyhole](https://keyhole.co/)
 
 Keyhole is one of the best Facebook analytics tools that allow you to optimize and strategize data for the public pages on Facebook. You just need to input your page’s name and you can easily get the metrics for the engagement for each post. From the best time of engagement to type or length on content, you get an idea of all. Understanding the strategies of your competitors becomes easier when you keep a track of the metrics of your page. The price of this Facebook analyzer is $89 USD/month and varies with the advanced tools.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![keyhole](https://images.wondershare.com/filmora/article-images/keyhole.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 7. [Brand24](https://brand24.com/)
 
 Brand24 is a Facebook analyzer that lets you track the metrics for any sort of content on your Facebook page. It enables you to learn the number of times your company name was mentioned in the conversations. It helps you to measure how the users are influencing with the help of charts, illustrations, and more. It is a paid Facebook analytics tools that are priced between $49 and $349 USD per month.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Brand24](https://images.wondershare.com/filmora/article-images/Brand24.JPG)
 
 ### 8. [Simply Measured](https://sproutsocial.com/)
 
 Simply Measured Facebook analyzer gives you 4 different reports on the Facebook content analysis for free. Firstly, the Facebook Insights data is given a graphical representation including reach, engagement, likes, comments, shares, traffic, fans, demographics, and activities, about the post. You also receive your competitors’ analysis report showing 10 fan pages. It also shows you an overall relative metrics for various engagements and responses from the fans. This Facebook analytics tool also gives you a detailed report per week or per day, top users report and more. It also gives you the breakdown for your content analysis. Although Simply Measure advanced suite is priced at $500 USD per month, the first four basic reports are free.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Simply Measured](https://images.wondershare.com/filmora/article-images/simply-measured.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 9. [Agorapulse](https://www.agorapulse.com/)
 
 Agorapulse offers 2 free basic Facebook reports that give you the metrics for how your content is performing and also lets you run sweepstakes, quizzes, and competitions on your Facebook timeline. The advanced main suite of Agorapulse is priced at $29 USD per month. This Facebook analytics tool gives you a breakdown of viral, organic, and paid reach. The reports can be tailored as per your requirement and you can get a 20 slide power point presentation.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ![Agorapulse](https://images.wondershare.com/filmora/article-images/AgoraPulse.JPG)
 
 ### 10. [Quintly](https://www.quintly.com/)
 
 The dashboard of Quintly can be customized as per your requirement to keep a track of the metrics of your pages. It covers many of your social profile that includes Facebook, Twitter, Google+, LinkedIn, Instagram and YouTube. The Facebook analytics tool is a free one that enables you to compare metrics and understand the best content but the rest are chargeable after a 14 day trial period. The advanced suite is priced at $129 USD per month.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Quintly](https://images.wondershare.com/filmora/article-images/Quintly.JPG)
 
 ### 11. [SoTrender](https://www.sotrender.com/)
@@ -341,6 +635,9 @@ SoTrender is a Facebook analytics tool that lets you analyze the performance of 
 
 ![SoTrender](https://images.wondershare.com/filmora/article-images/SoTrender.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 12. [SocialPilot](https://www.socialpilot.co/)
 
 SocialPilot is a powerful Facebook analytics tool that lets you make data-driven judgments and help you enhance the engagement and adjust your strategies for social media campaigns. It helps you to analyze the performance of your content and keep a track of the metrics for better engagement and boost revenues. SocialPilot has a 14-day trial for all suites and is priced between $10 and $80 per month.
@@ -363,126 +660,9 @@ Rival IQ covers a comprehensive range of metrics including influencers, audience
 
 Optimizing your Facebook page’s performance is now easy with the LikeAlyzer Facebook analyzer. It is a simple Facebook analytics tool that offers valuable insights on your competitors’ pages and grades it in 100\. With LikeAlyzer, you can keep a track of engagement rate, length of post, timing and much more. You may also get recommendations for improving your output and drive better engagement. This is used only for Facebook and is a free tool for all.
 
-![LikeAlyzer](https://images.wondershare.com/filmora/article-images/LikeAlyzer.JPG)
-
-Note: In November 2019, LikeAlyzer was shut down because of Facebook API changes.
-
-**You may also like:** [How to Schedule a Post on Your Facebook: The Ultimate Guide >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-#### Conclusion
-
-The Facebook analyzers are a great way to keep a track of the metrics of your pages and drive engagement on your posts. Try some of these Facebook analytics tools to get an overview of your competitors’ pages and also work on your own content strategies for progress and growth.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-With around 1.55 billion users, Facebook is one of the most used social media platforms in the world. As a marketer, taking an effective social media approach is highly important, which includes observing the metrics and evaluating the performance of your posts.
-
-Luckily, there is no lack of Facebook analytics tools. The Facebook analyzers help in maximizing its potential by effectively evaluating your Facebook posts according to their dates. In this article, we will introduce you to 15 best Facebook Analyzers to boost your business.
-
-**You may also like:** [Facebook Jail: 10 Secrets to Avoid Being Blocked / Get Out of It >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Free Facebook Analyzers
-
-### 1. [Facebook Insights](https://www.facebook.com/business/a/page/page-insights)
-
-Starting from the Facebook Home, the Insights platform offers free analytics to Facebook marketers. Anyone who handles your company page with admin details can access this Facebook analyzer if your page has over 30 followers and fans. You can understand your followers better with the help of Facebook Insights as it offers a thorough metrics about the posts and its engagements among the users. It also breaks down the figures of traffic, location, gender, age group following the posts made by you to help in understanding your audiences better. This Facebook analytics tool lets you understand the type of content your audiences prefer, organic and paid likes, reach of your post and much more.
-
-![facebook insights](https://images.wondershare.com/filmora/article-images/facebook-insights.JPG)
-
-### 2. [SharedCount](https://www.sharedcount.com/)
-
-SharedCount is a free Facebook analytics tool that helps to track the number of social shares, likes, and comments on your posted content. You just need to type out or paste your website URL on the available search bar and get the metrics of your page. It is a free Facebook analyzer to keep a track on the reach and engagement of your page.
-
-![SharedCount](https://images.wondershare.com/filmora/article-images/SharedCount.JPG)
-
-### 3. [Sociograph.io](https://sociograph.io/landing)
-
-The more you know your audience, the easier it becomes to boost your revenue. Sociograph.io is one of the best Facebook analytics tools that help to know your audience and fans better. From an average number of comments, likes, and shares on your posts to the total number of likers, commenters, and authors, you get a report on all. This Facebook analyzer also enables you to track the top post within a particular timeframe. It is a free tool.
-
-![Sociograph](https://images.wondershare.com/filmora/article-images/Sociograph.JPG)
-
-### 4. Komfo
-
-Komfo is a free basic Facebook analytics tool. For advanced tools, you need to request a price. The basic features include segmenting country or language, summaries of posts, demographics, sentiments, and tracking the efficacy of the organic social mentions and advertising campaigns on Facebook.
-
-![Komfo](https://images.wondershare.com/filmora/article-images/Komfo.JPG)
-
-### 5. [Cyfe](https://www.cyfe.com/)
-
-Cyfe is also a free Facebook analyzer. You get a customized analytics dashboard. Not only web and finance metrics, but it also enables you to remove and add 50 and more Facebook widgets. The demographic data and page metrics can be tracked through these widgets. Check your audience’s engagement on your posts easily with Cyfe, the Facebook analytics tool.
-
-![Cyfe](https://images.wondershare.com/filmora/article-images/Cyfe.JPG)
-
-## Paid Facebook Analyzer
-
-### 6. [Keyhole](https://keyhole.co/)
-
-Keyhole is one of the best Facebook analytics tools that allow you to optimize and strategize data for the public pages on Facebook. You just need to input your page’s name and you can easily get the metrics for the engagement for each post. From the best time of engagement to type or length on content, you get an idea of all. Understanding the strategies of your competitors becomes easier when you keep a track of the metrics of your page. The price of this Facebook analyzer is $89 USD/month and varies with the advanced tools.
-
-![keyhole](https://images.wondershare.com/filmora/article-images/keyhole.JPG)
-
-### 7. [Brand24](https://brand24.com/)
-
-Brand24 is a Facebook analyzer that lets you track the metrics for any sort of content on your Facebook page. It enables you to learn the number of times your company name was mentioned in the conversations. It helps you to measure how the users are influencing with the help of charts, illustrations, and more. It is a paid Facebook analytics tools that are priced between $49 and $349 USD per month.
-
-![Brand24](https://images.wondershare.com/filmora/article-images/Brand24.JPG)
-
-### 8. [Simply Measured](https://sproutsocial.com/)
-
-Simply Measured Facebook analyzer gives you 4 different reports on the Facebook content analysis for free. Firstly, the Facebook Insights data is given a graphical representation including reach, engagement, likes, comments, shares, traffic, fans, demographics, and activities, about the post. You also receive your competitors’ analysis report showing 10 fan pages. It also shows you an overall relative metrics for various engagements and responses from the fans. This Facebook analytics tool also gives you a detailed report per week or per day, top users report and more. It also gives you the breakdown for your content analysis. Although Simply Measure advanced suite is priced at $500 USD per month, the first four basic reports are free.
-
-![Simply Measured](https://images.wondershare.com/filmora/article-images/simply-measured.JPG)
-
-### 9. [Agorapulse](https://www.agorapulse.com/)
-
-Agorapulse offers 2 free basic Facebook reports that give you the metrics for how your content is performing and also lets you run sweepstakes, quizzes, and competitions on your Facebook timeline. The advanced main suite of Agorapulse is priced at $29 USD per month. This Facebook analytics tool gives you a breakdown of viral, organic, and paid reach. The reports can be tailored as per your requirement and you can get a 20 slide power point presentation.
-
-![Agorapulse](https://images.wondershare.com/filmora/article-images/AgoraPulse.JPG)
-
-### 10. [Quintly](https://www.quintly.com/)
-
-The dashboard of Quintly can be customized as per your requirement to keep a track of the metrics of your pages. It covers many of your social profile that includes Facebook, Twitter, Google+, LinkedIn, Instagram and YouTube. The Facebook analytics tool is a free one that enables you to compare metrics and understand the best content but the rest are chargeable after a 14 day trial period. The advanced suite is priced at $129 USD per month.
-
-![Quintly](https://images.wondershare.com/filmora/article-images/Quintly.JPG)
-
-### 11. [SoTrender](https://www.sotrender.com/)
-
-SoTrender is a Facebook analytics tool that lets you analyze the performance of other industry leaders and your competitors. Tracking the organic and paid reach, the behavior of the users, their engagement, various types of post, you can get every kind of metrics from this Facebook analyzer. After a 14-day trial, SoTrender is charged at $50 for 2 brands per month.
-
-![SoTrender](https://images.wondershare.com/filmora/article-images/SoTrender.JPG)
-
-### 12. [SocialPilot](https://www.socialpilot.co/)
-
-SocialPilot is a powerful Facebook analytics tool that lets you make data-driven judgments and help you enhance the engagement and adjust your strategies for social media campaigns. It helps you to analyze the performance of your content and keep a track of the metrics for better engagement and boost revenues. SocialPilot has a 14-day trial for all suites and is priced between $10 and $80 per month.
-
-![SocialPilot](https://images.wondershare.com/filmora/article-images/SocialPilot.JPG)
-
-### 13. [Unmetric](https://unmetric.com/)
-
-Unmetric is a great Facebook analyzer for guiding your growth tactic. It has past and recording analysis feature that shows you the metrics of up to last 4 years. Get the record of the past and analyze how well a strategy performed in the past for your competitors as well as you. The paid and organic metrics are shown separately in this Facebook analytics tool. The advanced plan of Unmetric starts at $490 USD.
-
-![Unmetric](https://images.wondershare.com/filmora/article-images/Unmetric.JPG)
-
-### 14. [Rival IQ](https://www.rivaliq.com/)
-
-Rival IQ covers a comprehensive range of metrics including influencers, audience, sentiments, mentions, and engagement. This Facebook analytic tool also allows you to monitor the social media updates, posts, and bios of your competitor. You can build your own reports or get various kinds of reports available. With a 7-days free trial, Rival IQ plans start at $199.
-
-![Rival IQ](https://images.wondershare.com/filmora/article-images/Rival-IQ.JPG)
-
-### 15. LikeAlyzer
-
-Optimizing your Facebook page’s performance is now easy with the LikeAlyzer Facebook analyzer. It is a simple Facebook analytics tool that offers valuable insights on your competitors’ pages and grades it in 100\. With LikeAlyzer, you can keep a track of engagement rate, length of post, timing and much more. You may also get recommendations for improving your output and drive better engagement. This is used only for Facebook and is a free tool for all.
-
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![LikeAlyzer](https://images.wondershare.com/filmora/article-images/LikeAlyzer.JPG)
 
 Note: In November 2019, LikeAlyzer was shut down because of Facebook API changes.
@@ -524,3 +704,58 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-demystifying-vimeo-top-choice-for-filmmakers/"><u>[New] 2024 Approved  Demystifying Vimeo  Top Choice for Filmmakers</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-top-techniques-for-silent-film-capturing/"><u>[New] 2024 Approved  Top Techniques for Silent Film Capturing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-transform-your-vids-for-social-scenes-with-tunes/"><u>[New] 2024 Approved  Transform Your Vids for Social Scenes With Tunes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-unleash-creative-fb-ad-videos-access-free-video-tools-now/"><u>[New] 2024 Approved  Unleash Creative FB Ad Videos - Access FREE Video Tools Now</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-what-lurks-behind-the-curtain-of-missing-video-suggestions/"><u>[New] 2024 Approved  What Lurks Behind the Curtain of Missing Video Suggestions?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-your-step-by-step-path-to-a-top-facebook-music-video/"><u>[New] 2024 Approved  Your Step-by-Step Path to a Top Facebook Music Video</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-troubleshooting-techniques-for-sudden-facebook-live-freezes/"><u>[New] In 2024, Troubleshooting Techniques for Sudden Facebook Live Freezes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-ultimate-fb-video-player-guide-top-picks-listed/"><u>[New] In 2024, Ultimate FB Video Player Guide  Top Picks Listed</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-proven-picks-for-high-quality-screenshot-tools-on-a-budget/"><u>[New] Proven Picks for High-Quality Screenshot Tools on a Budget</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-the-ultimate-guide-to-browser-screen-capturing-software-for-2024/"><u>[New] The Ultimate Guide to Browser Screen Capturing Software for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-top-9-fb-scraper-apps-for-films-for-2024/"><u>[New] Top 9 FB Scraper Apps for Films for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-tips-for-uploading-videos-on-instagram/"><u>[Updated] 2024 Approved  Tips for Uploading Videos on Instagram</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-top-30-beginner-pro-facebook-strategies-for-boosting-sales/"><u>[Updated] 2024 Approved  Top 30 Beginner-Pro Facebook Strategies for Boosting Sales</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unlock-the-power-of-engagement-to-monetize-facebook/"><u>[Updated] 2024 Approved  Unlock the Power of Engagement to Monetize Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unveiled-list-leading-top-10-facebook-video-downloaders-for-android/"><u>[Updated] 2024 Approved  Unveiled List  Leading Top 10 Facebook Video Downloaders for Android</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unveiling-hidden-shared-memories-in-messenger/"><u>[Updated] 2024 Approved  Unveiling Hidden Shared Memories in Messenger</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-a-comprehensive-look-at-youtube-to-facebook-file-transfers/"><u>[Updated] A Comprehensive Look at YouTube-to-Facebook File Transfers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-lightning-loop-transferring-youtube-playlists-fast/"><u>[Updated] In 2024, Lightning Loop  Transferring YouTube Playlists Fast</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-tiktoks-biggest-foodie-trends-unveiled/"><u>[Updated] In 2024, TikTok's Biggest Foodie Trends Unveiled</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unlock-facebook-popularity-discover-best-apps-from-androidiphone/"><u>[Updated] In 2024, Unlock Facebook Popularity  Discover Best Apps From Android/iPhone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-perfecting-visual-output-incorporating-luts-into-your-ae-projects/"><u>[Updated] Perfecting Visual Output  Incorporating LUTs Into Your AE Projects</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-virality-vortex-mastering-content-circulation-on-social-media-for-2024/"><u>[Updated] The Virality Vortex  Mastering Content Circulation on Social Media for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unlocking-the-potential-effective-use-of-split-screen-on-facebook-for-2024/"><u>[Updated] Unlocking the Potential  Effective Use of Split-Screen on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unlocking-the-power-of-seamless-youtube-content-flow-onto-facebook-for-2024/"><u>[Updated] Unlocking the Power of Seamless YouTube Content Flow Onto Facebook for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unveiling-the-hidden-meanings-behind-facebooks-messenger-icon-for-2024/"><u>[Updated] Unveiling the Hidden Meanings Behind Facebook's Messenger Icon for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-2023s-most-popular-online-video-hub-on-facebook/"><u>2024 Approved  2023'S Most Popular Online Video Hub on Facebook</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-expert-tips-finding-the-best-text-design-resources/"><u>2024 Approved  Expert Tips  Finding the Best Text Design Resources</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-overcoming-missed-frames-in-real-time-streaming/"><u>2024 Approved  Overcoming Missed Frames in Real-Time Streaming</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/achieve-maximum-impact-in-fb-video-ads-use-free-tools/"><u>Achieve Maximum Impact in FB Video Ads - Use Free Tools</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-vivo-x100-pro-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Vivo X100 Pro? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/earning-potential-unleashed-monetizing-fb-pages-effectively/"><u>Earning Potential Unleashed  Monetizing FB Pages Effectively</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/elevate-your-profile-expertise-in-fb-video-coverage-creation/"><u>Elevate Your Profile  Expertise in FB Video Coverage Creation</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/embrace-the-future-facebook-video-autoplay/"><u>Embrace the Future  Facebook Video Autoplay</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/from-darkness-to-daylight-funniest-incarcerated-facebook-friends-quotes/"><u>From Darkness to Daylight  Funniest Incarcerated Facebook Friends Quotes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/from-your-vantage-point-to-the-worlds-sharing-immersive-photos-online/"><u>From Your Vantage Point to the World's  Sharing Immersive Photos Online</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-10-proven-methods-for-boosting-fb-search-rankings/"><u>In 2024, 10 Proven Methods for Boosting FB Search Rankings</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unveiling-the-power-of-three-tiers-in-crafting-fb-ad-engaging-messages/"><u>In 2024, Unveiling the Power of Three Tiers in Crafting FB Ad Engaging Messages</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-virtual-symposium-streams/"><u>In 2024, Virtual Symposium Streams</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/livestreaming-pre-recorded-content-on-facebook-platform/"><u>Livestreaming Pre-Recorded Content on Facebook Platform</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastering-facebook-bio-writing-essential-tactics-for-success/"><u>Mastering Facebook Bio Writing  Essential Tactics for Success</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastering-facebooks-live-features-for-optimal-performance/"><u>Mastering Facebook's Live Features for Optimal Performance</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/maximize-page-reach-on-facebook/"><u>Maximize Page Reach on Facebook</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-harmonizing-sound-innovative-solutions-to-tackle-distorted-audio-problems-for-2024/"><u>New Harmonizing Sound Innovative Solutions to Tackle Distorted Audio Problems for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/pro-gopro-filming-and-live-sharing-best-practices-for-facebookperiscope/"><u>Pro Gopro Filming and Live Sharing  Best Practices for Facebook/Periscope</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/revealing-hidden-group-media-on-messenger-app/"><u>Revealing Hidden Group Media on Messenger App</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/revealing-the-top-10-color-enhancers-in-adobes-lightroom-for-2024/"><u>Revealing the Top 10 Color Enhancers in Adobe’s LightRoom for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/soulful-selection-candid-songs-that-perfectly-match-your-yes/"><u>Soulful Selection  Candid Songs that Perfectly Match Your 'Yes'</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/tactics-to-make-fb-videos-attractive-and-effective/"><u>Tactics to Make FB Videos Attractive and Effective</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/tune-into-tomorrow-fbs-free-downloads/"><u>Tune Into Tomorrow  FB's Free Downloads</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-the-ultimate-guide-to-converting-mp4-to-mp3-best-converters/"><u>Updated 2024 Approved The Ultimate Guide to Converting MP4 to MP3 Best Converters</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/web-accessory-fb-stories-keeper/"><u>Web Accessory  FB Stories Keeper</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Facebook's Premier Evolution  The Five Must-Know Features\""
-date: 2024-06-25T22:49:03.128Z
-updated: 2024-06-26T22:49:03.128Z
+date: 2024-07-19T04:04:13.585Z
+updated: 2024-07-20T04:04:13.585Z
 tags:
   - ai video
   - ai facebook
@@ -27,6 +27,9 @@ thumbnail: https://thmb.techidaily.com/e475d95ff83684e67af3ed3b0fb046f03e477b4f8
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 1\. Facebook 360
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
@@ -37,6 +40,9 @@ thumbnail: https://thmb.techidaily.com/e475d95ff83684e67af3ed3b0fb046f03e477b4f8
 
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Messenger Day – The Snapchat Way
 
  This app was also launched in the month of March and surprisingly it appeared like biggest competitor against Instagram Stories and Snapchat. However, few features like stickers, filters and posts disappearing within 24 hours etc are also same as that of other competing platforms.
@@ -90,6 +96,9 @@ Follow @Shanoon Cox
 
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Messenger Day – The Snapchat Way
 
  This app was also launched in the month of March and surprisingly it appeared like biggest competitor against Instagram Stories and Snapchat. However, few features like stickers, filters and posts disappearing within 24 hours etc are also same as that of other competing platforms.
@@ -98,6 +107,9 @@ Follow @Shanoon Cox
 
  One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Facebook Live
 
  Earlier, Facebook users were utilizing Facebook Live API to live stream on Facebook from their smartphone or tablet. But now it is possible to start broadcasting directly from your Laptop or Personal desktop computer using Facebook Live Feature. Further, Admins can also tag others as Live Contributors during streaming process on pages. You can also add comments to live broadcasts which were not possible earlier. So it is right time to explore the new Facebook Live feature on your device, you will easily find it on top of the news feeds.
@@ -117,6 +129,9 @@ Follow @Shanoon Cox
 
  Last but not the least, Group video chat is the best solution to all crazy messenger users who wants to stay connected with all their friends on the go. The amazing news is that you can add about 50 users to one video group chat. Further, it will also help you to put fun filters to keep your chats interactive and full of laughter. In case if you find those Facebook chat heads annoying on your device screen then you can now easily remove them from profile settings. In simple words, Facebook has lots of things wrapped inside its platform for you all; get ready to have the real fun.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -143,6 +158,9 @@ Follow @Shanoon Cox
 
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Messenger Day – The Snapchat Way
 
  This app was also launched in the month of March and surprisingly it appeared like biggest competitor against Instagram Stories and Snapchat. However, few features like stickers, filters and posts disappearing within 24 hours etc are also same as that of other competing platforms.
@@ -157,6 +175,9 @@ Follow @Shanoon Cox
 
  Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 4\. Advertising Capabilities
 
  If you are a publisher or use Facebook for business promotions then here is great news for you all. This recent update of Facebook has revolutionized your advertising capabilities and now your brand can avail maximum exposure within minimum time. Here are few interesting things that you can do now:
@@ -170,6 +191,9 @@ Follow @Shanoon Cox
 
  Last but not the least, Group video chat is the best solution to all crazy messenger users who wants to stay connected with all their friends on the go. The amazing news is that you can add about 50 users to one video group chat. Further, it will also help you to put fun filters to keep your chats interactive and full of laughter. In case if you find those Facebook chat heads annoying on your device screen then you can now easily remove them from profile settings. In simple words, Facebook has lots of things wrapped inside its platform for you all; get ready to have the real fun.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -186,6 +210,9 @@ Follow @Shanoon Cox
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. Facebook 360
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
@@ -204,6 +231,9 @@ Follow @Shanoon Cox
 
  One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Facebook Live
 
  Earlier, Facebook users were utilizing Facebook Live API to live stream on Facebook from their smartphone or tablet. But now it is possible to start broadcasting directly from your Laptop or Personal desktop computer using Facebook Live Feature. Further, Admins can also tag others as Live Contributors during streaming process on pages. You can also add comments to live broadcasts which were not possible earlier. So it is right time to explore the new Facebook Live feature on your device, you will easily find it on top of the news feeds.
@@ -219,6 +249,9 @@ Follow @Shanoon Cox
 
 [How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## 5\. Group Videos
 
  Last but not the least, Group video chat is the best solution to all crazy messenger users who wants to stay connected with all their friends on the go. The amazing news is that you can add about 50 users to one video group chat. Further, it will also help you to put fun filters to keep your chats interactive and full of laughter. In case if you find those Facebook chat heads annoying on your device screen then you can now easily remove them from profile settings. In simple words, Facebook has lots of things wrapped inside its platform for you all; get ready to have the real fun.
@@ -254,3 +287,50 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-mastering-the-download-dance-of-hd-media-on-social-platforms/"><u>[New] 2024 Approved  Mastering the Download Dance of HD Media on Social Platforms</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-mastering-the-self-play-feature-in-facebook-videos/"><u>[New] 2024 Approved  Mastering the Self-Play Feature in Facebook Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-mastering-xbox-livestreaming-on-facebook-platform/"><u>[New] 2024 Approved  Mastering Xbox Livestreaming on Facebook Platform</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-premier-media-transformer-mp4-)-fb/"><u>[New] 2024 Approved  Premier Media Transformer  MP4 -> FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-safely-download-facebook-media-on-windowsmac/"><u>[New] 2024 Approved  Safely Download Facebook Media on Windows/Mac</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-solving-snapchat-silent-sections-a-2023-guide-to-smooth-viewing/"><u>[New] 2024 Approved  Solving Snapchat Silent Sections - A 2023 Guide to Smooth Viewing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-step-by-step-guide-to-ace-11-essential-color-correction-tutorials/"><u>[New] 2024 Approved  Step-by-Step Guide to Ace 11 Essential Color Correction Tutorials</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elevate-your-vlogs-optimizing-title-description-and-tags/"><u>[New] In 2024, Elevate Your Vlogs  Optimizing Title, Description & Tags</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-mastery-of-autoplay-functionality-in-fb-video-streams/"><u>[New] In 2024, Mastery of Autoplay Functionality in Fb Video Streams</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-online-alter-ego-artistry-drawing-a-fancy-profile/"><u>[New] In 2024, Online Alter-Ego Artistry  Drawing a Fancy Profile</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-pixelation-portraiture-sketching-a-playful-virtual-emblem/"><u>[New] In 2024, Pixelation Portraiture  Sketching a Playful Virtual Emblem</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-precision-techniques-for-messenger-content-extraction/"><u>[New] In 2024, Precision Techniques for Messenger Content Extraction</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-premier-mp4-uploader-and-downloader-for-fb/"><u>[New] In 2024, Premier MP4 Uploader & Downloader for FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-professional-fb-cover-setups-to-skyrocket-engagement/"><u>[New] In 2024, Professional FB Cover Setups to Skyrocket Engagement</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-ultimate-checklist-for-top-notch-fb-cover-videos/"><u>[New] In 2024, The Ultimate Checklist for Top-Notch FB Cover Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-ultimate-guide-to-collecting-key-tools-in-your-toolkit/"><u>[New] In 2024, The Ultimate Guide to Collecting Key Tools in Your Toolkit</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-recover-disappearing-watch-icon-for-fb-users-for-2024/"><u>[New] Recover Disappearing Watch Icon for FB Users for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-newest-viral-phenomena-on-tiktok-for-2024/"><u>[New] The Newest Viral Phenomena on TikTok for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-seize-your-social-media-videos-top-extensions-and-downloaders-for-firefox/"><u>[Updated] 2024 Approved  Seize Your Social Media Videos! Top Extensions and Downloaders for Firefox</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-social-network-stardom-top-10-music-video-countdown/"><u>[Updated] 2024 Approved  Social Network Stardom  Top 10 Music Video Countdown</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-stop-in-app-video-buffering-issues/"><u>[Updated] 2024 Approved  Stop In-App Video Buffering Issues</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-streaming-directly-from-facebook-to-your-screen/"><u>[Updated] 2024 Approved  Streaming Directly From Facebook to Your Screen</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-new-era-facebooks-quintessential-features-showcased/"><u>[Updated] In 2024, New Era  Facebook's Quintessential Features Showcased</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-synchronizing-tiktok-viewership-and-facebook-shares/"><u>[Updated] In 2024, Synchronizing TikTok Viewership and Facebook Shares</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-science-of-shares-how-to-infect-facebook-with-content/"><u>[Updated] In 2024, The Science of Shares  How to Infect Facebook with Content</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-ultimate-manual-for-extracting-hd-from-facebook/"><u>[Updated] In 2024, The Ultimate Manual for Extracting HD From Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-mastering-facebook-profile-pictures-with-these-expert-creators-for-2024/"><u>[Updated] Mastering Facebook Profile Pictures with These Expert Creators for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-maximize-your-marketing-metrics-top-8-apps-for-facebook-like-boost-for-2024/"><u>[Updated] Maximize Your Marketing Metrics  Top 8 Apps for Facebook Like Boost for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-prime-premiere-pro-blueprints-best-free-2023/"><u>[Updated] Prime Premiere Pro Blueprints - Best Free 2023</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-stepwise-approach-to-adding-video-tracks-to-your-youtube-playlists/"><u>[Updated] Stepwise Approach to Adding Video Tracks to Your YouTube Playlists</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-strategies-to-streamline-your-google-meet-calendar/"><u>[Updated] Strategies to Streamline Your Google Meet Calendar</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-art-of-echo-chambers-hits-that-amplify-on-fb-for-2024/"><u>[Updated] The Art of Echo Chambers  Hits that Amplify on FB for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-harmony-hearts-the-ultimate-song-playlist-for-a-promise/"><u>2024 Approved  Harmony Hearts  The Ultimate Song Playlist for a Promise</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/best-free-online-video-reversers-for-2024/"><u>Best Free Online Video Reversers for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/comparing-instagrams-latest-features-reels-vs-stories-for-2024/"><u>Comparing Instagram's Latest Features  Reels Vs Stories for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-spark-10-pro-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on Spark 10 Pro</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/discovering-the-best-free-voice-transformers-a-detailed-review-guide/"><u>Discovering the Best Free Voice Transformers - A Detailed Review Guide</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-nokia-g22-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Nokia G22 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-top-6-best-alternatives-to-clownfish-voice-changer/"><u>New In 2024, Top 6 Best Alternatives to Clownfish Voice Changer</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/obs-vs-wirecast-which-should-you-trust-for-live/"><u>OBS Vs. Wirecast - Which Should You Trust for Live?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/prime-device-editors-for-app-development/"><u>Prime Device Editors for App Development</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/top-voice-transformation-tools-for-instant-communication/"><u>Top Voice Transformation Tools for Instant Communication</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-easily-blur-image-backgrounds-with-these-free-online-tools/"><u>Updated In 2024, Easily Blur Image Backgrounds with These Free Online Tools</u></a></li>
+</ul></div>

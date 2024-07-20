@@ -1,7 +1,7 @@
 ---
 title: "How to Create Facebook Video Ads with FREE Video Creation Kit for 2024"
-date: 2024-07-03T22:42:25.510Z
-updated: 2024-07-04T22:42:25.510Z
+date: 2024-07-19T04:34:46.097Z
+updated: 2024-07-20T04:34:46.097Z
 tags:
   - ai video
   - ai facebook
@@ -19,6 +19,9 @@ thumbnail: https://thmb.techidaily.com/6283ff7f0ec530727c4f03db2aa9125ca35be5851
 
 # How to Create Facebook Video Ads with FREE Video Creation Kit?
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -35,6 +38,9 @@ If you have little to no experience with video ads, don’t feel stressed. We’
 
 Wondershare Filmora is one of the [best video editing software](https://tools.techidaily.com/wondershare/filmora/download/) for making and editing social media videos sharing on YouTube, Facebook, or Instagram. It features lots of effects, transitions, templates and elements for creating video with fun. You can create videos in different aspect ratio such as 1:1, 9:16, 16:9, 4:3 or [customize the aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/) as you like.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Well, although other social media platforms are gaining popularity, Facebook remains the top of the pops, and has [over 1.5 billion daily users](https://newsroom.fb.com/company-info/). Whatever your reason for needing a video ad, you can’t go wrong broadcasting it to this kind of audience.
@@ -49,6 +55,9 @@ Below is the detailed step by step tutorial about how to create video ads in Vid
 
 You’ll need to start in [Ads Manager](https://www.facebook.com/business/help/282701548912119), which is connected with your Facebook account and can be found on your home page in the left menu.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![where to find Facebook Ads Manager](https://images.wondershare.com/filmora/article-images/facebook-ads-manager.jpg)
 
 Click on the   **Ads**  tab, and the **Create** button to get started. You can’t miss it - it’s **bright green**! You’ll be asked if you want to choose Guided Creation or Quick Creation. Either way is pretty easy to do, and you can experiment with both when you begin to see which works best for you.
@@ -92,6 +101,9 @@ Go to the **Media** section and now you can upload up to 10 images or videos and
 
 Once you’ve begun to create your vid, you’ll find a button under the **Media** tab. Click Add Image and a window will open for you to select images - you can choose from the images on your account, your particular Facebook page you’re creating the ad for, your Instagram, or upload stock images.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add Facebook ads image assets](https://images.wondershare.com/filmora/article-images/add-image-assets.jpg)
 
 When adding images to media, remember to choose images that are the same size and orientation. This will make your life easier and your ad look more appealing!
@@ -132,16 +144,25 @@ From here, you can upload your own images to fill the placeholders that the temp
 
 You can also add your own logo, and if you’re feeling inspired or want to convey a particular message, choose a sticker to put on your vid!
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![video creation kit  stickers](https://images.wondershare.com/filmora/article-images/video-creation-kit-stickers.jpg)
 
 You can also **add text** on this screen and adjust the text color, font and positon based on your needs.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![add text on video creation kit](https://images.wondershare.com/filmora/article-images/add-text-on-video-creation-kit.jpg)
 
 Once you click on **Use Video**, and it will start creating it for you in the background.
 
 You’ll be sent back to the original page where you can add text and links, and once you click on **Confirm**, your video ad will be ready!
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Tips & Tricks to Consider when creating video ads for Facebook
 
 If you’ve never made a video ad using the Facebook Video Creation Kit before, there are some things that you should consider when creating your masterpiece:
@@ -191,6 +212,9 @@ If you aren’t busy creating your own video ad right now, you’re missing out!
 
 Video has become the go-to tool for advertising, and using the Facebook Video Creation Kit is a quick, easy, and quite fun way to put together something appealing and inviting, even if you know nothing about video editing. What are you waiting for? Head over to your Facebook page and try it out!
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -207,3 +231,47 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-exclusive-downloads-top-8-stealthy-tools/"><u>[New] Exclusive Downloads  Top 8 Stealthy Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/1716089177026-new-how-to-watch-facebook-live-on-roku/"><u>[New] How to Watch Facebook Live on Roku</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-snapshotpro-365-year-round-windowsmac-snapshots/"><u>[New] In 2024, SnapshotPro 365  Year-Round Windows/Mac Snapshots</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-instant-download-fb-music-library/"><u>[New] Instant Download  FB Music Library</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-lost-opportunities-instant-creative-ban/"><u>[New] Lost Opportunities  Instant Creative Ban</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-maximizing-video-reach-sharing-youtube-content-via-facebook-network/"><u>[New] Maximizing Video Reach  Sharing YouTube Content via Facebook Network</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-customize-and-captivate-thumbnail-magic-for-shorts/"><u>[Updated] 2024 Approved  Customize & Captivate  Thumbnail Magic for Shorts</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-androidios-tiktok-editing-winners-for-2024/"><u>[Updated] Android/iOS TikTok Editing Winners for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-fbs-top-songs-on-screen-a-step-by-step-vlog-series/"><u>[Updated] FB's Top Songs on Screen  A Step-by-Step Vlog Series</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-improve-chromium-performance-fb-video-streaming/"><u>[Updated] Improve Chromium Performance  FB Video Streaming</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-daily-digest-guidelines-tips-for-successful-vlogs/"><u>[Updated] In 2024, Daily Digest Guidelines  Tips for Successful Vlogs</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-mastering-fb-video-marketing/"><u>[Updated] Mastering FB Video Marketing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-mastering-social-media-creating-your-first-facebook-reel/"><u>[Updated] Mastering Social Media  Creating Your First Facebook Reel</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-mastering-the-art-of-live-streaming-pre-recorded-fb-videos/"><u>[Updated] Mastering the Art of Live Streaming Pre-Recorded FB Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-maximize-marketing-magic-ranking-of-8-facebook-friendly-apps/"><u>[Updated] Maximize Marketing Magic  Ranking of 8 Facebook-Friendly Apps</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-overcoming-technical-challenges-with-fb-live-videos/"><u>[Updated] Overcoming Technical Challenges with FB Live Videos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-elevate-your-gaming-advanced-techniques-for-recording-minecraft/"><u>2024 Approved  Elevate Your Gaming  Advanced Techniques for Recording Minecraft</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-recommended-filmmaking-equipment-roundup/"><u>2024 Approved  Expert-Recommended Filmmaking Equipment Roundup</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-facebook-file-to-mp3-converter-tool/"><u>2024 Approved  Facebook File to MP3 Converter Tool</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-masterful-methods-for-attaching-fb-story-links/"><u>2024 Approved  Masterful Methods for Attaching FB Story Links</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-maximizing-facebook-fame-8-premier-apps-for-like-boosting/"><u>2024 Approved  Maximizing Facebook Fame  8 Premier Apps for Like Boosting</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/deciding-the-top-iphone-video-editor-cameo-or-filmorago-in-2024/"><u>Deciding the Top iPhone Video Editor  Cameo or FilmoraGo, In 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/dissecting-metaverse-and-multimeva-what-sets-them-apart-insightful-guide/"><u>Dissecting Metaverse and Multimeva  What Sets Them Apart (Insightful Guide)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/facebook-ban-phantom-strategies-to-avoid-being-cut-off-for-2024/"><u>Facebook Ban Phantom  Strategies to Avoid Being Cut Off for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fixing-updates-and-error-windows-0x800f0845/"><u>Fixing Updates and Error: Windows 0X800F0845</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-live-stream-facebook-from-pc-mac-or-laptop-with-obs-for-2024/"><u>How to Live Stream Facebook From PC, Mac or Laptop with OBS for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-digest-this-top-tiktok-gastronomic-gems/"><u>In 2024, Digest This  Top #Tiktok Gastronomic Gems</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-your-channels-popularity-with-12-key-growth-techniques/"><u>In 2024, Elevate Your Channel's Popularity with 12 Key Growth Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-facebook-cinematic-capture-tool/"><u>In 2024, Facebook Cinematic Capture Tool</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-finding-fixes-your-missing-video-suggestions-on-fb/"><u>In 2024, Finding Fixes  Your Missing Video Suggestions on FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-freedom-through-jokes-ranking-the-most-hilarious-social-media-prisons/"><u>In 2024, Freedom Through Jokes  Ranking the Most Hilarious Social Media Prisons</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-mastering-the-procedure-of-attaining-facebooks-blue-status-badge/"><u>In 2024, Mastering the Procedure of Attaining Facebook's Blue Status Badge</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-mastering-the-social-media-lands-point-10-secrets-for-fb-optimization/"><u>In 2024, Mastering the Social Media Lands Point 10 Secrets for FB Optimization</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-navigate-a-2023-hack-steps-to-regain-fb-access/"><u>In 2024, Navigate a 2023 Hack  Steps to Regain FB Access</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>List of Pokémon Go Joysticks On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastering-facebook-video-auto-play-for-2024/"><u>Mastering Facebook Video Auto-Play for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mp4-downloader-pro-facebook-video-hacks-for-2024/"><u>MP4 Downloader Pro - Facebook Video Hacks for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/navigating-the-fb-algorithm-maximizing-page-visibility-for-2024/"><u>Navigating the FB Algorithm  Maximizing Page Visibility for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-get-the-concept-of-the-splice-editing-app-and-the-things-you-can-utilize-it-for-also-find-the-best-alternative-to-the-splice-desktop-version-for-2024/"><u>New Get the Concept of the Splice Editing App and the Things You Can Utilize It For. Also, Find the Best Alternative to the Splice Desktop Version for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-guide-extracting-specific-segments-from-youtube/"><u>Quick Guide  Extracting Specific Segments From YouTube</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/remove-the-lock-screen-fingerprint-of-your-samsung-galaxy-f14-5g-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Samsung Galaxy F14 5G</u></a></li>
+</ul></div>

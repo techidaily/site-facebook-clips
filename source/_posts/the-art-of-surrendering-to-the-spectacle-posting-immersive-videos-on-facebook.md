@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of Surrendering to the Spectacle  Posting Immersive Videos on Facebook\""
-date: 2024-05-20T17:49:32.827Z
-updated: 2024-05-21T17:49:32.827Z
+date: 2024-07-19T04:03:43.235Z
+updated: 2024-07-20T04:03:43.235Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes The Art of Surrendering to the Spectacle: Posting Immersive Videos on Facebook\""
 excerpt: "\"This Article Describes The Art of Surrendering to the Spectacle: Posting Immersive Videos on Facebook\""
 keywords: "Video Posting Strategy,Immersive Content Tactics,Spectacular Social Media,Engaging Facebook Videos,Effective Video Sharing,Captivating Visuals Online,Surrender to Storytelling"
-thumbnail: https://www.lifewire.com/thmb/ior-cQn3UtSVVON0069gePUnsoc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/pete-s-dragon-actor-oakes-fegley-visits-walt-disney-world-586219318-57b7cad05f9b58cdfd2c874f.jpg
+thumbnail: https://thmb.techidaily.com/e72d3325cc82dd8ab836962e9def246da610dd4efd3b2a55aada121de71f2e2a.jpg
 ---
 
 ## The Art of Surrendering to the Spectacle: Posting Immersive Videos on Facebook
@@ -72,6 +72,9 @@ Follow @Shanoon Cox
 
  Probably you have a tablet or phone that support Facebook live 360 video feature. Actually as per the recent announcement made by Facebook professionals regarding its updated applications, live 360 is compatible with all devices launched after iPad Pro. iPad Air, iPad Mini 2 or iPhone 4S models. Till now Facebook has not revealed any news related to compatibility of new features over Android devices and chances are that Android users need to wait so long to enjoy this feature on their device. However, they made a useful statement that Galaxy devices launched after Galaxy Note 3 and Galaxy S5 will support this feature.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Taking 360 Photos on iPhone and iPad With Built in Camera App
 
  Generally 360 degree camera is most preferable choice for developing high quality 360 degree images but in case if you don’t have one then Panorama feature of built in device cameras can make it possible. However, users cannot get focus from up and down but they can at least pan from right to left by simply swiping on their display. This feature only works for photos that mean you cannot develop 360 videos using Panorama.
@@ -80,6 +83,9 @@ Follow @Shanoon Cox
 
  As soon as you have captured your desired shot, move to your Facebook account and browse photo library. Choose your recently captured panorama photo and then follow instructions provided on screen to update your video. You can also preview your content, now add desired caption and publish your content online. Soon your will start receiving interesting comments and reviews from audience. Users can also delete their 360 degree photos after few hours as per their need. Such types of videos are being commonly used for entertainment and marketing purpose throughout the world.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Taking 360 Photos on Android Smartphone with Google Street View
 
  It is important to capture 360 degree photos in Facebook compatible formats so professionals recommend using Google’s street view camera app for this purpose. It works fine over iOS as well as Android platform and let users enjoy unlimited 360 shoots. To develop 360 degree videos from this application:
@@ -113,6 +119,9 @@ Follow @Shanoon Cox
 
  Probably you have a tablet or phone that support Facebook live 360 video feature. Actually as per the recent announcement made by Facebook professionals regarding its updated applications, live 360 is compatible with all devices launched after iPad Pro. iPad Air, iPad Mini 2 or iPhone 4S models. Till now Facebook has not revealed any news related to compatibility of new features over Android devices and chances are that Android users need to wait so long to enjoy this feature on their device. However, they made a useful statement that Galaxy devices launched after Galaxy Note 3 and Galaxy S5 will support this feature.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Taking 360 Photos on iPhone and iPad With Built in Camera App
 
  Generally 360 degree camera is most preferable choice for developing high quality 360 degree images but in case if you don’t have one then Panorama feature of built in device cameras can make it possible. However, users cannot get focus from up and down but they can at least pan from right to left by simply swiping on their display. This feature only works for photos that mean you cannot develop 360 videos using Panorama.
@@ -130,6 +139,9 @@ Follow @Shanoon Cox
 * When you are taking last pictures of your 360 shoot, the app will itself remind you about missing points so that you can pick them up. Users can also remove unwanted images from undo icon.
 * These captured 360 videos can be uploaded on Facebook same as the regular posts. Simply go to your account, move to status update and select your image, add caption and update.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Viewing 360 Photos on Facebook
 
  As soon as you are done with the uploading process, next task is to visit your profile and check if your uploaded video is working fine or not. If you are working on a web browser then simply click on this video and drag it here and there to avail 360 degree view whereas those who are watching it on smartphone can simply move it around in all directions to enjoy 360 degree view.
@@ -162,6 +174,9 @@ Follow @Shanoon Cox
 
  As soon as you have captured your desired shot, move to your Facebook account and browse photo library. Choose your recently captured panorama photo and then follow instructions provided on screen to update your video. You can also preview your content, now add desired caption and publish your content online. Soon your will start receiving interesting comments and reviews from audience. Users can also delete their 360 degree photos after few hours as per their need. Such types of videos are being commonly used for entertainment and marketing purpose throughout the world.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Taking 360 Photos on Android Smartphone with Google Street View
 
  It is important to capture 360 degree photos in Facebook compatible formats so professionals recommend using Google’s street view camera app for this purpose. It works fine over iOS as well as Android platform and let users enjoy unlimited 360 shoots. To develop 360 degree videos from this application:
@@ -171,12 +186,18 @@ Follow @Shanoon Cox
 * When you are taking last pictures of your 360 shoot, the app will itself remind you about missing points so that you can pick them up. Users can also remove unwanted images from undo icon.
 * These captured 360 videos can be uploaded on Facebook same as the regular posts. Simply go to your account, move to status update and select your image, add caption and update.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Viewing 360 Photos on Facebook
 
  As soon as you are done with the uploading process, next task is to visit your profile and check if your uploaded video is working fine or not. If you are working on a web browser then simply click on this video and drag it here and there to avail 360 degree view whereas those who are watching it on smartphone can simply move it around in all directions to enjoy 360 degree view.
 
  You will find a small radar type icon at bottom of screen; it provides information about your current pointing position on view. As it is your own profile so you can still make few changes to your uploads by adjusting preferred audience type or comments etc.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -208,3 +229,38 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-top-12-screen-recorder-tools-clear-and-free/"><u>[New] 2024 Approved  Top 12 Screen Recorder Tools  Clear & Free</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-uncovering-the-wonders-of-discord-nitro-free-and-paid-insights/"><u>[New] 2024 Approved  Uncovering the Wonders of Discord Nitro - Free & Paid Insights</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-optimize-facebook-seo-with-10-surefire-ways/"><u>[New] How to Optimize Facebook SEO with 10 Surefire Ways</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-innovative-facebook-enhancement-using-letterbox-technique/"><u>[New] Innovative Facebook Enhancement  Using Letterbox Technique</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-stylistics-swapping-videos-rightside-up/"><u>[New] Instagram Stylistics  Swapping Videos Rightside Up</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-integrate-harmony-in-media-posts-facebooks-sound-guide/"><u>[New] Integrate Harmony in Media Posts  Facebook's Sound Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-leading-techniques-for-facebook-ads/"><u>[New] Leading Techniques for Facebook Ads</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-online-obsession-the-8-must-watch-titles/"><u>[New] Online Obsession  The 8 Must-Watch Titles</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-the-complete-guide-to-automating-ppt-captures/"><u>[Updated] 2024 Approved  The Complete Guide to Automating PPT Captures</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-fb-soundbanks-access-anytime-anywhere/"><u>[Updated] FB Soundbanks  Access Anytime, Anywhere</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-fb-to-your-device-download-videos/"><u>[Updated] FB to Your Device - Download Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-innovate-or-stagnate-the-must-know-fb-ad-trends-for-24/"><u>[Updated] Innovate or Stagnate – The Must-Know FB Ad Trends for '24</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-instantly-connecting-fans-how-to-take-your-fb-live-further/"><u>[Updated] Instantly Connecting Fans  How to Take Your FB Live Further</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-master-2-screen-grab-tools/"><u>[Updated] Master 2 Screen Grab Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-masterclass-in-creating-compelling-fb-video-marketing-campaigns/"><u>[Updated] Masterclass in Creating Compelling FB Video Marketing Campaigns</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-maximizing-facebook-favorites-perfecting-square-video-crafting/"><u>[Updated] Maximizing Facebook Favorites  Perfecting Square Video Crafting</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-navigating-the-square-wave-of-facebook-video-popularity/"><u>[Updated] Navigating the Square Wave of Facebook Video Popularity</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-mastering-the-science-proven-methods-for-effective-hashtagging-on-fb/"><u>2024 Approved  Mastering the Science  Proven Methods for Effective Hashtagging on FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-navigating-the-world-of-online-streaming-wirecast-and-facebook/"><u>2024 Approved  Navigating the World of Online Streaming  Wirecast & Facebook</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-ultimate-method-streaming-idevice-screens-on-youtube/"><u>2024 Approved  The Ultimate Method  Streaming iDevice Screens on YouTube</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-unlocking-facebook-financial-gains-a-step-by-step-guide/"><u>2024 Approved  Unlocking Facebook Financial Gains  A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/breaking-the-code-30-novel-window-11-strategies-exposed/"><u>Breaking the Code  30 Novel WINDOW 11 Strategies Exposed</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-2023-how-to-make-facebook-videos-full-screen/"><u>In 2024, 2023 | How to Make Facebook Videos Full Screen?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-t-mobile-apple-iphone-13-mini-online-without-sim-card-by-drfone-ios/"><u>In 2024, How to Unlock T-Mobile Apple iPhone 13 mini online without SIM Card?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-how-to-use-your-recordings-for-a-seamless-live-experience-on-fb/"><u>In 2024, How to Use Your Recordings for a Seamless Live Experience on FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-instagram-photo-frame-sizing-tips/"><u>In 2024, Instagram Photo Frame Sizing Tips</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/incremental-voice-customization-options-a-survey-of-tools-standards-and-substitutes-for-2024/"><u>Incremental Voice Customization Options A Survey of Tools, Standards, and Substitutes for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/quick-route-to-your-latest-fb-video-viewings-for-2024/"><u>Quick Route to Your Latest FB Video Viewings for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-best-of-the-best-top-5-video-editing-apps-for-iphone-this-year/"><u>Updated 2024 Approved Best of the Best Top 5 Video Editing Apps for iPhone This Year</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-save-time-save-stress-mastering-final-cut-pro-project-saving/"><u>Updated Save Time, Save Stress Mastering Final Cut Pro Project Saving</u></a></li>
+</ul></div>
