@@ -1,0 +1,185 @@
+---
+title: "[Updated] In 2024, Optimizing Facebook Search Efficiency 101"
+date: 2024-08-10T09:34:27.179Z
+updated: 2024-08-11T09:34:27.179Z
+tags:
+  - ai video
+  - ai facebook
+  - ai facebook video
+categories:
+  - ai
+  - facebook
+description: "This Article Describes [Updated] In 2024, Optimizing Facebook Search Efficiency 101"
+excerpt: "This Article Describes [Updated] In 2024, Optimizing Facebook Search Efficiency 101"
+keywords: "FB SEO Basics,Boosting Fb Visibility,Enhance Fb Discoverability,Improve Fb Insights,Efficient Fb Ranking,Optimize Fb Reach,Upscale Fb Engagement"
+thumbnail: https://thmb.techidaily.com/9530a6a7ae2d76ba480cbada332a623fd47509bd2903fa4cfebcaa0c3ca3de95.jpg
+---
+
+## Optimizing Facebook Search Efficiency 101
+
+# How to Search People on Facebook Quickly (2 Ways Included)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+There are many people who connect with their family and friends on Facebook. It is [one of the most popular and largest social platforms on the web](https://zephoria.com/top-15-valuable-facebook-statistics/). Facebook is checked by millions of people each and every day that makes it incredibly a powerful tool for searching your lost contacts.
+
+Whether high school chums, family, friends, family or old colleagues at any location, Facebook can search for people instantly. However, Facebook is limited when you need to input your friend’s exact name to find them.
+
+Here are two ways to search people on Facebook. The second option also helps you to learn a new way to search for people. Let’s explore.
+
+* [**Part 1: How to search people on Facebook**](#part1)
+* [**Part 2: How to search people using Search Is Back**](#part2)
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
+## Part 1: How to search people on Facebook
+
+### Step 1: Log in to Facebook
+
+Open Facebook on your computer – Firstly, open a web browser and get to the Facebook website. You can find the log in fields on the top right corner of the page. Input your user ID and password and hit the login button at the side to proceed further.
+
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
+### Step 2: Check your list of Friends on Facebook
+
+On the header tool icons, click on your name and you are directed to your Facebook wall or timeline. Just below your cover image, click the friend’s tab, to reach the Friends page that shows all your friends on Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
+![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
+
+### Step 3: Friends Finder Page
+
+To reach the friend’s finder page, click on “find friends” from the friends’ page header. Doing so takes you to the “Friends Finder” page of Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
+![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Step 4: Friends Search
+
+On the top right of old friends search, you can find the “search for your friends” filters. To search your old friends by name, you have to enter their part or full names in the name field and look for them. To find your friends by their location, you may enter your friend’s hometown city’s name in the hometown field to search them by the place when they earlier lived in. To find your school friends or High school and university friends, you may enter the schools’ name and search for them. For searching your old colleagues, you may enter the company or employer’s name and find people who worked in the same organization.
+
+### Step 5: Check the results
+
+On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
+
+## Part 2: How to search people using Search Is Back
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### 1\. Open and Select
+
+On a browser open the [Search is Back site](https://searchisback.com/). You can find four tabs at the top of the page. Click on the first tab, “Find People” and a page appears to select your picks from the available options.
+
+![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
+
+### 2\. Input your Interest
+
+In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
+
+### 3\. Add People as Friends
+
+Once you have filled in all the filters in the page, you can hit Find People button at the end. When you hit the button, you are directed to the Facebook page to show your friend list.
+
+![search is back facebook](https://images.wondershare.com/filmora/article-images/search-is-back-interest.jpg)
+
+**Note**: If there are no results on the redirected Facebook page, you must get back to the Search is Back page and change your search filters to start a new round of search.
+
+Like Find People tab at the top of the page, you may also search events, posts, shares and photos from the event, post & shares, and photos tabs at the top of the page.
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+In the fast-paced world, where people are constantly running, it has become very difficult to keep in touch with anyone. Facebook not only helps you to connect with people but also find many old connections that lost at some point of time due to the hectic schedule that people are into or shift of place or for any other reasons. Searching for people is not easy on Facebook but if you know the right ways to search, then you surely can find the right person.
+
+If you want to make Facebook videos, try to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to beautify your videos with powerful features. [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/) also comes for making product and brand video on social media.
+
+[](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
+[](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-preventing-social-media-platforms-intrusive-ads/"><u>[New] 2024 Approved  Preventing Social Media Platform's Intrusive Ads</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-social-snapshot-saver-tool/"><u>[New] 2024 Approved  Social Snapshot Saver Tool</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-cross-platform-connectivity-sharing-youtube-and-twitter-videos-on-snapchat/"><u>[New] Cross Platform Connectivity  Sharing YouTube & Twitter Videos on Snapchat</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-directly-syncing-your-tiktok-videos-with-facebook-for-2024/"><u>[New] Directly Syncing Your TikTok Videos with Facebook for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-elevate-your-ads-performance-animation-strategies-for-success/"><u>[New] Elevate Your Ad's Performance  Animation Strategies for Success</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-steps-for-capturing-hd-content-on-fb/"><u>[New] In 2024, Steps for Capturing HD Content on FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-story-stream-sequencer-app/"><u>[New] In 2024, Story Stream Sequencer App</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-income-from-video-how-to-profit-on-vimeo-platform/"><u>[New] Income From Video  How to Profit on Vimeo Platform</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-master-live-broadcast-setup-using-obs-studio-pc-mac-laptop/"><u>[New] Master Live Broadcast Setup Using OBS Studio (PC, Mac, Laptop)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-reveal-hidden-gems-top-12-steps-to-make-your-fb-videos-show-up/"><u>[New] Reveal Hidden Gems  Top 12 Steps to Make Your FB Videos Show Up</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-complete-checklist-for-recording-fb-chats-and-meets/"><u>[New] The Complete Checklist for Recording FB Chats and Meets</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-ultimate-guide-to-winning-with-facebook-videos-for-2024/"><u>[New] The Ultimate Guide to Winning with Facebook Videos for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unraveling-the-purpose-behind-a-common-symbol-on-fb-chat-for-2024/"><u>[New] Unraveling the Purpose Behind a Common Symbol on FB Chat for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-why-are-facebook-recommended-videos-vanishing-for-2024/"><u>[New] Why Are Facebook Recommended Videos Vanishing for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-your-go-to-list-for-effortless-downloads-of-fb-stories-for-2024/"><u>[New] Your Go-To List for Effortless Downloads of FB Stories for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-breaking-through-boundaries-optimizing-videos-for-maximum-traction/"><u>[Updated] 2024 Approved  Breaking Through Boundaries  Optimizing Videos for Maximum Traction</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-cut-the-clutter-reducing-speeds-and-frames-on-snapchat-videos/"><u>[Updated] 2024 Approved  Cut the Clutter  Reducing Speeds and Frames on Snapchat Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-navigating-the-world-of-fb-instream-ads-a-comprehensive-setup-manual/"><u>[Updated] 2024 Approved  Navigating the World of FB Instream Ads  A Comprehensive Setup Manual</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-obs-streaming-windows-and-mac-guide/"><u>[Updated] 2024 Approved  OBS Streaming [Windows and Mac Guide]</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-facebooks-viewing-wave-the-hottest-videos-this-year-for-2024/"><u>[Updated] Facebook’s Viewing Wave  The Hottest Videos This Year for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-echo-chambers-advanced-mac-audio-techniques/"><u>[Updated] In 2024, Echo Chambers  Advanced Mac Audio Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-art-of-sharing-online-videos-from-youtube-to-facebook-for-2024/"><u>[Updated] The Art of Sharing Online Videos From YouTube to Facebook for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-understanding-facebooks-new-ranking-system-for-2024/"><u>[Updated] Understanding Facebook's New Ranking System for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-tier-cinematic-peeks-album/"><u>2024 Approved  Top-Tier Cinematic Peeks Album</u></a></li>
+<li><a href="https://games-able.techidaily.com/a-guide-on-selecting-a-portable-games-system-that-suits-you-best/"><u>A Guide on Selecting a Portable Games System that Suits You Best</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/core-framework-principles-for-engaging-online-promotions-for-2024/"><u>Core Framework Principles for Engaging Online Promotions for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-official-hp-laserjet-pro-mfp-m127fn-software-for-your-device/"><u>Get the Official HP LaserJet Pro MFP M127FN Software for Your Device</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-the-missing-graphics-device-in-starcraft-2-solution-guide/"><u>How to Fix the Missing Graphics Device in StarCraft 2 – Solution Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-2023s-top-8-video-sensations-a-facebook-deep-dive/"><u>In 2024, 2023'S Top 8 Video Sensations  A Facebook Deep Dive</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premium-mobile-and-desktop-avc-viewer-with-ease/"><u>In 2024, Premium Mobile and Desktop AVC Viewer with Ease</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-prime-facebook-extra-tools-secure-file-grabber-firefox-version/"><u>In 2024, Prime Facebook Extra Tools  Secure File Grabber, Firefox Version</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-transform-your-fb-advertising-simplify-with-a-free-toolkit/"><u>In 2024, Transform Your FB Advertising  Simplify with a Free Toolkit</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-virtual-enhancer-facebook-story-sinker/"><u>In 2024, Virtual Enhancer  Facebook Story Sinker</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/interconnecting-platforms-sharing-tiktok-to-facebook/"><u>Interconnecting Platforms  Sharing TikTok to Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/key-practices-to-amplify-your-social-media-impact-on-fb/"><u>Key Practices to Amplify Your Social Media Impact on FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/learn-to-prevent-persistent-commercials-in-digital-platforms-for-2024/"><u>Learn to Prevent Persistent Commercials in Digital Platforms for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/minimize-mbs-avoid-fb-video-ads-for-2024/"><u>Minimize MBs  Avoid FB Video Ads for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-say-goodbye-to-crooked-videos-10-best-online-rotation-tools-for-2024/"><u>New Say Goodbye to Crooked Videos 10 Best Online Rotation Tools for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/plant-and-play-stardew-esque-gaming-winners/"><u>Plant and Play  Stardew-Esque Gaming Winners</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-itel-a60-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Itel A60 Running Slow and Freezing | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/solving-the-yous-problem-seeing-myself-on-social-media/"><u>Solving the 'You's Problem  Seeing Myself on Social Media</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-roadmap-to-creating-unforgettable-facebook-cover-videos/"><u>The Roadmap to Creating Unforgettable Facebook Cover Videos</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-use-korean-to-english-video-translators-for-creators/"><u>Updated In 2024, How To Use Korean to English Video Translators for Creators</u></a></li>
+</ul></div>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
