@@ -1,0 +1,181 @@
+---
+title: "[Updated] What Every User Should Know About Facebook's Latest Shift"
+date: 2024-08-24T08:41:38.363Z
+updated: 2024-08-25T08:41:38.363Z
+tags:
+  - ai video
+  - ai facebook
+  - ai facebook video
+categories:
+  - ai
+  - facebook
+description: "This Article Describes [Updated] What Every User Should Know About Facebook's Latest Shift"
+excerpt: "This Article Describes [Updated] What Every User Should Know About Facebook's Latest Shift"
+keywords: "FB's Latest Shift,User Knowledge Update,Social Media Trends,Privacy on Facebook,Digital Platform Changes,Online Networking Shifts,Data Use in Social Apps"
+thumbnail: https://thmb.techidaily.com/e12562333e85045ab9221a99e913b83b793150ee785e5f59fee7c9f18bec3976.png
+---
+
+## What Every User Should Know About Facebook's Latest Shift
+
+# Everything About Facebook
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+## What is Facebook
+
+ Facebook has redefined the meaning of social networking. It had brought turbulence in the social media world back in 2004 which were embraced by everybody and it is carrying that charm until now! It is a social networking company registered under the name of ‘Facebook, Inc’ which allows its users to communicate with other people. These other people are also defined by users and can be their family, friends, coworkers or potential friends! Mark Zuckerberg, founder of Facebook created this boon of social media in 2004 while he was enrolled at Harvard University with a vision of designing a media platform for college students. But nobody would have imagined its progress graph! By 2006 anyone over the age of 13 with a valid email address could join Facebook. So this social networking website which was supposed to allow users to create profile, share moments through uploading photos and videos and assisted in staying in touch with family and friends for a long time, transformed into one of the much sought after platforms with more than 1 billion users worldwide.
+
+ Facebook is available in 37 different languages which truly reflect its respect towards diversity and it also supports various translation applications if you want to improve existing translation. Being the largest social media network was probably not enough for Facebook and hence the three key public features of Facebook which it has launched are classified as follows:
+
+**Marketplace:** It allows you to discover, buy and sell items in your community. You can post and respond to all sorts of ads of your region.
+
+**Groups:** It allows members to coordinate with near and far friends having common interests. The definition of common interests is open ended, it can be a bachelor party, concert bucket list or project updates, Facebook group lets you communicate in searchable place.
+
+**Events:** These encourage boosting engagement, get people talking, and provide helpful information and links for an upcoming event and ultimately planning and tracking who plans to attend. 650+ million users make use of Facebook Events and 100 million on an average every day to publicize the event!
+
+## Common Facebook Terms which you should know
+
+ If you haven’t joined Facebook until now and feel left out in the group of your friends when they discuss about liking and reacting to a post, updating status, hashtags and tagging then don’t worry! There are lots of terms and phrases which can be termed as ‘Language of Facebook’. These words were in dictionary earlier also but Facebook reinvented their purpose! Warning: They might seem confusing at first but once you enter this world, then these will become your prime words!
+
+**Status Update:** These are text based posts that can describe your mood, thoughts or anything which you want to share with your Facebook friends.
+
+**Timeline:** This is like a page dedicated to you (As good as your profile). You can share information including your pictures, basic information like your favorite books, entertainment shows, celebrity etc.
+
+**News Feed:** You can term it as combination of status and timeline of your friends. News Feed shows you updates from your friends and recent posts from the Facebook pages that you follow. This is where you spend your most of the time!
+
+**Like:** If you enjoyed and want to reach on the profiles of your friends then you choose to Like or Dislike the post.
+
+**Tag:** It is like marking your friends who hold relevance to the pictures or status that you are uploading on your timeline. These then appears on the timeline of your friends and in newsfeed of other friends.
+
+**Notification:** It is like an update from Facebook of the events and occasions where someone has interacted with you. It might be through reacting on what you shared or by posting something on your wall etc.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Exploring Facebook
+
+ Facebook is user friendly and once you create your account, you will feel like exploring all its options and becoming familiar with its adorable features. Here is a quick guide to Homepage and timeline:
+
+#### The homepage
+
+ As soon as sign in to your Facebook account, you would be redirected to the News Feed. It means your homepage consists of information and images which your friends have shared. It consists of Menu at the very left which contains quick hyperlinks to Events, fun apps and groups that you are part of.
+
+ On the top right, there is a panel which shows notifications, new friends requests and chat messages. This whole section is termed as recent activity panel.
+
+ On the very top you would see a blank space reading like ‘What’s on your mind?’ This is the publisher space where you can update status or add pictures and videos that you would like to share.
+
+ News Feed as we discussed above is what your friends are sharing for you to see. Right panel which read as trending Stories highlights the posts which other are reading and you can click on those hyperlinks for detailed story if you are interested in them.
+
+![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
+#### The Timeline
+
+ The Timeline which represents your profile and is visible to your friends and public (subject to your privacy settings) contains inventory of everything which you have shared and which people has tagged you. You can set your profile picture by simply browsing through your picture library. Profile picture is the one which your friends will see when you will comment anything on Facebook. Coverphoto is a picture which can be seen by anybody when they visit your timeline. You can set your personal picture or wallpaper also to express your personality and interests. You can make your profile more informative by adding your school, college, workplace, relationship status and your location etc.
+
+ In short, timeline shows everything which forms part of your profile and also the activities which your friends might have posted on your timeline.
+
+![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How Facebook usage is diversified?
+
+ There are ample of ways to communicate and staying in touch such as emails, instant messaging or SMS but Facebook has dominated all of them except for professional workspace! Let’s check out what makes Facebook so unique and lovable that you feel like sharing the occasion and celebration with your circle in that very moment!
+
+ Things which you can do with Facebook are not limited to below:
+
+* Allows you to login into different portals as websites have integrated Facebook for the login mechanism which means that with similar login credentials you can operate on different websites.
+* Provides a platform to connect with your idols and celebs
+* Gives you ample of space to share your thoughts and pictures to keep everybody updated
+* Chat unlimited with your online friends
+* Encourage your friends to join informative groups and events
+* Share your feelings for your friends and tag them to pictures which suit their personality
+* Play games and enhance your circle
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How Does Facebook Sharing Work?
+
+ Facebook is unique and so are the sharing norms! While your conversations at email or IM’s are private, the content that you share on Facebook including photos and links are public. This is because Facebook has emerged as an open network for communication without any sort of limitations and is thus inclined towards being public although you can define privacy and sharing settings for some shared posts.
+
+ The privacy tools can be applied on few posts and information, the remaining information (such as your cover picture) is visible to everybody. Facebook is designed to be more open and social than traditional communication tools. You will learn more in this Facebook tutorial.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-fb-ad-videos-made-easy-utilize-free-video-making-kit/"><u>[New] 2024 Approved  FB Ad Videos Made Easy  Utilize Free Video-Making Kit</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-how-does-youtube-count-views-its-not-as-simple-as-you-think/"><u>[New] 2024 Approved  How Does YouTube Count Views? It's Not as Simple as You Think</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-initiate-online-interactions-with-this-guide-to-facebook-registration/"><u>[New] 2024 Approved  Initiate Online Interactions with This Guide to Facebook Registration</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-amplify-your-fb-video-content-a-complete-music-integration-tutorial/"><u>[New] Amplify Your FB Video Content  A Complete Music Integration Tutorial</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-fb-link-downloader-bundle-access-to-8-free-online-solutions-for-2024/"><u>[New] FB Link Downloader Bundle  Access to 8 Free, Online Solutions for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-boost-your-workflow-with-these-8-best-facebook-timers/"><u>[New] In 2024, Boost Your Workflow with These 8 Best Facebook Timers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-instant-media-transformation-enhance-fb-videos-to-hdmp4-on-the-fly/"><u>[New] Instant Media Transformation  Enhance FB Videos to HD/MP4 on the Fly</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-visionary-viewers-verdict-your-channel-vs-contenders-content/"><u>[New] The Visionary Viewers' Verdict  Your Channel Vs. Contenders’ Content</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-understanding-facebook-story-algorithms-how-to-optimize-for-success/"><u>[New] Understanding Facebook Story Algorithms  How to Optimize for Success</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2023s-leading-youtube-and-facebook-collaboration-8-essential-views-for-2024/"><u>[Updated] 2023'S Leading YouTube & Facebook Collaboration - 8 Essential Views for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-building-a-robust-360-video-broadcast-framework-for-fb/"><u>[Updated] 2024 Approved  Building a Robust 360 Video Broadcast Framework for FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-a-comprehensive-list-of-excellent-fb-cover-photo-creators-for-2024/"><u>[Updated] A Comprehensive List of Excellent FB Cover Photo Creators for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-fb-video-mastery-on-windows-and-mobile-a-unified-guide-for-users/"><u>[Updated] FB Video Mastery on Windows & Mobile  A Unified Guide for Users</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-facebook-video-downloader-winmacosmobile-power-up/"><u>[Updated] In 2024, Facebook Video Downloader  Win/macOS/Mobile Power-Up</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unveiling-techniques-to-extract-fb-content/"><u>[Updated] In 2024, Unveiling Techniques to Extract FB Content</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-revive-lost-media-icons-on-facebook-users-for-2024/"><u>[Updated] Revive Lost Media Icons on Facebook Users for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-sparkling-ideas-creating-engaging-fb-ad-videos-for-2024/"><u>[Updated] Sparkling Ideas  Creating Engaging FB Ad Videos for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-taking-control-of-your-digital-footprint-new-facebook-guide/"><u>[Updated] Taking Control of Your Digital Footprint  New Facebook Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-asmr-magic-made-simple-high-performance-at-economic-prices/"><u>2024 Approved  ASMR Magic Made Simple  High Performance at Economic Prices</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-deciphering-content-control-youtube-vs-creative-commons-license/"><u>2024 Approved  Deciphering Content Control  YouTube Vs. Creative Commons License</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-elite-list-best-apps-for-live-basketball-and-international-football-games/"><u>2024 Approved  Elite List  Best Apps for Live Basketball and International Football Games</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-leveraging-youtube-and-apple-tv-integration-for-enhanced-fb-video-watching/"><u>2024 Approved  Leveraging YouTube & Apple TV Integration for Enhanced FB Video Watching</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-navigate-the-tiktok-twitter-connection/"><u>2024 Approved  Navigate the TikTok-Twitter Connection</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/discover-the-lesser-known-page-picks-for-memelings-for-2024/"><u>Discover the Lesser-Known Page Picks for Memelings for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/economical-android-communication-tools-best-of-10-for-2024/"><u>Economical Android Communication Tools, Best of 10 for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/efficient-use-of-obs-with-zoom-video-platform/"><u>Efficient Use of OBS with Zoom Video Platform</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/efficiently-explore-every-entry-facebook-profile-hunt-101-for-2024/"><u>Efficiently Explore Every Entry  Facebook Profile Hunt 101 for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/from-observer-to-participant-enrich-your-online-experience-with-fb-for-2024/"><u>From Observer to Participant  Enrich Your Online Experience with FB for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-infinix-hot-30i-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Infinix Hot 30i Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-digital-footprint-and-interactive-iconography-honors/"><u>In 2024, Digital Footprint and Interactive Iconography Honors</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-effortless-viewing-automatic-playback-of-youtube-videos-on-social-media/"><u>In 2024, Effortless Viewing  Automatic Playback of YouTube Videos on Social Media</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-samsung-galaxy-a15-4g-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Samsung Galaxy A15 4G to Mac? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastering-in-stream-fb-ad-configurations-and-impact-assessment-for-2024/"><u>Mastering In-Stream FB Ad Configurations & Impact Assessment for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-poco-m6-5g-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Poco M6 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/streaming-directly-from-facebook-to-your-screen/"><u>Streaming Directly From Facebook to Your Screen</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ultimate-walkthrough-activating-microsoft-copilot-for-mac-users/"><u>The Ultimate Walkthrough: Activating Microsoft Copilot for Mac Users</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unlocking-videos-on-fb-with-2023-mobile-utility/"><u>Unlocking Videos on FB with 2023 Mobile Utility</u></a></li>
+</ul></div>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>

@@ -1,0 +1,190 @@
+---
+title: "\"[Updated] 2024 Approved  From Recording to Revelation  A Comprehensive Guide to 360 Videos on Facebook\""
+date: 2024-08-24T08:48:34.360Z
+updated: 2024-08-25T08:48:34.360Z
+tags:
+  - ai video
+  - ai facebook
+  - ai facebook video
+categories:
+  - ai
+  - facebook
+description: "\"This Article Describes [Updated] 2024 Approved: From Recording to Revelation: A Comprehensive Guide to 360 Videos on Facebook\""
+excerpt: "\"This Article Describes [Updated] 2024 Approved: From Recording to Revelation: A Comprehensive Guide to 360 Videos on Facebook\""
+keywords: "\"360-Video Guide,Video Revelation,FB Video Guide,Social Media 360,Immersive Videos,Facebook 360 Content,Engaging FB Stories\""
+thumbnail: https://www.lifewire.com/thmb/hndfovaQV_DsrmQv5Imdq0HljaE=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/nintendo-switch-vs-nintendo-switch-lite-01-61592395e9e44fc78403c7e99105de84.jpg
+---
+
+## From Recording to Revelation: A Comprehensive Guide to 360 Videos on Facebook
+
+# How to Make and Upload 360 Video to Facebook
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ The recently updated features of Facebook allow users to update all new stories of life on profile in much interactive way. You can show a different world to all your viewers with [360 videos and photos](https://tools.techidaily.com/wondershare/filmora/download/).
+
+ You will be glad to know that Facebook is now compatible with VR headsets that were earlier limited to Oculus Rift etc. It is time to get started with new experience to enjoy 360 videos on your own Facebook Profile.
+
+* [Part 1: What is 360 Video](#part1)
+* [Part 2: How to Make 360 Video for Facebook](#part2)
+* [Part 3: How to Upload 360 Video to Facebook](#part3)
+* [Part 4: Facebook 360 Video & Gear VR](#part4)
+
+## What is 360 Degree Video?
+
+ Most of the cameras these days are capable enough to capture shoots with 170 degree wide coverage and in case if you want to show the scene behind the camera then it becomes essential to use two 170 degree FOV cameras back to back. Hence, for capturing all six directions in a single footage you may require connecting 6 cameras together while adjusting their focus in different directions. The resultant content is known as 360 degree video. Many smart algorithms have been developed by professionals to get these videos stitched together to develop complete 360 degree content in a single footage. This is something like standing in the centre of a sphere and viewing everything in all directions.
+
+ These 360 degree videos have inspired the concept of virtual reality but these equipments are quite expensive. But as soon as the technology is gaining popularity, chances are to get VR gear at lower price in near future.
+
+ So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
+
+## How to make a 360 Degree video on Facebook?
+
+ Users can easily develop 360 degree videos with the help of spherical cameras or specially designed applications. As these videos are gaining more and more popularity these days so now spherical cameras are available at very low cost that everyone can buy them. Here is the list of few highly rated Facebook compatible 360 degree cameras:
+
+* Panono
+* 360Fly
+* IC Realtech ALLie
+* [LG 360 Cam](https://tools.techidaily.com/wondershare/filmora/download/)
+* [Samsung Gear 360](https://tools.techidaily.com/wondershare/filmora/download/)
+* [Giroptic 360 Cam](https://tools.techidaily.com/wondershare/filmora/download/)
+* [Ricoh Theta S](https://tools.techidaily.com/wondershare/filmora/download/)
+
+ All these cameras are capable enough to develop 360 degree footage with ease.
+
+ Most of the reviewers till now have recommended 360Fly for Facebook 360 videos due to its compact size and handy features. Its performance is somewhere linked to GoPro quality. This camera unit is currently available in two models: 360 Camera with 4K ability at $356.69 and 360 HD camera with price tag of $219.95 only. This camera can easily develop Facebook compatible content.
+
+ In case if you are using any other device to capture your 360 degree videos then you may need to make manual adjustments for your 360 video formats.
+
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
+## How to upload 360 degree videos on Facebook
+
+ Uploading 360 video to Facebook is easy, just follow the steps below:
+
+ Step 1: Users need to follow the same steps as they usually follow to add normal videos to their facebook pages.
+
+ Step 2: Before you hit the publish button on your screen, go to the   **Advanced** tab.
+
+![Facebook 360 video upload](https://images.wondershare.com/filmora/article-images/facebook-360-video-upload.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
+ Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
+
+![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
+
+ Step 5: Finally click the **Publish** option.
+
+ Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Facebook 360 Video & Gear VR
+
+ As now, it is possible to add 360 degree videos on Facebook so people these days are searching for new formats. These 360 degree videos can capture thrills and action from sports games or can show you things that are happening behind the camera. They can also help viewers to explore various beautiful locations throughout the world.
+
+ You will be glad to know that Facebook 360 is now compatible with Samsung Gear VR device, as earlier it was supposed to work only on iOS platform. So now you can explore the world of 360 videos with ease.
+
+**Related:** [Samsung Gear VR vs. Google Cardboard](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### How to view 360 videos and photos from Facebook on Samsung Gear VR?
+
+ To view 360 video from Facebook on the Samsung Gear VR, you need download the Facebook 360 app from the Oculus Store first and then launch the Facebook 360 app at your Gear VR headset, then you can perform the following actions:
+
+**Explore:** It will help users to discover many interesting 360 videos or photos that are already updated by individual creators or big organizations.
+
+**Following:** It will assist you to go through the 360 content that your friends have recently updated on Facebook 360 app.
+
+**Saved:** With this feature users can get connected to their saved 360 degree content.
+
+**Timeline:** When you are ready to update your own 360 degree videos or wish to go through your earlier updates then visit Timeline.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-android-and-iphones-essential-apps-to-elevate-fb-likes-count-quickly/"><u>[New] 2024 Approved  Android & iPhone's Essential Apps to Elevate FB Likes Count Quickly</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-fb-video-grabber-hq-download-guide/"><u>[New] 2024 Approved  FB Video Grabber  HQ Download Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-mastering-cc-license-application-a-comprehensive-guide/"><u>[New] 2024 Approved  Mastering CC License Application  A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-mastering-the-art-of-auto-play-youtube-content-in-fb/"><u>[New] 2024 Approved  Mastering the Art of Auto-Play YouTube Content in FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-prime-mp4-conversion-for-seamless-facebook-sharing/"><u>[New] 2024 Approved  Prime MP4 Conversion for Seamless Facebook Sharing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-discover-the-best-tools-to-grab-fb-lite-videos/"><u>[New] Discover the Best Tools to Grab FB Lite Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-exploring-facebooks-2023-video-revolution-the-rise-of-compact-clips/"><u>[New] Exploring Facebook's 2023 Video Revolution  The Rise of Compact Clips</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-find-your-perfect-editor-top-15-budget-friendly-online-solutions/"><u>[New] Find Your Perfect Editor  Top 15 Budget-Friendly Online Solutions</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-security-victory-making-your-fb-available-again/"><u>[New] In 2024, Security Victory  Making Your FB Available Again</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-proven-3-step-framework-for-creating-persuasive-facebook-ad-content/"><u>[New] Proven 3-Step Framework for Creating Persuasive Facebook Ad Content</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-crafting-an-authentic-online-presence-in-the-world-of-fb/"><u>[Updated] 2024 Approved  Crafting an Authentic Online Presence in the World of FB</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-essential-tips-on-calculating-your-youtube-traffic-and-earnings/"><u>[Updated] 2024 Approved  Essential Tips on Calculating Your YouTube Traffic & Earnings</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-from-captured-moments-to-digital-fame-broadcasting-with-gopro-and-social-platforms/"><u>[Updated] 2024 Approved  From Captured Moments to Digital Fame  Broadcasting with GoPro & Social Platforms</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-get-your-facebook-data-fast-and-free-online/"><u>[Updated] 2024 Approved  Get Your Facebook Data Fast & Free Online</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-instantly-retire-your-digital-diaries-fb/"><u>[Updated] 2024 Approved  Instantly Retire Your Digital Diaries (FB)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-digital-enhancement-social-story-recorder/"><u>[Updated] Digital Enhancement  Social Story Recorder</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-easy-effective-and-accurate-method-to-download-fb-gifs-anywhere/"><u>[Updated] Easy, Effective and Accurate Method to Download FB GIFs Anywhere</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-elevate-your-gopro-footage-live-streaming-on-facebook-and-periscope/"><u>[Updated] Elevate Your Gopro Footage  Live Streaming on Facebook and Periscope</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-facebook-update-essential-strategies-for-social-media-savvy-for-2024/"><u>[Updated] Facebook Update  Essential Strategies for Social Media Savvy for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-how-to-proficiently-use-twitter-archives-for-2024/"><u>[Updated] How to Proficiently Use Twitter Archives for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-how-to-stream-a-pre-recorded-video-live-on-facebook-in-2024/"><u>[Updated] How to Stream A Pre-Recorded Video Live on Facebook, In 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-broadcast-strategies-combining-facebook-and-tv/"><u>[Updated] In 2024, Broadcast Strategies  Combining Facebook and TV</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-digital-legacy-preservation-saving-fb-video-conversations/"><u>[Updated] In 2024, Digital Legacy Preservation  Saving FB Video Conversations</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-efficient-facebook-video-upload-on-computer-and-mobile-systems/"><u>[Updated] In 2024, Efficient Facebook Video Upload on Computer & Mobile Systems</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-prime-fb-extra-tools-enhanced-firefox-version-compatibility/"><u>[Updated] In 2024, Prime FB Extra Tools  Enhanced Firefox Version Compatibility</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-revealing-hidden-group-media-on-messenger-app/"><u>[Updated] In 2024, Revealing Hidden Group Media on Messenger App</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-top-15-ff-extensions-for-easy-fb-video-download/"><u>[Updated] In 2024, Top 15 FF Extensions For Easy FB Video Download</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-mastering-the-art-of-fixing-android-and-ios-videos-in-fb-messaging-for-2024/"><u>[Updated] Mastering the Art of Fixing Android & iOS Videos in FB Messaging for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-minimize-mbs-avoid-fb-video-ads-for-2024/"><u>[Updated] Minimize MBs  Avoid FB Video Ads for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-restore-lost-airdrop-functionality-with-easy-solutions-for-iosmacos/"><u>[Updated] Restore Lost Airdrop Functionality with Easy Solutions for iOS/macOS</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-step-into-the-archive-old-stories-on-facebook-for-2024/"><u>[Updated] Step Into the Archive  Old Stories on Facebook for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-anatomy-of-apple-m1-chip-redefining-tech/"><u>[Updated] The Anatomy of Apple M1 Chip, Redefining Tech</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-top-5-ios-downloader-tools-seamless-access-to-fb-videos-and-events-for-2024/"><u>[Updated] Top 5 iOS Downloader Tools  Seamless Access to FB Videos & Events for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-virtual-collaboration-share-your-screens-with-facebook-viewers-for-2024/"><u>[Updated] Virtual Collaboration  Share Your Screens with Facebook Viewers for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-direct-engagement-broadcasting-from-your-xbox-to-fb/"><u>2024 Approved  Direct Engagement  Broadcasting From Your Xbox to FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-eliminate-grainy-footage-tips-for-social-media-apps/"><u>2024 Approved  Eliminate Grainy Footage  Tips for Social Media Apps</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-fb-video-mastery-on-windows-and-mobile-a-unified-guide-for-users/"><u>2024 Approved  FB Video Mastery on Windows & Mobile  A Unified Guide for Users</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-how-to-search-comments-on-youtube-quickly/"><u>2024 Approved  How to Search Comments on YouTube Quickly?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-simplewin10-screen-grab-utility/"><u>2024 Approved  SimpleWin10 Screen Grab Utility</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-smooth-reels-enhancing-android-video-clarity/"><u>2024 Approved  Smooth 'Reels'  Enhancing Android Video Clarity</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-lava-yuva-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-can-you-view-all-shared-videos-and-photos-on-messenger-in-2024/"><u>How Can You View All Shared Videos And Photos on Messenger, In 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/icloud-unlocker-download-unlock-icloud-lock-for-your-iphone-13-mini-by-drfone-ios/"><u>iCloud Unlocker Download Unlock iCloud Lock for your iPhone 13 mini</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-enrich-your-screen-time-integrating-facebook-live-into-roku/"><u>In 2024, Enrich Your Screen Time  Integrating Facebook LIVE Into Roku</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-ideal-choices-priority-6-fb-lite-vids/"><u>In 2024, Ideal Choices  Priority 6 FB Lite Vids</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-in-the-spotlight-top-viewers-choice/"><u>In 2024, In the Spotlight  Top Viewers' Choice</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Tecno Pova 5? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lettura-intermedia-per-comunicare-i-numeri-italiani/"><u>Lettura Intermedia per Comunicare I Numeri Italiani</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-match-made-in-heaven-syncing-colors-across-video-clips-in-powerdirector-for-2024/"><u>New Match Made in Heaven Syncing Colors Across Video Clips in PowerDirector for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/no-more-interruptions-streaming-on-upgraded-windows-11/"><u>No More Interruptions: Streaming on Upgraded Windows 11</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/streamline-broadcasting-going-from-xbox-to-fb-live/"><u>Streamline Broadcasting  Going From Xbox to FB Live</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/streamlining-your-youtube-music-journey-for-2024/"><u>Streamlining Your YouTube Music Journey for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-path-to-pinpointing-your-liked-content-on-facebook-for-2024/"><u>The Path to Pinpointing Your Liked Content on Facebook for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-thrifty-flyers-choice-comprehensive-review-of-the-holy-stone-hs170-predator-mini-drone/"><u>The Thrifty Flyer's Choice: Comprehensive Review of the Holy Stone HS170 Predator Mini Drone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unlock-follower-growth-secrets-on-facebook-in-10-simple-ways-for-2024/"><u>Unlock Follower Growth Secrets on Facebook in 10 Simple Ways for 2024</u></a></li>
+</ul></div>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
