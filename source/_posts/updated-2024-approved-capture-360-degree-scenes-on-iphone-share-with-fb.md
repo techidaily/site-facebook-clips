@@ -1,0 +1,136 @@
+---
+title: "\"[Updated] 2024 Approved  Capture 360-Degree Scenes on iPhone, Share with FB\""
+date: 2024-08-29T06:00:21.539Z
+updated: 2024-08-30T06:00:21.539Z
+tags:
+  - ai video
+  - ai facebook
+  - ai facebook video
+categories:
+  - ai
+  - facebook
+description: "\"This Article Describes [Updated] 2024 Approved: Capture 360-Degree Scenes on iPhone, Share with FB\""
+excerpt: "\"This Article Describes [Updated] 2024 Approved: Capture 360-Degree Scenes on iPhone, Share with FB\""
+keywords: "IPhone 360 Photos,Social Media Live Feeds,Facebook Image Sharing,Apple Camera Sphericals,Virtual Reality Scenes,IOS Panorama Viewing,Share 360 Images FB"
+thumbnail: https://thmb.techidaily.com/05a2bebe19d9c7fab4bc3ec91fa821946b0580297afafdcde864123fe0ad252d.jpg
+---
+
+## Capture 360-Degree Scenes on iPhone, Share with FB
+
+# How to Take 360 Videos on iPhone for Facebook
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ The advent of VR headset along with the ability to upload videos and 360 photos on Facebook has created a new craze for 360 degree photos. Nowadays any iOS user can take stunning 360 degree photos on their iPhone and iPad and upload them directly on Facebook. If you are an iPhone user who is wondering how to create 360 degree photos and videos should keep reading this article where we are going to explain you everything about capturing 360 degrees pictures and videos.
+
+## How to take 360 videos from your iPad and iPhone without any additional hardware for FB
+
+ The introduction of a variety of VR headsets along with a range of cameras with 360 degree video shooting ability is a clear indicator of the fact that the future lies with Virtual Reality. However not all tech enthusiasts would be able to afford these super expensive cameras. This might lead one to believe that 360 degree videos aren’t for people like you and me. However, this is not the fact. In the last few years Apple has enhanced the iPhone cameras to a great extent and these days you can use your iPhone to create casual 360 degree videos. Keep reading to find out the easiest way to capture 360 degree videos on your iPad and iPhone with the help of Splash 360\. The best part is that you can do it without spending on any additional hardware.
+
+#### [Splash](https://itunes.apple.com/us/app/splash-360-video-camera-virtual-reality-community/id1057262494?mt=8)
+
+ This is an all new application for iPhone which would help you come up with superb 360 degree photos and videos. It is incredible that Splash has created an application which would allow the users to capture up to 10 videos of 2 seconds duration and then stitch them together to create a new video. All this can be done on your smartphone. It goes without saying that the best part of this application is that you can download it for free. With the help of Splash you will be able to directly upload all your photos and videos on Facebook or share them with your friends through a link. The Splash app also comes with full support for Google Cardboard headsets which would let you fully concentrate in the 360 degree environment.
+
+#### Capturing with Splash on iPhone
+
+ Shooting 360 degree videos on Splash is almost child play and it can be mastered even by novices. Let’s take a step by step look at how to shoot 360 degree videos with Splash.
+
+* Open the Splash app and you will be able to see a green button with a camera icon in the home page. Tapping this green button would allow the application to capture videos from the camera of your iPhone.
+* In the video interface of the Splash app you will be able to capture a 360 degree video just like capturing a panorama. All you need to do is point the phone at the position where you want to start and the press the shutter button and hold it for shooting the video. Now you can change the position of your camera in whichever way you want and keep recording till you have finished shooting the sphere.
+* When you have recorded all the angles by rotating the camera of your iPhone you need to hit the green checkmark.
+* In case you are not looking forward to capturing the entire sphere you can always choose to stop shooting midway.
+* Lastly you need to save your work before you hit the share button. The sharing option list is right there on the screen- all you have to do is just single tap on it and post your creation wherever you want.
+
+ Tips: Like any other 360 degree recording application which is dependent on the movement of the phone for capturing an entire sphere, the video quality of Splash is going to depend on the stability of the phone while shooting. Therefore make sure not to move much while shooting. No matter how hard you try to keep your hands steady there is surely going to be a few jerks. This is precisely why you need to use a small tripod where you can position the phone and rotate it. Using a tripod is the safest bet since it not only ensures better stability but also gives you enhanced video quality.
+
+## Taking 360 degree videos on iPhone and iPad with Attached Lens
+
+ If you want to create a stunning 360 degree video with your iOS mobile device then you need to make use of an all new 3K 360 degree camera called Insta360 Nano. Insta360 Nano which is available for less than $200 on Amazon is one of the cheapest devices for capturing real cool 360 degree videos. It can also be used as a standalone 360 degree cam which just needs to be connected with your iPhone for viewing your captures, tweaking the settings and for getting a live preview.
+
+#### Capturing with Insta360 on iPhone
+
+* To capture a video/photo just connect the Insta360 Nano to your iPhone via lightning.
+* Now launch the app and hit the shutter button to shoot. Make sure to keep your camera as still as possible for best results.
+* Another way is to insert a Micro SD card into the TF card slot at the bottom of the Insta360 Nano and hit the shutter when the LED turns green in colour.
+
+#### Sharing on FB
+
+* In order to share your captured video you need to hit the Share icon on the top right of the interface.
+* Now choose the option which would allow you to export it as a panorama.
+* After the export is complete just open the Facebook app and hit the option for uploading photos and videos before uploading your 360 degree file.
+* Now just select your hashtags and captions and your 360 capture can be viewed by all your friends and followers.
+
+ If your upload doesn’t go right the first time you need to delete your draft and re-upload it. Since Facebook itself does the job of stitching your 360 degree video together, uploading it can take quite some time. Usually a 20 second clip takes about 5-10 minutes to upload. Your video would appear with a 360 logo on the newsfeed of your friends so as to encourage viewers to enjoy this new 360 degree experience.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-clearing-the-path-for-smooth-fb-stories-posting-and-playback/"><u>[New] 2024 Approved  Clearing the Path for Smooth FB Stories Posting and Playback</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-elite-mp4-streamer-system-for-fb/"><u>[New] 2024 Approved  Elite MP4 Streamer System for FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-navigating-video-sources-and-uploading-on-instagram/"><u>[New] 2024 Approved  Navigating Video Sources and Uploading on Instagram</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-skyrocket-sales-traffic-with-the-15-cutting-edge-facebook-gadgets/"><u>[New] 2024 Approved  Skyrocket Sales Traffic with the 15 Cutting-Edge Facebook Gadgets</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-essential-steps-for-adding-videos-to-your-instagram-story/"><u>[New] Essential Steps for Adding Videos to Your Instagram Story</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-expert-endorsed-facebook-videos-now-easily-converted-to-mp4-hd/"><u>[New] Expert-Endorsed  Facebook Videos Now Easily Converted to MP4 HD</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-make-a-lasting-impression-with-your-facebook-profile-story/"><u>[New] How to Make a Lasting Impression with Your Facebook Profile Story</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-lightening-your-day-with-humor-comical-facebook-detention-memes/"><u>[New] In 2024, Lightening Your Day with Humor  Comical Facebook Detention Memes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-pioneering-the-path-to-digital-dominance-wirecast-livestreams-on-facebook/"><u>[New] In 2024, Pioneering the Path to Digital Dominance  Wirecast Livestreams on Facebook</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-the-comprehensive-affinity-guide-banishing-backgrounds-with-ease/"><u>[New] The Comprehensive Affinity Guide  Banishing Backgrounds with Ease</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-essentials-of-making-professional-level-facebook-reels/"><u>[New] The Essentials of Making Professional-Level Facebook Reels</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-crafting-success-on-facebook-a-beginners-and-pro-guide-compilation/"><u>[Updated] 2024 Approved  Crafting Success on Facebook  A Beginner's & Pro Guide Compilation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-essential-hash-strategies-for-optimizing-youtube-gameplay-videos/"><u>[Updated] 2024 Approved  Essential Hash Strategies for Optimizing YouTube Gameplay Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-farmers-fields-the-essential-10-agriculture-titles-for-playmates/"><u>[Updated] 2024 Approved  Farmers' Fields  The Essential 10 Agriculture Titles for Playmates</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-navigating-the-best-practices-for-fb-video-advertising/"><u>[Updated] 2024 Approved  Navigating the Best Practices for FB Video Advertising</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-cutting-edge-video-sharing-from-facebook-to-whatsapp/"><u>[Updated] Cutting-Edge Video Sharing From Facebook to WhatsApp</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-designing-high-impact-tiktok-content-on-desktop/"><u>[Updated] Designing High Impact TikTok Content on Desktop</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-dial-up-discovery-mastering-quick-search-on-social-media/"><u>[Updated] In 2024, Dial-Up Discovery  Mastering Quick Search on Social Media</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-maximizing-impact-a-compreehensive-guide-for-setting-and-assessing-fb-in-stream-ads/"><u>[Updated] In 2024, Maximizing Impact  A Compreehensive Guide for Setting & Assessing FB In-Stream Ads</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-revolutionize-your-mobile-viewing-experience/"><u>[Updated] In 2024, Revolutionize Your Mobile Viewing Experience</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-step-by-step-procedures-swapping-out-your-facebook-backdrop/"><u>[Updated] In 2024, Step-by-Step Procedures  Swapping Out Your Facebook Backdrop</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-hidden-layers-behind-facebooks-emblematic-blue-icon-in-messages/"><u>[Updated] In 2024, The Hidden Layers Behind Facebook's Emblematic Blue Icon in Messages</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-ultimate-guide-to-30-effective-fb-ads-techniques-for-all-businesses/"><u>[Updated] In 2024, The Ultimate Guide to 30 Effective FB Ads Techniques (for All Businesses)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-ultimate-guide-to-selecting-facebook-live-capturers/"><u>[Updated] In 2024, The Ultimate Guide to Selecting Facebook Live Capturers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-resolve-vanished-watch-video-icon-issue-2023/"><u>[Updated] Resolve Vanished Watch Video Icon Issue, 2023</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-revolutionary-tactics-for-enhanced-roi-in-animated-facebook-advertising-for-2024/"><u>[Updated] Revolutionary Tactics for Enhanced ROI in Animated Facebook Advertising for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-groupcapture-hd-toolkit-fb-edition/"><u>2024 Approved  GroupCapture HD Toolkit, FB Edition</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-how-to-add-music-to-facebook-story/"><u>2024 Approved  How to Add Music to Facebook Story?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-maximizing-your-reach-live-360-videos-on-facebook/"><u>2024 Approved  Maximizing Your Reach  Live 360 Videos on Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-snapsnatcher-fb-media-extraction/"><u>2024 Approved  SnapSnatcher  FB Media Extraction</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/capturing-the-skies-dji-drone-content-for-facebook-live-for-2024/"><u>Capturing the Skies  DJI Drone Content for Facebook Live for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/chatgpt-ownership-unveiled-the-powerhouse-behind-microsofts-language-marvel/"><u>ChatGPT Ownership Unveiled – The Powerhouse Behind Microsoft’s Language Marvel</u></a></li>
+<li><a href="https://facebook.techidaily.com/comparative-study-oculus-account-security-features/"><u>Comparative Study: Oculus Account Security Features</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/complete-minecraft-gameplay-capture-protocol/"><u>Complete Minecraft Gameplay Capture Protocol</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/covertly-engage-with-fb-live-feeds-for-2024/"><u>Covertly Engage with FB Live Feeds for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-add-link-to-facebook-story-4-ways-for-2024/"><u>How to Add Link to Facebook Story? [4 Ways] for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-increase-fb-engagement-and-sales-the-15-most-effective-analyzers/"><u>In 2024, Increase FB Engagement & Sales  The 15 Most Effective Analyzers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-making-social-video-viewing-a-breeze-on-your-appletv/"><u>In 2024, Making Social Video Viewing a Breeze on Your AppleTV</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-save-my-page-moments/"><u>In 2024, Save My Page Moments</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-share-without-boundaries-with-instasavers/"><u>In 2024, Share Without Boundaries with InstaSavers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-step-by-step-perfecting-fbs-360-streams/"><u>In 2024, Step-by-Step  Perfecting FB's 360 Streams</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/mastering-the-great-outdoors-with-garmins-top-rated-gpsmap-64st-a-complete-overview/"><u>Mastering the Great Outdoors with Garmin's Top-Rated GPSMAP 64St - A Complete Overview</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/maximizing-your-time-best-ways-to-follow-facebook-live/"><u>Maximizing Your Time  Best Ways to Follow Facebook Live</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/online-facebook-video-to-mp3-converters-how-to-convert-fb-to-mp3/"><u>Online Facebook Video to MP3 Converters | How to Convert FB to MP3?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/resolve-google-chrome-video-troubles-fb/"><u>Resolve Google Chrome Video Troubles (FB)</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-solution-for-handling-unreachable-msoidll-files/"><u>Step-by-Step Solution for Handling Unreachable msoi.dll Files</u></a></li>
+<li><a href="https://win11.techidaily.com/uninvited-rav-security-on-pc-origins-and-deletion-steps/"><u>Uninvited Rav Security on PC - Origins and Deletion Steps</u></a></li>
+</ul></div>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->

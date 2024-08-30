@@ -1,0 +1,658 @@
+---
+title: "[Updated] The Hidden Layers Behind Facebook's Emblematic Blue Icon in Messages for 2024"
+date: 2024-08-29T06:04:38.974Z
+updated: 2024-08-30T06:04:38.974Z
+tags:
+  - ai video
+  - ai facebook
+  - ai facebook video
+categories:
+  - ai
+  - facebook
+description: "This Article Describes [Updated] The Hidden Layers Behind Facebook's Emblematic Blue Icon in Messages for 2024"
+excerpt: "This Article Describes [Updated] The Hidden Layers Behind Facebook's Emblematic Blue Icon in Messages for 2024"
+keywords: "FB Blue Logo Inbox,Blue Facebook Emblem,FB Messenger Symbol,Emblematic FB Icon,Blue Social Media Icons,Social Networks Blue Marker,Messaging Platform's Blue,FB Emblem Inbox (Combining 'FB', 'Emblem', And 'Inbox'),Blue Social Marker (Merging 'Blue' With a General Reference to Social Icons),Icon in FB Messenger (Linking 'Icon' Directly to the Platform, 'FB Messenger'),Emblematic Facebook Symbol ('Emblematic' And 'Facebook Symbol'),Blue Logo Marker (A Succinct Version of 'Blue Social Media Icons'),FB Networks Icon (Referring to Multiple Platforms with a Single Term),Messenger Emblematic Sign (Fusing the Key Concept with 'Sign' Or 'Symbol')"
+thumbnail: https://thmb.techidaily.com/033e16fe59890bceeadfe993413908bd7b5cc9fe4734b479814370ac29d24cc7.jpg
+---
+
+## The Hidden Layers Behind Facebook's Emblematic Blue Icon in Messages
+
+##### Powerful Facebook Video Editor - Wondershare Filmora
+
+Provide abundant video effects - A creative video editor
+
+Powerful color correction and grading
+
+Detailed tutorials provided by the official channel
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Have you checked the blue video icon on Facebook Messenger? If no, then enter any of your conversations on Messenger and check the top right corner, there you will see a blue icon.
+
+When you tap on that icon, it will instantly place a video call to the conversation you’ve entered.
+
+With this new feature of Facebook, you can do a video call to an individual to a group of people. Initially, text format is the king, but nowadays, video messages, including video calls and recorded personal videos are in trend.
+
+Also, video calling is a safe alternative to texting while driving or doing home chores. Let’s explore more about the blue video icon Facebook Messenger!
+
+#### In this article
+
+Part 1: [What Does The Blue Video Icon Mean in Messenger](#step1)
+
+Part 2: [How to Start A Video Calling With Someone or A Group?](#step2)
+
+## Part 1\. What Does The Blue Video Icon Mean in Messenger
+
+Social networks are very popular in the world and Facebook is one of them. With other social networks introducing video call options, Facebook has updated its Messenger to offer easy-to-use video chat features to its users.
+
+![Video call on Messenger](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-1.jpeg)
+
+Now, you can find instant Video on Facebook and can use it with ease. The Instant Video gives you the ability to place a video call in less than a few seconds and from a window within the message thread.
+
+On Facebook Messenger, you can see a blue icon video that is helpful for video calling and sharing videos as well.
+
+### **Benefits of Blue Video Icon Facebook Messenger**
+
+* The blue video icon is especially helpful when you are trying to reach your loved one who is living abroad.
+* It is useful as well as helpful in situations when you are trying to explain something graphically to your colleagues and friends.
+* By tapping on the blue video icon, you can quickly start a video call on Facebook Messenger.
+* When you and your friend are viewing any conversation, then the blue video icon on the top right will start eight to pulse.
+* Further, you can initiate a live video streaming by tapping on the blue video icon Facebook Messenger.
+* Now, the users has an amazing option to share recorded video or place a video call through the available blue icon on the Messenger app of Facebook.
+
+The best part is that you do not need to download anything else to use the video feature of Facebook. But, if you are not able to see a blue icon video on your Messenger page, then update your Facebook or Messenger.
+
+If you are a video creator and want to reach more people or want to share your video with Facebook friends, then the blue video icon is very helpful.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
+## Part 2\. How to Start A Video Calling With Someone or A Group?
+
+Are you wondering how to start a video calling on Facebook Messenger? If yes, then this part is for you.
+
+Placing a video call to an individual or a group is very simple with the blue video icon Facebook. Let’ stake a look at how to place a video call with blue video icon to an individual and group of people.
+
+### **2.1 Video Call Through Facebook or Messenger mobile app (iOS and Android)**
+
+Whether you are using iOS device or an Android phone, you can place a video call with Messenger to your family and friends.
+
+Follow the following steps to start a video calling with someone through the Facebook app:
+
+* First, make sure your device is connected to Wi-Fi or any other internet network
+* After this, you will need to install Messenger on your phone if it is not installed already
+* To install Messenger or Facebook, you iOS users can go to App Store, and Android users can go to Play Store.
+
+![Install Facebook Messenger](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-2.jpeg)
+
+* Now, in your Facebook app or Messenger app go to the chat area
+* After this, open a conversation with a person pr group you want to do video chat.
+
+![Start video call on Messenger](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-3.jpeg)
+
+* Now, click on the blue video icon Facebook to start the video calling.
+
+This is how you can start video calling with someone and group on Messenger. It is a great feature to share same topic with number of people on Facebook. You can also create a family group on Messenger to do a video call to everyone in your family circle.
+
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### **2.2 Video Call Through Facebook Messenger on Browser**
+
+If you are using a Windows system or Mac system, you can start a video call by opening Facebook Messenger in the browser.
+
+**Note**: Video calling on messenger.com or facebook.com is only available using the browsers Chrome or Opera.
+
+Here are the steps that you will need to follow to start a video calling on Facebook in browser:
+
+* First, you will need to open Facebook.com or Messenger.com in your browser
+* Now, fill your login credentials of Facebook to open the Messenger or Facebook ID
+* From the chats area, go to the conversation with a person or group you want to start a video call.
+
+![Messenger in browser](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-4.jpeg)
+
+* Click on the blue video icon to start the video call on Facebook Messenger
+
+This is how you can start a video calling with a person or individual on Facebook.
+
+### **How to add other people to Facebook video calls?**
+
+Do you want to start a group video call on Messenger? If yes, then we are here to help you with a solution. Follow the following steps to start a group video calling on Messenger:
+
+**Create a group before placing a video call**
+
+The first way to start a group video calling is to create a group in Messenger. For example, you can create a group with the same people you do group call every time.
+
+![Group video call on Facebook](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-5.jpeg)
+
+To do that, tap the pencil icon at the top right of the Messenger app and then click on create a new group. Now, you can add people in the group and can send a single message to all when you want to start a video call with them.
+
+This will place a call with all participants in the group.
+
+**Add more people to already running video call**
+
+Do you know that Facebook Messenger allows you to add people on an ongoing video call. Ys, you read it right.
+
+Now, you can add more people and group of people to already running video calls on Facebook Messenger. Here are the steps that you will need to follow to add new people in your Facebook video call:
+
+* First, tap on the screen and choose the new “add person” icon
+* Now, tap on the people that you want to add in an ongoing video calls on Messenger
+* After you’ve hung up, you can message everyone in the conversation in an automatically created group chat in your Facebook inbox.
+
+This feature of Messenger is available on both iOS and Android devices. Also, the group video call on Messenger allows you to see up to six people at a time, but you can add up to 50 people in a video call.
+
+When more than six people are on the video call on Facebook, then the main person who is speaking is shown on-screen to everyone. Try a group video call now and share your views on anything with your friend circle on Facebook.
+
+**Tip:** Share your creative videos with blue video icon Facebook Messenger
+
+Do you want to share your views on something via video? If yes, then make your video more attractive and effective with [Wondershare Filmora,](https://tools.techidaily.com/wondershare/filmora/download/) which is a video editing tool and is easy to use as well.
+
+You can make complex videos easily and can create a video quickly by using its advanced features. There are drag and drop creative transitions, filters, titles, and even motion elements that you can add to your videos which you want to share on Messenger.
+
+All in all, this tool is easy to use, and a novice can easily use it to edit a video that he or she wants to share on Facebook with a blue video icon.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Final Words**
+
+We hope that now it is clear to you what is blue icon video Facebook Messenger. You can use the blue icon to start a video call and to share videos with you. The video calling feature in Messenger is very helpful and useful for many people around the globe.
+
+So, whether you are new to Messenger or using it for years, explore its blue video icon for video chatting with family and friends. You can use Wondershare Filmora to create your videos and then can share them on Facebook with your loved ones. Try it once!
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Have you checked the blue video icon on Facebook Messenger? If no, then enter any of your conversations on Messenger and check the top right corner, there you will see a blue icon.
+
+When you tap on that icon, it will instantly place a video call to the conversation you’ve entered.
+
+With this new feature of Facebook, you can do a video call to an individual to a group of people. Initially, text format is the king, but nowadays, video messages, including video calls and recorded personal videos are in trend.
+
+Also, video calling is a safe alternative to texting while driving or doing home chores. Let’s explore more about the blue video icon Facebook Messenger!
+
+#### In this article
+
+Part 1: [What Does The Blue Video Icon Mean in Messenger](#step1)
+
+Part 2: [How to Start A Video Calling With Someone or A Group?](#step2)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Part 1\. What Does The Blue Video Icon Mean in Messenger
+
+Social networks are very popular in the world and Facebook is one of them. With other social networks introducing video call options, Facebook has updated its Messenger to offer easy-to-use video chat features to its users.
+
+![Video call on Messenger](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-1.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
+Now, you can find instant Video on Facebook and can use it with ease. The Instant Video gives you the ability to place a video call in less than a few seconds and from a window within the message thread.
+
+On Facebook Messenger, you can see a blue icon video that is helpful for video calling and sharing videos as well.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### **Benefits of Blue Video Icon Facebook Messenger**
+
+* The blue video icon is especially helpful when you are trying to reach your loved one who is living abroad.
+* It is useful as well as helpful in situations when you are trying to explain something graphically to your colleagues and friends.
+* By tapping on the blue video icon, you can quickly start a video call on Facebook Messenger.
+* When you and your friend are viewing any conversation, then the blue video icon on the top right will start eight to pulse.
+* Further, you can initiate a live video streaming by tapping on the blue video icon Facebook Messenger.
+* Now, the users has an amazing option to share recorded video or place a video call through the available blue icon on the Messenger app of Facebook.
+
+The best part is that you do not need to download anything else to use the video feature of Facebook. But, if you are not able to see a blue icon video on your Messenger page, then update your Facebook or Messenger.
+
+If you are a video creator and want to reach more people or want to share your video with Facebook friends, then the blue video icon is very helpful.
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2\. How to Start A Video Calling With Someone or A Group?
+
+Are you wondering how to start a video calling on Facebook Messenger? If yes, then this part is for you.
+
+Placing a video call to an individual or a group is very simple with the blue video icon Facebook. Let’ stake a look at how to place a video call with blue video icon to an individual and group of people.
+
+### **2.1 Video Call Through Facebook or Messenger mobile app (iOS and Android)**
+
+Whether you are using iOS device or an Android phone, you can place a video call with Messenger to your family and friends.
+
+Follow the following steps to start a video calling with someone through the Facebook app:
+
+* First, make sure your device is connected to Wi-Fi or any other internet network
+* After this, you will need to install Messenger on your phone if it is not installed already
+* To install Messenger or Facebook, you iOS users can go to App Store, and Android users can go to Play Store.
+
+![Install Facebook Messenger](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-2.jpeg)
+
+* Now, in your Facebook app or Messenger app go to the chat area
+* After this, open a conversation with a person pr group you want to do video chat.
+
+![Start video call on Messenger](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-3.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+* Now, click on the blue video icon Facebook to start the video calling.
+
+This is how you can start video calling with someone and group on Messenger. It is a great feature to share same topic with number of people on Facebook. You can also create a family group on Messenger to do a video call to everyone in your family circle.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### **2.2 Video Call Through Facebook Messenger on Browser**
+
+If you are using a Windows system or Mac system, you can start a video call by opening Facebook Messenger in the browser.
+
+**Note**: Video calling on messenger.com or facebook.com is only available using the browsers Chrome or Opera.
+
+Here are the steps that you will need to follow to start a video calling on Facebook in browser:
+
+* First, you will need to open Facebook.com or Messenger.com in your browser
+* Now, fill your login credentials of Facebook to open the Messenger or Facebook ID
+* From the chats area, go to the conversation with a person or group you want to start a video call.
+
+![Messenger in browser](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-4.jpeg)
+
+* Click on the blue video icon to start the video call on Facebook Messenger
+
+This is how you can start a video calling with a person or individual on Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
+### **How to add other people to Facebook video calls?**
+
+Do you want to start a group video call on Messenger? If yes, then we are here to help you with a solution. Follow the following steps to start a group video calling on Messenger:
+
+**Create a group before placing a video call**
+
+The first way to start a group video calling is to create a group in Messenger. For example, you can create a group with the same people you do group call every time.
+
+![Group video call on Facebook](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-5.jpeg)
+
+To do that, tap the pencil icon at the top right of the Messenger app and then click on create a new group. Now, you can add people in the group and can send a single message to all when you want to start a video call with them.
+
+This will place a call with all participants in the group.
+
+**Add more people to already running video call**
+
+Do you know that Facebook Messenger allows you to add people on an ongoing video call. Ys, you read it right.
+
+Now, you can add more people and group of people to already running video calls on Facebook Messenger. Here are the steps that you will need to follow to add new people in your Facebook video call:
+
+* First, tap on the screen and choose the new “add person” icon
+* Now, tap on the people that you want to add in an ongoing video calls on Messenger
+* After you’ve hung up, you can message everyone in the conversation in an automatically created group chat in your Facebook inbox.
+
+This feature of Messenger is available on both iOS and Android devices. Also, the group video call on Messenger allows you to see up to six people at a time, but you can add up to 50 people in a video call.
+
+When more than six people are on the video call on Facebook, then the main person who is speaking is shown on-screen to everyone. Try a group video call now and share your views on anything with your friend circle on Facebook.
+
+**Tip:** Share your creative videos with blue video icon Facebook Messenger
+
+Do you want to share your views on something via video? If yes, then make your video more attractive and effective with [Wondershare Filmora,](https://tools.techidaily.com/wondershare/filmora/download/) which is a video editing tool and is easy to use as well.
+
+You can make complex videos easily and can create a video quickly by using its advanced features. There are drag and drop creative transitions, filters, titles, and even motion elements that you can add to your videos which you want to share on Messenger.
+
+All in all, this tool is easy to use, and a novice can easily use it to edit a video that he or she wants to share on Facebook with a blue video icon.
+
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Final Words**
+
+We hope that now it is clear to you what is blue icon video Facebook Messenger. You can use the blue icon to start a video call and to share videos with you. The video calling feature in Messenger is very helpful and useful for many people around the globe.
+
+So, whether you are new to Messenger or using it for years, explore its blue video icon for video chatting with family and friends. You can use Wondershare Filmora to create your videos and then can share them on Facebook with your loved ones. Try it once!
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Have you checked the blue video icon on Facebook Messenger? If no, then enter any of your conversations on Messenger and check the top right corner, there you will see a blue icon.
+
+When you tap on that icon, it will instantly place a video call to the conversation you’ve entered.
+
+With this new feature of Facebook, you can do a video call to an individual to a group of people. Initially, text format is the king, but nowadays, video messages, including video calls and recorded personal videos are in trend.
+
+Also, video calling is a safe alternative to texting while driving or doing home chores. Let’s explore more about the blue video icon Facebook Messenger!
+
+#### In this article
+
+Part 1: [What Does The Blue Video Icon Mean in Messenger](#step1)
+
+Part 2: [How to Start A Video Calling With Someone or A Group?](#step2)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 1\. What Does The Blue Video Icon Mean in Messenger
+
+Social networks are very popular in the world and Facebook is one of them. With other social networks introducing video call options, Facebook has updated its Messenger to offer easy-to-use video chat features to its users.
+
+![Video call on Messenger](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-1.jpeg)
+
+Now, you can find instant Video on Facebook and can use it with ease. The Instant Video gives you the ability to place a video call in less than a few seconds and from a window within the message thread.
+
+On Facebook Messenger, you can see a blue icon video that is helpful for video calling and sharing videos as well.
+
+### **Benefits of Blue Video Icon Facebook Messenger**
+
+* The blue video icon is especially helpful when you are trying to reach your loved one who is living abroad.
+* It is useful as well as helpful in situations when you are trying to explain something graphically to your colleagues and friends.
+* By tapping on the blue video icon, you can quickly start a video call on Facebook Messenger.
+* When you and your friend are viewing any conversation, then the blue video icon on the top right will start eight to pulse.
+* Further, you can initiate a live video streaming by tapping on the blue video icon Facebook Messenger.
+* Now, the users has an amazing option to share recorded video or place a video call through the available blue icon on the Messenger app of Facebook.
+
+The best part is that you do not need to download anything else to use the video feature of Facebook. But, if you are not able to see a blue icon video on your Messenger page, then update your Facebook or Messenger.
+
+If you are a video creator and want to reach more people or want to share your video with Facebook friends, then the blue video icon is very helpful.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
+## Part 2\. How to Start A Video Calling With Someone or A Group?
+
+Are you wondering how to start a video calling on Facebook Messenger? If yes, then this part is for you.
+
+Placing a video call to an individual or a group is very simple with the blue video icon Facebook. Let’ stake a look at how to place a video call with blue video icon to an individual and group of people.
+
+### **2.1 Video Call Through Facebook or Messenger mobile app (iOS and Android)**
+
+Whether you are using iOS device or an Android phone, you can place a video call with Messenger to your family and friends.
+
+Follow the following steps to start a video calling with someone through the Facebook app:
+
+* First, make sure your device is connected to Wi-Fi or any other internet network
+* After this, you will need to install Messenger on your phone if it is not installed already
+* To install Messenger or Facebook, you iOS users can go to App Store, and Android users can go to Play Store.
+
+![Install Facebook Messenger](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-2.jpeg)
+
+* Now, in your Facebook app or Messenger app go to the chat area
+* After this, open a conversation with a person pr group you want to do video chat.
+
+![Start video call on Messenger](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-3.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+* Now, click on the blue video icon Facebook to start the video calling.
+
+This is how you can start video calling with someone and group on Messenger. It is a great feature to share same topic with number of people on Facebook. You can also create a family group on Messenger to do a video call to everyone in your family circle.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### **2.2 Video Call Through Facebook Messenger on Browser**
+
+If you are using a Windows system or Mac system, you can start a video call by opening Facebook Messenger in the browser.
+
+**Note**: Video calling on messenger.com or facebook.com is only available using the browsers Chrome or Opera.
+
+Here are the steps that you will need to follow to start a video calling on Facebook in browser:
+
+* First, you will need to open Facebook.com or Messenger.com in your browser
+* Now, fill your login credentials of Facebook to open the Messenger or Facebook ID
+* From the chats area, go to the conversation with a person or group you want to start a video call.
+
+![Messenger in browser](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-4.jpeg)
+
+* Click on the blue video icon to start the video call on Facebook Messenger
+
+This is how you can start a video calling with a person or individual on Facebook.
+
+### **How to add other people to Facebook video calls?**
+
+Do you want to start a group video call on Messenger? If yes, then we are here to help you with a solution. Follow the following steps to start a group video calling on Messenger:
+
+**Create a group before placing a video call**
+
+The first way to start a group video calling is to create a group in Messenger. For example, you can create a group with the same people you do group call every time.
+
+![Group video call on Facebook](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-5.jpeg)
+
+To do that, tap the pencil icon at the top right of the Messenger app and then click on create a new group. Now, you can add people in the group and can send a single message to all when you want to start a video call with them.
+
+This will place a call with all participants in the group.
+
+**Add more people to already running video call**
+
+Do you know that Facebook Messenger allows you to add people on an ongoing video call. Ys, you read it right.
+
+Now, you can add more people and group of people to already running video calls on Facebook Messenger. Here are the steps that you will need to follow to add new people in your Facebook video call:
+
+* First, tap on the screen and choose the new “add person” icon
+* Now, tap on the people that you want to add in an ongoing video calls on Messenger
+* After you’ve hung up, you can message everyone in the conversation in an automatically created group chat in your Facebook inbox.
+
+This feature of Messenger is available on both iOS and Android devices. Also, the group video call on Messenger allows you to see up to six people at a time, but you can add up to 50 people in a video call.
+
+When more than six people are on the video call on Facebook, then the main person who is speaking is shown on-screen to everyone. Try a group video call now and share your views on anything with your friend circle on Facebook.
+
+**Tip:** Share your creative videos with blue video icon Facebook Messenger
+
+Do you want to share your views on something via video? If yes, then make your video more attractive and effective with [Wondershare Filmora,](https://tools.techidaily.com/wondershare/filmora/download/) which is a video editing tool and is easy to use as well.
+
+You can make complex videos easily and can create a video quickly by using its advanced features. There are drag and drop creative transitions, filters, titles, and even motion elements that you can add to your videos which you want to share on Messenger.
+
+All in all, this tool is easy to use, and a novice can easily use it to edit a video that he or she wants to share on Facebook with a blue video icon.
+
+## **Final Words**
+
+We hope that now it is clear to you what is blue icon video Facebook Messenger. You can use the blue icon to start a video call and to share videos with you. The video calling feature in Messenger is very helpful and useful for many people around the globe.
+
+So, whether you are new to Messenger or using it for years, explore its blue video icon for video chatting with family and friends. You can use Wondershare Filmora to create your videos and then can share them on Facebook with your loved ones. Try it once!
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Have you checked the blue video icon on Facebook Messenger? If no, then enter any of your conversations on Messenger and check the top right corner, there you will see a blue icon.
+
+When you tap on that icon, it will instantly place a video call to the conversation you’ve entered.
+
+With this new feature of Facebook, you can do a video call to an individual to a group of people. Initially, text format is the king, but nowadays, video messages, including video calls and recorded personal videos are in trend.
+
+Also, video calling is a safe alternative to texting while driving or doing home chores. Let’s explore more about the blue video icon Facebook Messenger!
+
+#### In this article
+
+Part 1: [What Does The Blue Video Icon Mean in Messenger](#step1)
+
+Part 2: [How to Start A Video Calling With Someone or A Group?](#step2)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
+## Part 1\. What Does The Blue Video Icon Mean in Messenger
+
+Social networks are very popular in the world and Facebook is one of them. With other social networks introducing video call options, Facebook has updated its Messenger to offer easy-to-use video chat features to its users.
+
+![Video call on Messenger](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-1.jpeg)
+
+Now, you can find instant Video on Facebook and can use it with ease. The Instant Video gives you the ability to place a video call in less than a few seconds and from a window within the message thread.
+
+On Facebook Messenger, you can see a blue icon video that is helpful for video calling and sharing videos as well.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### **Benefits of Blue Video Icon Facebook Messenger**
+
+* The blue video icon is especially helpful when you are trying to reach your loved one who is living abroad.
+* It is useful as well as helpful in situations when you are trying to explain something graphically to your colleagues and friends.
+* By tapping on the blue video icon, you can quickly start a video call on Facebook Messenger.
+* When you and your friend are viewing any conversation, then the blue video icon on the top right will start eight to pulse.
+* Further, you can initiate a live video streaming by tapping on the blue video icon Facebook Messenger.
+* Now, the users has an amazing option to share recorded video or place a video call through the available blue icon on the Messenger app of Facebook.
+
+The best part is that you do not need to download anything else to use the video feature of Facebook. But, if you are not able to see a blue icon video on your Messenger page, then update your Facebook or Messenger.
+
+If you are a video creator and want to reach more people or want to share your video with Facebook friends, then the blue video icon is very helpful.
+
+## Part 2\. How to Start A Video Calling With Someone or A Group?
+
+Are you wondering how to start a video calling on Facebook Messenger? If yes, then this part is for you.
+
+Placing a video call to an individual or a group is very simple with the blue video icon Facebook. Let’ stake a look at how to place a video call with blue video icon to an individual and group of people.
+
+### **2.1 Video Call Through Facebook or Messenger mobile app (iOS and Android)**
+
+Whether you are using iOS device or an Android phone, you can place a video call with Messenger to your family and friends.
+
+Follow the following steps to start a video calling with someone through the Facebook app:
+
+* First, make sure your device is connected to Wi-Fi or any other internet network
+* After this, you will need to install Messenger on your phone if it is not installed already
+* To install Messenger or Facebook, you iOS users can go to App Store, and Android users can go to Play Store.
+
+![Install Facebook Messenger](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-2.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+* Now, in your Facebook app or Messenger app go to the chat area
+* After this, open a conversation with a person pr group you want to do video chat.
+
+![Start video call on Messenger](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-3.jpeg)
+
+* Now, click on the blue video icon Facebook to start the video calling.
+
+This is how you can start video calling with someone and group on Messenger. It is a great feature to share same topic with number of people on Facebook. You can also create a family group on Messenger to do a video call to everyone in your family circle.
+
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### **2.2 Video Call Through Facebook Messenger on Browser**
+
+If you are using a Windows system or Mac system, you can start a video call by opening Facebook Messenger in the browser.
+
+**Note**: Video calling on messenger.com or facebook.com is only available using the browsers Chrome or Opera.
+
+Here are the steps that you will need to follow to start a video calling on Facebook in browser:
+
+* First, you will need to open Facebook.com or Messenger.com in your browser
+* Now, fill your login credentials of Facebook to open the Messenger or Facebook ID
+* From the chats area, go to the conversation with a person or group you want to start a video call.
+
+![Messenger in browser](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-4.jpeg)
+
+* Click on the blue video icon to start the video call on Facebook Messenger
+
+This is how you can start a video calling with a person or individual on Facebook.
+
+### **How to add other people to Facebook video calls?**
+
+Do you want to start a group video call on Messenger? If yes, then we are here to help you with a solution. Follow the following steps to start a group video calling on Messenger:
+
+**Create a group before placing a video call**
+
+The first way to start a group video calling is to create a group in Messenger. For example, you can create a group with the same people you do group call every time.
+
+![Group video call on Facebook](https://images.wondershare.com/filmora/article-images/2021/blue-video-icon-facebook-5.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
+To do that, tap the pencil icon at the top right of the Messenger app and then click on create a new group. Now, you can add people in the group and can send a single message to all when you want to start a video call with them.
+
+This will place a call with all participants in the group.
+
+**Add more people to already running video call**
+
+Do you know that Facebook Messenger allows you to add people on an ongoing video call. Ys, you read it right.
+
+Now, you can add more people and group of people to already running video calls on Facebook Messenger. Here are the steps that you will need to follow to add new people in your Facebook video call:
+
+* First, tap on the screen and choose the new “add person” icon
+* Now, tap on the people that you want to add in an ongoing video calls on Messenger
+* After you’ve hung up, you can message everyone in the conversation in an automatically created group chat in your Facebook inbox.
+
+This feature of Messenger is available on both iOS and Android devices. Also, the group video call on Messenger allows you to see up to six people at a time, but you can add up to 50 people in a video call.
+
+When more than six people are on the video call on Facebook, then the main person who is speaking is shown on-screen to everyone. Try a group video call now and share your views on anything with your friend circle on Facebook.
+
+**Tip:** Share your creative videos with blue video icon Facebook Messenger
+
+Do you want to share your views on something via video? If yes, then make your video more attractive and effective with [Wondershare Filmora,](https://tools.techidaily.com/wondershare/filmora/download/) which is a video editing tool and is easy to use as well.
+
+You can make complex videos easily and can create a video quickly by using its advanced features. There are drag and drop creative transitions, filters, titles, and even motion elements that you can add to your videos which you want to share on Messenger.
+
+All in all, this tool is easy to use, and a novice can easily use it to edit a video that he or she wants to share on Facebook with a blue video icon.
+
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Final Words**
+
+We hope that now it is clear to you what is blue icon video Facebook Messenger. You can use the blue icon to start a video call and to share videos with you. The video calling feature in Messenger is very helpful and useful for many people around the globe.
+
+So, whether you are new to Messenger or using it for years, explore its blue video icon for video chatting with family and friends. You can use Wondershare Filmora to create your videos and then can share them on Facebook with your loved ones. Try it once!
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-guide-to-structuring-youtube-content-with-separate-chapters/"><u>[New] 2024 Approved  Guide to Structuring YouTube Content with Separate Chapters</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-tiktok-greats-on-snapchat-screen-time/"><u>[New] 2024 Approved  TikTok Greats on Snapchat Screen Time</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-a-beginners-pathway-for-live-streaming-pre-recorded-content-for-2024/"><u>[New] A Beginner's Pathway for Live Streaming Pre-Recorded Content for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-digital-legacy-preservation-saving-fb-video-conversations-for-2024/"><u>[New] Digital Legacy Preservation  Saving FB Video Conversations for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-ghostly-witness-to-fb-vignettes/"><u>[New] Ghostly Witness to Fb Vignettes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-effortlessly-traverse-facebooks-past-posts/"><u>[New] In 2024, Effortlessly Traverse Facebook’s Past Posts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-hide-and-view-fb-snapshot-tool/"><u>[New] In 2024, Hide-and-View FB Snapshot Tool</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-the-3-elemental-strategies-for-writing-effective-social-media-promotions/"><u>[New] In 2024, The 3 Elemental Strategies for Writing Effective Social Media Promotions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-most-effective-sales-strategies-unveiled-with-these-leading-15-fb-analyzers/"><u>[New] In 2024, The Most Effective Sales Strategies Unveiled with These Leading 15 FB Analyzers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-instant-social-interaction-tweetplusfb-guide-for-2024/"><u>[New] Instant Social Interaction  Tweet+FB Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-mastering-your-marketing-edge-establishing-a-biz-page-on-instagram/"><u>[New] Mastering Your Marketing Edge  Establishing a Biz Page on Instagram</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-plant-and-play-stardew-esque-gaming-winners/"><u>[New] Plant and Play  Stardew-Esque Gaming Winners</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-slick-facebook-downloaders-top-8-free-and-easy-online-accessories-for-2024/"><u>[New] Slick Facebook Downloaders  Top 8 Free & Easy Online Accessories for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-3-best-ipad-voice-memo-and-capture-software/"><u>[Updated] 2024 Approved  3 Best iPad Voice Memo and Capture Software</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-in-depth-assessment-comprehensive-camstudio-review/"><u>[Updated] 2024 Approved  In-Depth Assessment  Comprehensive CamStudio Review</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-the-ultimate-2023-guide-to-watching-fb-live/"><u>[Updated] 2024 Approved  The Ultimate 2023 Guide to Watching FB Live</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-are-you-prepared-for-the-changed-facebook-algorithm/"><u>[Updated] Are You Prepared for the Changed Facebook Algorithm?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-easy-extraction-of-social-media-videos-with-chrome-plugs-for-2024/"><u>[Updated] Easy Extraction of Social Media Videos with Chrome Plugs for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-horizontal-vs-vertical-best-for-fb-videos-for-2024/"><u>[Updated] Horizontal Vs. Vertical  Best for FB Videos for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-melodic-freedom-fbs-music-library/"><u>[Updated] In 2024, Melodic Freedom  FB's Music Library</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-initial-cinematic-recording-dissection/"><u>[Updated] Initial Cinematic Recording Dissection</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-marketers-insight-sifting-through-false-social-endorsements/"><u>[Updated] Marketer’s Insight  Sifting Through False Social Endorsements</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-navigating-video-visibility-barriers-in-social-networking/"><u>[Updated] Navigating Video Visibility Barriers in Social Networking</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-networked-narratives-recorder/"><u>[Updated] Networked Narratives Recorder</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-facebooks-vibe-todays-hot-ten-music-clips/"><u>2024 Approved  Facebook’s Vibe  Today’s Hot Ten Music Clips</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/a-stepwise-approach-to-winerror-issues/"><u>A Stepwise Approach to WinError Issues</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-dive-into-the-deep-end-of-facebook-meme-culture/"><u>In 2024, Dive Into The Deep End of Facebook Meme Culture</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-how-can-i-view-friends-shared-vids-and-photos/"><u>In 2024, How Can I View Friend’s Shared Vids and Photos?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-techniques-for-streaming-past-video-live-on-facebook-platform/"><u>In 2024, Techniques for Streaming Past Video Live on Facebook Platform</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/optimizing-worker-output-the-influence-of-office-environment/"><u>Optimizing Worker Output  The Influence of Office Environment</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/ultimate-9-hidden-media-extractors-for-2024/"><u>Ultimate 9 Hidden Media Extractors for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unlock-more-views-twitch-to-facebook-streaming-tips/"><u>Unlock More Views  Twitch to Facebook Streaming Tips</u></a></li>
+</ul></div>
