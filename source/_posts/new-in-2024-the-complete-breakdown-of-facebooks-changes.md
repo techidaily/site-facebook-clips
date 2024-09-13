@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Complete Breakdown of Facebook's Changes"
-date: 2024-09-07T02:07:19.623Z
-updated: 2024-09-08T02:07:19.623Z
+date: 2024-09-11T11:38:43.684Z
+updated: 2024-09-12T18:05:42.051Z
 tags:
   - ai video
   - ai facebook
@@ -21,34 +21,17 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
 
 <!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## What is Facebook
 
  Facebook has redefined the meaning of social networking. It had brought turbulence in the social media world back in 2004 which were embraced by everybody and it is carrying that charm until now! It is a social networking company registered under the name of ‘Facebook, Inc’ which allows its users to communicate with other people. These other people are also defined by users and can be their family, friends, coworkers or potential friends! Mark Zuckerberg, founder of Facebook created this boon of social media in 2004 while he was enrolled at Harvard University with a vision of designing a media platform for college students. But nobody would have imagined its progress graph! By 2006 anyone over the age of 13 with a valid email address could join Facebook. So this social networking website which was supposed to allow users to create profile, share moments through uploading photos and videos and assisted in staying in touch with family and friends for a long time, transformed into one of the much sought after platforms with more than 1 billion users worldwide.
@@ -60,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 **Groups:** It allows members to coordinate with near and far friends having common interests. The definition of common interests is open ended, it can be a bachelor party, concert bucket list or project updates, Facebook group lets you communicate in searchable place.
 
 **Events:** These encourage boosting engagement, get people talking, and provide helpful information and links for an upcoming event and ultimately planning and tracking who plans to attend. 650+ million users make use of Facebook Events and 100 million on an average every day to publicize the event!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Common Facebook Terms which you should know
 
@@ -78,11 +68,12 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 **Notification:** It is like an update from Facebook of the events and occasions where someone has interacted with you. It might be through reacting on what you shared or by posting something on your wall etc.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Exploring Facebook
 
  Facebook is user friendly and once you create your account, you will feel like exploring all its options and becoming familiar with its adorable features. Here is a quick guide to Homepage and timeline:
@@ -99,12 +90,6 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 
 ![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### The Timeline
 
  The Timeline which represents your profile and is visible to your friends and public (subject to your privacy settings) contains inventory of everything which you have shared and which people has tagged you. You can set your profile picture by simply browsing through your picture library. Profile picture is the one which your friends will see when you will comment anything on Facebook. Coverphoto is a picture which can be seen by anybody when they visit your timeline. You can set your personal picture or wallpaper also to express your personality and interests. You can make your profile more informative by adding your school, college, workplace, relationship status and your location etc.
@@ -114,11 +99,12 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 ![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How Facebook usage is diversified?
 
  There are ample of ways to communicate and staying in touch such as emails, instant messaging or SMS but Facebook has dominated all of them except for professional workspace! Let’s check out what makes Facebook so unique and lovable that you feel like sharing the occasion and celebration with your circle in that very moment!
@@ -134,11 +120,12 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 * Play games and enhance your circle
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How Does Facebook Sharing Work?
 
  Facebook is unique and so are the sharing norms! While your conversations at email or IM’s are private, the content that you share on Facebook including photos and links are public. This is because Facebook has emerged as an open network for communication without any sort of limitations and is thus inclined towards being public although you can define privacy and sharing settings for some shared posts.
@@ -147,47 +134,18 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-cutting-edge-tech-mastering-dslr-macpc-for-social-media-broadcasts/"><u>[New] 2024 Approved  Cutting Edge Tech  Mastering DSLR, Mac/PC for Social Media Broadcasts</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-techniques-for-effortless-facebook-video-posting-pcandroid/"><u>[New] 2024 Approved  Techniques for Effortless Facebook Video Posting, PC/Android</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-unveiling-the-purpose-of-watermarks-in-fb-media/"><u>[New] 2024 Approved  Unveiling the Purpose of Watermarks in Fb Media</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-high-performance-video-calls-a-curated-ranking-of-top-10-apps/"><u>[New] High-Performance Video Calls  A Curated Ranking of Top 10 Apps</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-maximizing-your-dslr-footage-with-pc-or-mac-for-social-media/"><u>[New] In 2024, Maximizing Your DSLR Footage with PC or Mac for Social Media</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-optimize-your-social-media-presence-with-mobile-based-live-videos-for-2024/"><u>[New] Optimize Your Social Media Presence with Mobile-Based Live Videos for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-sleeper-strikers-top-10-undetected-fb-memes-for-2024/"><u>[New] Sleeper Strikers  Top 10 Undetected FB Memes for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-uncovering-secrets-in-instagram-story-watchers-for-2024/"><u>[New] Uncovering Secrets in Instagram Story Watchers for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-download-facebook-videos-swiftly-discover-the-top-10-android-downloader-tools/"><u>[Updated] 2024 Approved  Download Facebook Videos Swiftly  Discover the Top 10 Android Downloader Tools</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-expertly-choosing-the-leading-5-facebook-video-grabers/"><u>[Updated] 2024 Approved  Expertly Choosing the Leading 5 Facebook Video Grabers</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-adjust-your-timeline-facebook-look-back-guide/"><u>[Updated] Adjust Your Timeline  Facebook Look Back Guide</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-boosting-engagement-on-fb-pages-with-auto-played-youtube-videos/"><u>[Updated] Boosting Engagement on FB Pages with Auto-Played Youtube Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-brief-glimpses-in-the-social-space/"><u>[Updated] Brief Glimpses in the Social Space</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-connect-tv-audiences-with-creative-fb-livestream-strategies-for-2024/"><u>[Updated] Connect TV Audiences with Creative FB Livestream Strategies for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-augmenting-visual-appeal-implementing-black-bar-and-box-on-fb/"><u>[Updated] In 2024, Augmenting Visual Appeal  Implementing Black Bar & Box on FB</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-determining-vertical-or-horizontal-video-posts-on-fb/"><u>[Updated] In 2024, Determining Vertical or Horizontal Video Posts on FB</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-from-concept-to-platform-crafting-engaging-fb-content/"><u>[Updated] In 2024, From Concept to Platform  Crafting Engaging FB Content</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unveiling-the-basics-of-facebook-membership-creation/"><u>[Updated] In 2024, Unveiling the Basics of Facebook Membership Creation</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-virtual-vision-creation-shaping-a-humorous-self-portrait/"><u>[Updated] In 2024, Virtual Vision Creation  Shaping a Humorous Self-Portrait</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-itop-screen-recorder-review-for-2024/"><u>[Updated] ITop Screen Recorder Review for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-picking-perfect-your-path-through-basic-plus-and-pro-in-vimeo-for-2024/"><u>[Updated] Picking Perfect  Your Path Through Basic, Plus & Pro in Vimeo for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-strategies-for-succeeding-with-facebook-video-marketing-and-revenue/"><u>[Updated] Strategies for Succeeding with Facebook Video Marketing and Revenue</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-the-social-searchers-guide-fb-profiles-made-easy/"><u>[Updated] The Social Searcher's Guide  FB Profiles Made Easy</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-chiefs-best-sky-vault-for-firms/"><u>2024 Approved  Chiefs’ Best Sky Vault for Firms</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-maximizing-video-collection-on-tiktok-efficiently/"><u>2024 Approved  Maximizing Video Collection on TikTok Efficiently</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/effortless-ways-to-eliminate-bluetooth-audio-lag/"><u>Effortless Ways to Eliminate Bluetooth Audio Lag!</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-fix-zoom-error-code-1132-in-windows-10-and-11/"><u>How to Fix Zoom Error Code 1132 in Windows 10 & 11</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-tecno-spark-10-4g-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Tecno Spark 10 4G to Mac? | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-innovating-with-youtube-studio-editor-for-next-gen-videos/"><u>In 2024, Innovating with YouTube Studio Editor for Next-Gen Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-the-producers-playbook-for-mixing-audio-and-visuals-on-fb-platform/"><u>In 2024, The Producer's Playbook for Mixing Audio and Visuals on FB Platform</u></a></li>
-<li><a href="https://program-issues.techidaily.com/resolving-issues-troubleshooting-oculus-graphics-driver-errors/"><u>Resolving Issues: Troubleshooting Oculus Graphics Driver Errors</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722978662616-update-your-nvidia-quadro-rtx-n-to-latest-version-with-these-easy-steps-driver-downloads-included/"><u>Update Your NVIDIA Quadro RTX N to Latest Version with These Easy Steps - Driver Downloads Included</u></a></li>
-</ul></div>
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -195,3 +153,21 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-dissecting-the-newest-features-of-facebook/"><u>[New] 2024 Approved Dissecting the Newest Features of Facebook</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-resolving-silence-in-tweeted-video-playbacks/"><u>[New] 2024 Approved Resolving Silence in Tweeted Video Playbacks</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-fb-video-frame-ratio-classifications/"><u>[New] In 2024, FB Video Frame Ratio Classifications</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unlock-facebook-potential-with-effective-engagement-strategies-for-2024/"><u>[New] Unlock Facebook Potential with Effective Engagement Strategies for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-streamlining-your-iphones-album-organization-and-icloud-connection/"><u>[Updated] Streamlining Your iPhone's Album Organization and iCloud Connection</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-free-mobile-media-player-apps-for-android-devices-top-5-picks/"><u>Best Free Mobile Media Player Apps for Android Devices: Top 5 Picks</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-x-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone X Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Samsung Galaxy M34 | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-icloud-from-iphone-15-plus-smoothly-by-drfone-ios/"><u>In 2024, How To Remove iCloud From iPhone 15 Plus Smoothly</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-top-picks-of-firefox-tools-to-streamline-your-facebook-video-experience-2023/"><u>In 2024, Top Picks of Firefox Tools to Streamline Your Facebook Video Experience, 2023</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/maximize-impact-with-insightful-youtube-stats-analysis/"><u>Maximize Impact with Insightful YouTube Stats Analysis</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/quick-fix-for-stuttering-screens/"><u>Quick Fix for Stuttering Screens</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Vivo S17t | Dr.fone</u></a></li>
+</ul></div>
+
