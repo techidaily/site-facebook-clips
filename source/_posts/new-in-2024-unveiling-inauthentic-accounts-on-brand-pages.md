@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Unveiling Inauthentic Accounts on Brand Pages"
-date: 2024-09-05T19:44:31.996Z
-updated: 2024-09-13T03:17:21.095Z
+date: 2024-09-15T00:59:35.587Z
+updated: 2024-09-18T07:57:08.201Z
 tags:
   - ai video
   - ai facebook
@@ -32,13 +32,6 @@ If you want to edit FB video, [Filmora Business](https://tools.techidaily.com/wo
 * [**Part1: What are Fake Facebook followers**](#part1)
 * [**Part2: How to spot fake followers on Facebook for Influencer quickly**](#part2)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: What are Fake Facebook followers?
 
 Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
@@ -46,19 +39,6 @@ Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake follow
 No doubt, the Facebook page gains more likes through them, but not effective in the long run. These fake followers have fake accounts intended for selling their like to others accounts. 1000s and 10000s accounts are purchased by brands over social media. Social media platforms such as Instagram pick them up and deletes every now and then.
 
 Businesses dealing with fake followers have staff to maintain these accounts to pass as regular accounts which is a big issue. Influencers often involve through engagement pods on each others’ content and get high ranks for the feeds by fooling the social algorithms. If you access these influencers as a brand in terms of quality, they have nothing substantial to offer you.
-
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to spot fake followers on Facebook for Influencer quickly
 
@@ -70,13 +50,6 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 2: Calculate Engagement rate
 
 [Engagement rate](https://trackmaven.com/marketing-dictionary/engagement-rate/) is nothing but the average number of engagements received by influencer for each post divided by number of followers. When an influencer has below 1% engagement, it implies involvement of few fake followers in certain amount. So, it is prevalent to track the numbers and do the calculation, so that there is no chance of fake followers on Facebook that can ruin your business.
@@ -87,16 +60,16 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 4: Locate Follower country
 
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 5: Use third party tools
 
@@ -105,10 +78,10 @@ You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for i
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -122,10 +95,10 @@ Knowing these aspects, you will be able to protect your brand page and garner ge
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,19 +116,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-dslr-cameras-stand-against-mirrorless-for-videographers/"><u>[New] In 2024, DSLR Camera's Stand Against Mirrorless for Videographers</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-optimize-your-social-media-presence-with-mobile-based-live-videos/"><u>[New] Optimize Your Social Media Presence with Mobile-Based Live Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-paving-the-way-for-smooth-video-autoplay-on-social-media-platforms/"><u>[Updated] 2024 Approved Paving the Way for Smooth Video Autoplay on Social Media Platforms</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-facebook-videos-stop-buffering-and-glitches-on-devices/"><u>[Updated] Facebook Videos Stop Buffering & Glitches on Devices</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-complete-playbook-for-configuring-and-evaluating-in-stream-ads-on-facebook/"><u>[Updated] In 2024, The Complete Playbook for Configuring and Evaluating In-Stream Ads on Facebook</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-revolutionize-your-sales-approach-with-the-best-15-social-media-analyzers/"><u>[Updated] Revolutionize Your Sales Approach with the Best 15 Social Media Analyzers</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-tecno-camon-30-pro-5g-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Tecno Camon 30 Pro 5G? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-and-install-the-newest-drivers-for-nvidias-mx150-card-under-windows/"><u>Download & Install the Newest Drivers for Nvidia's MX150 Card Under Windows</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-to-configure-mt4-and-mt5-accounts-by-mt4copier-guide/"><u>Easy to Configure MT4 and MT5 Accounts</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-honor-100-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Honor 100 | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-from-zero-to-hero-on-twitter-live/"><u>In 2024, From Zero to Hero on Twitter Live</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-social-media-savvy-turning-friends-into-customers-and-coins/"><u>In 2024, Social Media Savvy Turning Friends Into Customers and Coins</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-step-by-step-save-gifs-from-fb-on-different-devices/"><u>In 2024, Step-by-Step Save GIFs From FB on Different Devices</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/unlock-the-power-of-instream-ads-detailed-guidelines-on-setup-and-evaluation-in-fb-for-2024/"><u>Unlock the Power of Instream Ads Detailed Guidelines on Setup & Evaluation in FB for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-convert-live-facebook-videos-to-mp3s-on-the-fly-for-2024/"><u>[New] Convert Live Facebook Videos to MP3s on the Fly for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-decoding-facebook-capturing-and-keeping-status-videos/"><u>[Updated] Decoding Facebook Capturing and Keeping Status Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-fb-to-your-device-download-videos-for-2024/"><u>[Updated] FB to Your Device - Download Videos for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-harnessing-look-up-tables-luts-to-achieve-stunning-visuals/"><u>[Updated] In 2024, Harnessing Look-Up Tables (LUTs) to Achieve Stunning Visuals</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-innovative-methods-to-enhance-images-through-cropping-for-2024/"><u>[Updated] Innovative Methods to Enhance Images Through Cropping for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-professional-gamers-toolkit-advanced-recording-tactics/"><u>2024 Approved Professional Gamers' Toolkit Advanced Recording Tactics</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-unlock-video-potential-with-top-titler-ai/"><u>2024 Approved Unlock Video Potential with Top Titler AI</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/aqualive-review-robust-speaker-depth-performance/"><u>Aqualive Review: Robust Speaker Depth Performance</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/decoding-the-essence-of-chatgpts-interpreter-why-it-matters-in-ai-development/"><u>Decoding the Essence of ChatGPT's Interpreter: Why It Matters in AI Development</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discerning-reliable-health-info-from-gpt/"><u>Discerning Reliable Health Info From GPT</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-relive-facebooks-yesteryears-instructions-for-digital-devices-for-2024/"><u>How to Relive Facebook's Yesteryears - Instructions for Digital Devices for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-by-checkra1n-even-from-iphone-13-pro-if-youve-tried-everything-by-drfone-ios/"><u>In 2024, How To Bypass iCloud By Checkra1n Even From iPhone 13 Pro If Youve Tried Everything</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-laughing-on-tiktok-current-hits-and-personalities/"><u>In 2024, Laughing on TikTok Current Hits & Personalities</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-televisual-enhancements-through-engaging-fb-livestreams/"><u>In 2024, Televisual Enhancements Through Engaging FB Livestreams</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/steering-through-social-streams-youtube-content-in-fb/"><u>Steering Through Social Streams YouTube Content in FB</u></a></li>
 </ul></div>
 

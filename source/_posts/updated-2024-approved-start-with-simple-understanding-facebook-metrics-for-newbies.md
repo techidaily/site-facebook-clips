@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Start with Simple  Understanding Facebook Metrics for Newbies\""
-date: 2024-09-10T21:48:41.996Z
-updated: 2024-09-13T10:19:13.116Z
+date: 2024-09-16T09:15:26.428Z
+updated: 2024-09-18T02:08:34.460Z
 tags:
   - ai video
   - ai facebook
@@ -47,27 +47,20 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 
  By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to Use Facebook Insights for Beginners
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Overview
 
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
 
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Page Likes
 
@@ -78,6 +71,13 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
  Secondly, the **net likes**, which captures the total new likes on your page subtracted by the total dislikes.
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Post Reach
 
@@ -104,29 +104,9 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 <img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Video Analytics
 
@@ -153,10 +133,10 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -166,26 +146,13 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -202,21 +169,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-mastering-viewing-on-facebook-live/"><u>[New] In 2024, Mastering Viewing on Facebook Live</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-revitalize-disappearing-watch-preview/"><u>[New] In 2024, Revitalize Disappearing Watch Preview</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-integrating-facebook-livestream-into-your-roku-setup-for-2024/"><u>[New] Integrating Facebook Livestream Into Your Roku Setup for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-the-ultimate-checklist-to-add-audio-to-your-facebook-vids/"><u>[Updated] 2024 Approved The Ultimate Checklist to Add Audio to Your Facebook Vids</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-facebook-short-videos-and-everything-about-them-for-2024/"><u>[Updated] Facebook Short Videos and Everything About Them for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-deciphering-the-differences-between-youtubes-and-dailymentions/"><u>[Updated] In 2024, Deciphering the Differences Between YouTubes & DailyMentions</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-elite-road-warriors-game-list/"><u>[Updated] In 2024, Elite Road Warriors' Game List</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-step-by-step-augmenting-youtube-video-space/"><u>2024 Approved Step-by-Step Augmenting YouTube Video Space</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-unveiling-the-secrets-to-profitable-facebook-animation-strategies/"><u>2024 Approved Unveiling the Secrets to Profitable Facebook Animation Strategies</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/develop-a-research-timeline/"><u>Develop a Research Timeline:</u></a></li>
-<li><a href="https://win-answers.techidaily.com/excel-tips-adjusting-headersfooters-for-unique-first-page-designs/"><u>Excel Tips: Adjusting Headers/Footers for Unique First-Page Designs</u></a></li>
-<li><a href="https://fox-http.techidaily.com/explore-the-hidden-depths-of-canvas-photo-editor/"><u>Explore the Hidden Depths of Canva's Photo Editor</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-to-mp4-for-galaxy-a15-4g-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD MTS to MP4 for Galaxy A15 4G?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-unlocking-tv-potential-with-social-medias-facebook-live-streams/"><u>In 2024, Unlocking TV Potential with Social Media's Facebook Live Streams</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/quick-solutions-for-resolving-the-plex-blackout-issue-on-various-devices/"><u>Quick Solutions for Resolving the Plex Blackout Issue on Various Devices</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/1723199714649-troubleshooting-and-repairing-bad-pool-header-on-windows-versions-tutorials-available/"><u>Troubleshooting and Repairing 'Bad Pool Header' On Windows Versions - Tutorials Available!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-the-abc-of-advertising-a-trifecta-strategy-to-drive-engagement-on-fb-platforms/"><u>[New] 2024 Approved The ABC of Advertising A Trifecta Strategy to Drive Engagement on FB Platforms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-choose-from-the-finest-7-android-browsers-without-ads-for-2024/"><u>[New] Choose From the Finest 7 Android Browsers Without Ads for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-elite-8-video-grabber-utilities/"><u>[New] Elite 8 Video Grabber Utilities</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-leverage-the-power-of-visual-storytelling-with-your-own-facebook-slideshows-for-2024/"><u>[New] Leverage the Power of Visual Storytelling with Your Own Facebook Slideshows for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-video-testimonial-why-its-so-important-for-marketing/"><u>[Updated] 2024 Approved Video Testimonial! Why It's So Important for Marketing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-saving-time-avoiding-edgenuity-lessons-without-guilt/"><u>2024 Approved Saving Time Avoiding Edgenuity Lessons Without Guilt</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-oppo-a78-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Oppo A78</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-create-an-apple-developer-account-from-apple-iphone-7-plus-by-drfone-ios/"><u>In 2024, How To Create an Apple Developer Account From Apple iPhone 7 Plus</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-mastering-the-art-of-friendly-pins-in-snapchat/"><u>In 2024, Mastering the Art of Friendly Pins in Snapchat</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-itel-p55t-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Itel P55T? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/xbox-game-bar-controls-restrictions-for-minimal-interference/"><u>Xbox Game Bar Controls: Restrictions for Minimal Interference</u></a></li>
 </ul></div>
 

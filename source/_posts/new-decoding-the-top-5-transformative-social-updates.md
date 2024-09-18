@@ -1,7 +1,7 @@
 ---
 title: "[New] Decoding the Top 5 Transformative Social Updates"
-date: 2024-09-11T08:41:30.719Z
-updated: 2024-09-13T03:07:00.371Z
+date: 2024-09-16T01:08:37.576Z
+updated: 2024-09-18T09:28:04.741Z
 tags:
   - ai video
   - ai facebook
@@ -29,13 +29,6 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
@@ -46,13 +39,6 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Messenger Day – The Snapchat Way
 
  This app was also launched in the month of March and surprisingly it appeared like biggest competitor against Instagram Stories and Snapchat. However, few features like stickers, filters and posts disappearing within 24 hours etc are also same as that of other competing platforms.
@@ -61,25 +47,11 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
  One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Facebook Live
 
  Earlier, Facebook users were utilizing Facebook Live API to live stream on Facebook from their smartphone or tablet. But now it is possible to start broadcasting directly from your Laptop or Personal desktop computer using Facebook Live Feature. Further, Admins can also tag others as Live Contributors during streaming process on pages. You can also add comments to live broadcasts which were not possible earlier. So it is right time to explore the new Facebook Live feature on your device, you will easily find it on top of the news feeds.
 
  Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Advertising Capabilities
 
@@ -91,10 +63,10 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 [How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Group Videos
@@ -104,16 +76,10 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -131,18 +97,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-facebooks-premier-10-music-clip-showcase/"><u>[Updated] Facebook's Premier 10 Music Clip Showcase</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-premier-online-galleries-of-premium-vectors/"><u>2024 Approved Premier Online Galleries of Premium Vectors</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-seize-the-day-best-apps-for-live-streaming-and-recording-on-facebook/"><u>2024 Approved Seize the Day Best Apps for Live Streaming and Recording on Facebook</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-take-your-fb-videos-from-small-to-grand-in-a-click/"><u>2024 Approved Take Your FB Videos From Small to Grand in a Click</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-to-ask-chatgpt-to-help-modify-your-car/"><u>How to Ask ChatGPT to Help Modify Your Car</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-a-comprehensible-guide-to-mastering-pixelated-photography/"><u>In 2024, A Comprehensible Guide to Mastering Pixelated Photography</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-ultimate-picks-best-6-fb-lite-videos/"><u>In 2024, Ultimate Picks Best 6 FB Lite Videos</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-unlock-apple-id-without-phone-number-on-iphone-13-pro-max-by-drfone-ios/"><u>In 2024, Unlock Apple ID without Phone Number On iPhone 13 Pro Max</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/livestreaming-facebook-made-simple-for-all-tech-users/"><u>Livestreaming Facebook Made Simple for All Tech Users</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/mastering-fb-video-sizes-understanding-ratios-and-adjustments/"><u>Mastering FB Video Sizes Understanding Ratios and Adjustments</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722973069632-quick-setup-get-your-intel-thunderbolt-controller-drivers-instantly/"><u>Quick Setup: Get Your Intel Thunderbolt Controller Drivers Instantly</u></a></li>
-<li><a href="https://win11.techidaily.com/the-sleight-of-hand-keeping-drives-discreet-on-ws11w10/"><u>The Sleight of Hand: Keeping Drives Discreet on WS11/W10</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-video-enhancement-cameras-to-skyrocket-your-blogging-for-2024/"><u>Top 7 Video Enhancement Cameras To Skyrocket Your Blogging for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-apex-fb-platforms-topping-the-10-list-for-2024/"><u>[New] Apex FB Platforms Topping the 10 List for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-broadcasting-fb-movies-on-whatsapp/"><u>[New] Broadcasting FB Movies on WhatsApp</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-facebook-photosvideos-the-role-of-watermarks/"><u>[New] In 2024, Facebook Photos/Videos The Role of Watermarks</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-firecapture-plugins-for-firefox/"><u>[New] In 2024, FireCapture Plugins for Firefox</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-maximizing-outreach-facebook-videos-transmitted-to-whatsapp/"><u>[Updated] Maximizing Outreach Facebook Videos Transmitted to WhatsApp</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/core-principles-in-crafting-persuasive-facebook-ads/"><u>Core Principles in Crafting Persuasive Facebook Ads</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/enhanced-mp4-streaming-for-facebook-networks/"><u>Enhanced MP4 Streaming for Facebook Networks</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-missing-or-malfunctioning-your-hardware-drivers-with-windows-device-manager-in-windows-11-and-10-by-drivereasy-guide/"><u>How to identify missing or malfunctioning your hardware drivers with Windows Device Manager in Windows 11 & 10</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/hubsan-h501s-x4-fpv-quadcopter-review/"><u>Hubsan H501S X4 FPV Quadcopter Review</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-xiaomi-redmi-k70-pro-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Xiaomi Redmi K70 Pro FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-money-making-the-ultimate-13-beginners-guide-to-reddit/"><u>In 2024, Mastering Money-Making The Ultimate 13 Beginner's Guide to Reddit</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/secure-your-pcs-future-from-windows-8-upgrade-to-win-11/"><u>Secure Your PC's Future: From Windows 8, Upgrade to Win 11</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ultimate-walkthrough-activating-microsoft-copilot-for-mac-users/"><u>The Ultimate Walkthrough: Activating Microsoft Copilot for Mac Users</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unlocking-the-power-of-in-stream-ads-strategy-and-metrics-guide-for-2024/"><u>Unlocking the Power of In-Stream Ads Strategy & Metrics Guide for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-video-editing-mastery-on-mac-os-x-mavericks-edition/"><u>Updated In 2024, Video Editing Mastery on Mac OS X Mavericks Edition</u></a></li>
+<li><a href="https://common-error.techidaily.com/vcruntime140dll-not-found-startup-solutions-for-windows-11-users-a-step-by-step-fix/"><u>VCRUNTIME140.dll Not Found? Startup Solutions for Windows 11 Users: A Step-by-Step Fix</u></a></li>
 </ul></div>
 

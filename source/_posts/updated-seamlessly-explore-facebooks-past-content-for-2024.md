@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Seamlessly Explore Facebook's Past Content for 2024"
-date: 2024-09-10T17:02:32.396Z
-updated: 2024-09-12T20:56:54.511Z
+date: 2024-09-15T06:32:57.416Z
+updated: 2024-09-18T04:42:50.682Z
 tags:
   - ai video
   - ai facebook
@@ -53,40 +53,13 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
@@ -100,23 +73,9 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
@@ -129,13 +88,6 @@ If you are looking to see old Facebook stories shared by your friend then let me
 The only chance is that if your friend has uploaded those stories on highlights then yes, you can see old stories of them. Whenever your friend uploads a story he/she might get a star option in the lower corner where clicking only they can create a story and highlight on their feed.
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
@@ -175,6 +127,13 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -191,6 +150,13 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -206,14 +172,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-immediate-silence-sudden-deletion-fears/"><u>[New] Immediate Silence Sudden Deletion Fears</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-mastering-color-correction-techniques/"><u>[New] In 2024, Mastering Color Correction Techniques</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-the-indicator-of-a-block-no-snapshots-received-for-2024/"><u>[New] The Indicator of a Block No Snapshots Received for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-resolve-ipadiphone-fb-video-playback-delays/"><u>[Updated] 2024 Approved Resolve iPad/iPhone FB Video Playback Delays</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-daily-diary-downloader/"><u>[Updated] Daily Diary Downloader</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-restarting-disrupted-streams-on-fb-fixes-for-todays-broadcasters/"><u>[Updated] Restarting Disrupted Streams on FB Fixes for Today's Broadcasters</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-rhythm-route-redistribution-your-playlist-anywhere/"><u>[Updated] Rhythm Route Redistribution Your Playlist, Anywhere</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Motorola Edge+ (2023) | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/chronocapture-expert-time-lapse-techniques-for-samsung-users-for-2024/"><u>ChronoCapture Expert Time-Lapse Techniques for Samsung Users for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-techniques-for-restarting-disrupted-live-feeds-fb/"><u>[New] 2024 Approved Techniques for Restarting Disrupted Live Feeds (FB)</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-switching-to-grid-view-in-google-meet-chat-room/"><u>[Updated] 2024 Approved Switching to Grid View in Google Meet Chat Room</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unlocking-the-power-of-seamless-youtube-content-flow-onto-facebook/"><u>[Updated] 2024 Approved Unlocking the Power of Seamless YouTube Content Flow Onto Facebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-choose-your-perfect-wedding-tales-youtubes-finest-8-for-2024/"><u>[Updated] Choose Your Perfect Wedding Tales - Youtube's Finest 8 for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-exporting-mp3-files-from-watched-facebook-vids/"><u>2024 Approved Exporting MP3 Files From Watched Facebook Vids</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/capture-live-conversations-google-meet-on-phones-for-2024/"><u>Capture Live Conversations Google Meet on Phones for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-to-mp4-for-galaxy-s24plus-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD MTS to MP4 for Galaxy S24+?</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/how-to-energize-your-gpu-fans-suddenly/"><u>How to Energize Your GPU Fans Suddenly</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-nokia-130-music-to-mac-drfone-by-drfone-android/"><u>How to Mirror Nokia 130 Music to Mac? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-perfecting-the-art-of-ppt-delivery-via-google-meet-any-device/"><u>In 2024, Perfecting the Art of PPT Delivery via Google Meet (Any Device)</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unleashing-audio-delights-the-art-of-apple-podcast-download-for-2024/"><u>Unleashing Audio Delights The Art of Apple Podcast Download for 2024</u></a></li>
 </ul></div>
 

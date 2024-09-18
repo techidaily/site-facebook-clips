@@ -1,7 +1,7 @@
 ---
 title: "\"[New] What You Missed  A Closer Look at Facebook's 2023 Upgrades for 2024\""
-date: 2024-09-05T22:43:23.034Z
-updated: 2024-09-13T11:45:34.577Z
+date: 2024-09-10T20:49:24.417Z
+updated: 2024-09-18T01:20:39.263Z
 tags:
   - ai video
   - ai facebook
@@ -37,19 +37,6 @@ thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57
 
 **Events:** These encourage boosting engagement, get people talking, and provide helpful information and links for an upcoming event and ultimately planning and tracking who plans to attend. 650+ million users make use of Facebook Events and 100 million on an average every day to publicize the event!
 
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Common Facebook Terms which you should know
 
  If you haven’t joined Facebook until now and feel left out in the group of your friends when they discuss about liking and reacting to a post, updating status, hashtags and tagging then don’t worry! There are lots of terms and phrases which can be termed as ‘Language of Facebook’. These words were in dictionary earlier also but Facebook reinvented their purpose! Warning: They might seem confusing at first but once you enter this world, then these will become your prime words!
@@ -65,13 +52,6 @@ thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57
 **Tag:** It is like marking your friends who hold relevance to the pictures or status that you are uploading on your timeline. These then appears on the timeline of your friends and in newsfeed of other friends.
 
 **Notification:** It is like an update from Facebook of the events and occasions where someone has interacted with you. It might be through reacting on what you shared or by posting something on your wall etc.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Exploring Facebook
 
@@ -89,13 +69,6 @@ thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57
 
 ![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### The Timeline
 
  The Timeline which represents your profile and is visible to your friends and public (subject to your privacy settings) contains inventory of everything which you have shared and which people has tagged you. You can set your profile picture by simply browsing through your picture library. Profile picture is the one which your friends will see when you will comment anything on Facebook. Coverphoto is a picture which can be seen by anybody when they visit your timeline. You can set your personal picture or wallpaper also to express your personality and interests. You can make your profile more informative by adding your school, college, workplace, relationship status and your location etc.
@@ -103,20 +76,6 @@ thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57
  In short, timeline shows everything which forms part of your profile and also the activities which your friends might have posted on your timeline.
 
 ![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Facebook usage is diversified?
 
@@ -132,6 +91,13 @@ thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57
 * Share your feelings for your friends and tag them to pictures which suit their personality
 * Play games and enhance your circle
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Does Facebook Sharing Work?
 
  Facebook is unique and so are the sharing norms! While your conversations at email or IM’s are private, the content that you share on Facebook including photos and links are public. This is because Facebook has emerged as an open network for communication without any sort of limitations and is thus inclined towards being public although you can define privacy and sharing settings for some shared posts.
@@ -141,16 +107,10 @@ thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -168,18 +128,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-deciphering-genuine-connections-in-social-networks/"><u>[New] Deciphering Genuine Connections in Social Networks</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-facebooks-most-popular-video-gems-uncovered-for-2024/"><u>[New] Facebook's Most Popular Video Gems Uncovered for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-no-cost-top-tunes-in-your-library-today/"><u>[New] No Cost Top Tunes in Your Library Today</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-write-with-your-smile-best-ios-and-android-photo-text-apps-for-2024/"><u>[New] Write with Your Smile – Best iOS & Android Photo Text Apps for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-fast-track-mastering-the-download-of-hd-fb-content/"><u>[Updated] Fast Track Mastering the Download of HD FB Content</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-harvesting-hours-top-10-friendly-farm-gaming-experiences/"><u>[Updated] Harvesting Hours Top 10 Friendly Farm Gaming Experiences</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-customizing-video-space-on-facebook-platforms/"><u>[Updated] In 2024, Customizing Video Space on Facebook Platforms</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-oppo-find-n3-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Oppo Find N3 Fingerprint Lock</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/convert-live-facebook-videos-to-mp3s-on-the-fly-for-2024/"><u>Convert Live Facebook Videos to MP3s on the Fly for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-honor-v-purse-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Honor V Purse</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/inquiry-youtubes-payment-scheme-for-creators/"><u>Inquiry YouTube's Payment Scheme for Creators</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/quick-tips-streamlined-processes-for-iphones-screening/"><u>Quick Tips Streamlined Processes for Iphone's Screening</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/samsungs-big-reveal-2025-key-dates-latest-updates-and-anticipated-tech-breakthroughs/"><u>Samsung's Big Reveal 2025: Key Dates, Latest Updates & Anticipated Tech Breakthroughs</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-harnessing-your-cameras-power-for-live-online-content-on-personal-computers/"><u>[New] In 2024, Harnessing Your Camera's Power for Live Online Content on Personal Computers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-lead-the-way-in-igtv-videos-with-best-ever-edits/"><u>[New] In 2024, Lead the Way in IGTV Videos with Best-Ever Edits</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-cyberspace-liberation-overthrowing-hacks-on-facebook/"><u>[Updated] 2024 Approved Cyberspace Liberation Overthrowing Hacks on Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-download-premium-facebook-hd-content-anywhere/"><u>[Updated] 2024 Approved Download Premium Facebook HD Content Anywhere</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-go-big-or-go-home-full-screen-fb-videos/"><u>[Updated] Go Big or Go Home Full-Screen FB Videos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-ultimate-no-fuss-techniques-for-valorant-sessions/"><u>[Updated] In 2024, Ultimate No-Fuss Techniques for Valorant Sessions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unlocking-the-art-of-captions-a-short-guide-to-facebook-videos/"><u>[Updated] In 2024, Unlocking the Art of Captions A Short Guide to Facebook Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2023s-social-media-video-extractor-for-all-platforms/"><u>2023'S Social Media Video Extractor for All Platforms</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/border-techniques-for-enhanced-instagram-pictures-for-2024/"><u>Border Techniques for Enhanced Instagram Pictures for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-nubia-z50-ultra-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Nubia Z50 Ultra?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-combining-forces-sharing-tweets-on-facebook-networks/"><u>In 2024, Combining Forces Sharing Tweets on Facebook Networks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-samsung-galaxy-a14-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Samsung Galaxy A14 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/keeping-your-browsing-free-of-pop-up-videos/"><u>Keeping Your Browsing Free of Pop-Up Videos</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-do-you-want-to-better-your-video-with-premiere-pro-try-transitions-this-article-will-give-you-10-best-premiere-pro-transitions-and-let-you/"><u>New 2024 Approved Do You Want to Better Your Video with Premiere Pro? Try Transitions. This Article Will Give You 10 Best Premiere Pro Transitions and Let You Know How to Add Transitions in Premiere. Check It Out</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unveiling-future-frontiers-in-metaverse-with-top-8-gear-for-2024/"><u>Unveiling Future Frontiers in Metaverse with Top 8 Gear for 2024</u></a></li>
 </ul></div>
 
