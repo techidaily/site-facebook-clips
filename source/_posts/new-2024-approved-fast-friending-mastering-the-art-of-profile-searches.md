@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Fast Friending  Mastering the Art of Profile Searches\""
-date: 2024-09-14T06:24:18.602Z
-updated: 2024-09-17T20:11:41.436Z
+date: 2024-09-17T05:26:40.596Z
+updated: 2024-09-22T23:32:46.675Z
 tags:
   - ai video
   - ai facebook
@@ -46,18 +46,25 @@ On the header tool icons, click on your name and you are directed to your Facebo
 
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 3: Friends Finder Page
 
 To reach the friend’s finder page, click on “find friends” from the friends’ page header. Doing so takes you to the “Friends Finder” page of Facebook.
 
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 4: Friends Search
 
@@ -68,10 +75,10 @@ On the top right of old friends search, you can find the “search for your frie
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to search people using Search Is Back
@@ -82,22 +89,15 @@ On a browser open the [Search is Back site](https://searchisback.com/). You can 
 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Input your Interest
 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Add People as Friends
@@ -109,6 +109,13 @@ Once you have filled in all the filters in the page, you can hit Find People but
 **Note**: If there are no results on the redirected Facebook page, you must get back to the Search is Back page and change your search filters to start a new round of search.
 
 Like Find People tab at the top of the page, you may also search events, posts, shares and photos from the event, post & shares, and photos tabs at the top of the page.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -123,13 +130,6 @@ If you want to make Facebook videos, try to use [Filmora](https://tools.techidai
 [](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -146,18 +146,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-capturing-faces-to-face-on-fb-top-4-tips/"><u>[New] 2024 Approved Capturing Faces-to-Face on FB Top 4 Tips</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-art-of-screenshots-iphoneipad-video-recordings-explained/"><u>[New] 2024 Approved The Art of Screenshots IPhone/iPad Video Recordings Explained</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-ultimate-path-to-link-integration-on-instagrams-social-stage/"><u>[New] 2024 Approved The Ultimate Path to Link Integration on Instagram's Social Stage</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-expert-tips-for-a-closer-look-at-google-meet-participants/"><u>[New] Expert Tips for a Closer Look at Google Meet Participants</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-from-ordinary-to-extraordinary-transform-your-facebook-profile-with-these-tips/"><u>[New] In 2024, From Ordinary to Extraordinary Transform Your Facebook Profile with These Tips</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-launchpad-to-digital-society-the-essentials-of-facebook-account-creation/"><u>[Updated] 2024 Approved Launchpad to Digital Society The Essentials of Facebook Account Creation</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unseen-fb-video-tactics-unlock-all-sharing-options/"><u>[Updated] In 2024, Unseen FB Video Tactics Unlock All Sharing Options</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-avoid-facebooks-invasion-keeping-feeds-free-of-ads/"><u>2024 Approved Avoid Facebook's Invasion Keeping Feeds Free of Ads</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-television-and-social-media-4-ways-to-broadcast-fb-live/"><u>2024 Approved Television & Social Media 4 Ways To Broadcast FB Live</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-honor-80-pro-straight-screen-edition-by-drfone-android/"><u>How to Bypass FRP on Honor 80 Pro Straight Screen Edition?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-xiaomi-redmi-k70e-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Xiaomi Redmi K70E to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-voice-modulation-made-easy-ranking-the-best-audio-alteration-apps-on-smartphones/"><u>In 2024, Voice Modulation Made Easy Ranking the Best Audio Alteration Apps on Smartphones</u></a></li>
-<li><a href="https://solve-help.techidaily.com/winxvideo-ai-masterclass-ultimate-guide-to-video-optimization-and-conversion/"><u>WinxVideo AI Masterclass – Ultimate Guide to Video Optimization and Conversion</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-fb-pages-made-simple-top-8-tools-for-free-and-online-use/"><u>[New] 2024 Approved FB Pages Made Simple Top 8 Tools for Free & Online Use</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-sky-dominance-top-5-fpv-glasses-for-pilots/"><u>[New] Sky Dominance Top 5 FPV Glasses for Pilots</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-zdsofts-screen-capture-brilliance-reviewed-for-2024/"><u>[New] ZDSoft's Screen Capture Brilliance Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-online-fb-music-collection-now/"><u>[Updated] 2024 Approved Online FB Music Collection Now</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-discover-unlimited-stories-free-extensions-and-mobile-marvels/"><u>[Updated] Discover Unlimited Stories – FREE Extensions & Mobile Marvels</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-exploring-advanced-recording-alternatives-to-fbx-frameworks/"><u>[Updated] Exploring Advanced Recording Alternatives to FBX Frameworks</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/facebook-lite-to-your-device-top-6-downloading-tools-of-2023-revealed/"><u>Facebook Lite to Your Device - Top 6 Downloading Tools of 2023 Revealed</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/guide-connecting-your-subwoofer-with-a-samsung-soundbar-a-step-by-step-approach/"><u>Guide: Connecting Your Subwoofer with a Samsung Soundbar - A Step-by-Step Approach</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-vivo-y27-5g-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Vivo Y27 5G Phone that is Locked?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-how-to-guide-on-bypassing-apple-iphone-6s-icloud-activation-lock-by-drfone-ios/"><u>In 2024, A How-To Guide on Bypassing Apple iPhone 6s iCloud Activation Lock</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/mended-error-code-b200/"><u>Mended Error Code: B200</u></a></li>
 </ul></div>
 

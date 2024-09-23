@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Transforming Visual Feeds with Harmonious Hits"
-date: 2024-09-11T03:48:11.707Z
-updated: 2024-09-17T23:21:01.485Z
+date: 2024-09-20T03:28:47.538Z
+updated: 2024-09-23T04:46:48.049Z
 tags:
   - ai video
   - ai facebook
@@ -112,6 +112,19 @@ _For more details about editing videos on Filmora, you can check [How to Edit Vi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
 
 If you don't know already, you can also edit the music sticker on your story to make it look more attractive. There are various features such as editing the music sticker image, changing color, selecting the 30-second part of the song, and enabling lyrics.
@@ -123,10 +136,10 @@ You can click on the play button after selecting the song, and it will appear in
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  **Step**  2: Change the color **and**   **add elements**
@@ -136,13 +149,6 @@ Tap and hold the sticker; move your finger on the screen to place the sticker an
 A user can also select elements from the given options. You can add a poll, emojis, and GIFs to interact with viewers. Click on done on the top right corner to post.
 
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs About Adding Music to Facebook Story
 
@@ -175,21 +181,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-boosting-engagement-tactics-for-great-instagram-reels/"><u>[New] In 2024, Boosting Engagement Tactics for Great Instagram Reels</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-copyright-confusion-suddenly-no-more-videos/"><u>[New] In 2024, Copyright Confusion Suddenly No More Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-delight-in-facebooks-forgotten-meme-kingdoms/"><u>[New] In 2024, Delight in Facebook's Forgotten Meme Kingdoms</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-tackle-intermittent-fb-reels-display/"><u>[Updated] 2024 Approved Tackle Intermittent FB Reels Display</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-exploring-roku-watching-facebook-live-effortlessly/"><u>[Updated] In 2024, Exploring Roku Watching Facebook Live Effortlessly</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-mastering-snap-shots-in-google-meet-a-quick-guide-for-2024/"><u>[Updated] Mastering Snap Shots in Google Meet A Quick Guide for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-maximize-page-reach-on-facebook/"><u>[Updated] Maximize Page Reach on Facebook</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-soothing-serenity-sessions-leading-asmr-artists/"><u>[Updated] Soothing Serenity Sessions Leading ASMR Artists</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-stop-in-app-video-buffering-issues/"><u>2024 Approved Stop In-App Video Buffering Issues</u></a></li>
-<li><a href="https://techtrends.techidaily.com/a-deep-dive-into-how-dts-virtualx-enhances-sound-quality/"><u>A Deep Dive Into How DTS Virtual:X Enhances Sound Quality</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/an-in-depth-look-at-huawei-p10s-audio-experience/"><u>An In-Depth Look at Huawei P10's Audio Experience</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/enhancing-video-presence-editing-and-changing-facebook-covers/"><u>Enhancing Video Presence Editing and Changing Facebook Covers</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-lava-storm-5g-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Lava Storm 5G? Try These Fixes</u></a></li>
-<li><a href="https://discover-great.techidaily.com/gratis-herunterladen-top-dvd-entschlusselungstools-fur-jeden-filmtyp/"><u>Gratis Herunterladen: Top-DVD-Entschlüsselungstools Für Jeden Filmtyp</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-xiaomi-redmi-note-12-pro-5g-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Xiaomi Redmi Note 12 Pro 5G</u></a></li>
-<li><a href="https://extra-information.techidaily.com/prime-drones-best-prices-now/"><u>Prime Drones, Best Prices Now</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-free-tools-to-save-big-screen-fb-video/"><u>[New] 2024 Approved Free Tools to Save Big Screen FB Video</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-breaking-into-the-brainshare-how-to-hype-up-your-fb-content-for-2024/"><u>[New] Breaking Into the Brainshare How to Hype Up Your FB Content for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-inventory-types-of-fb-video-ratios/"><u>[New] In 2024, Inventory Types of FB Video Ratios</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-is-your-facebook-video-more-engaging-in-a-vertical-format/"><u>[New] In 2024, Is Your Facebook Video More Engaging in a Vertical Format?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-unlock-the-secrets-of-facebook-live-a-beginners-manual/"><u>[New] In 2024, Unlock the Secrets of Facebook Live A Beginner's Manual</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-mastering-tunes-in-fb-video-posts-your-step-by-step-manual/"><u>[Updated] 2024 Approved Mastering Tunes in FB Video Posts Your Step-by-Step Manual</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-maximizing-your-videos-impact-with-expertly-recorded-voices/"><u>[Updated] 2024 Approved Maximizing Your Video's Impact with Expertly Recorded Voices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-maximizing-video-game-channel-revenue/"><u>[Updated] In 2024, Maximizing Video Game Channel Revenue</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-win-11-mov-file-recording-guide/"><u>[Updated] In 2024, Win 11 MOV File Recording Guide</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-jailbreak-icloud-locked-iphone-6s-plus-by-drfone-ios/"><u>How to jailbreak iCloud locked iPhone 6s Plus</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-v30-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Realme V30 Phone Without Password?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlocking-x-previously-twitter-a-novices-quick-reference-to-essential-tips-and-tricks-in-10-easy-pieces/"><u>Unlocking X (Previously Twitter): A Novice's Quick Reference to Essential Tips and Tricks in 10 Easy Pieces</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-achieve-filmic-quality-a-guide-to-cinematic-editing-in-fcpx-for-2024/"><u>Updated Achieve Filmic Quality A Guide to Cinematic Editing in FCPX for 2024</u></a></li>
 </ul></div>
 

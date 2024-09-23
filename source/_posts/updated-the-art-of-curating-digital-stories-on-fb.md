@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Art of Curating Digital Stories on FB"
-date: 2024-09-11T20:19:17.348Z
-updated: 2024-09-18T03:19:53.809Z
+date: 2024-09-20T23:12:48.629Z
+updated: 2024-09-23T06:24:21.091Z
 tags:
   - ai video
   - ai facebook
@@ -63,18 +63,25 @@ Now select photos that you wish to add to your slideshow, you can also add video
 
 ![facebook slideshow library](https://images.wondershare.com/filmora/article-images/facebook-slideshow-library.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 3: Edit Facebook slideshow
 
 The Edit option allows you to delete an image and adjust the order of the photos and videos that you want them to appear in the slideshow. In case if you want to remove any of your added images from the slideshow then simply tap on that particular image and you will find a trash icon on the screen. Tap that option. There is a More button on your screen, using this button you can easily add titles at the beginning of your slideshow as well as put your friends in the tag list. Now go to the preview option and check the quality of your slide show. You can also watch videos in any editing stage and all changes can be updated immediately. Note that adding more photos or videos to the slideshow means you are going to have a lengthy slideshow.
 
 ![how to create a slideshow on facebook](https://images.wondershare.com/filmora/filmorapro/edit-facebook-slideshow.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 4: Publish Facebook slideshow
 
@@ -93,17 +100,10 @@ Everyone can create a slideshow but not everyone can create appealing slideshows
 ![tips for making slideshow on facebook](https://images.wondershare.com/filmora/filmorapro/slideshow-example.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -117,16 +117,10 @@ Now, you must know how to make a Facebook slideshow. If you want to make a slide
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -144,18 +138,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-cone-chronicles-a-deep-dive-into-ice-cream-recording-software/"><u>[New] 2024 Approved Cone Chronicles A Deep Dive Into Ice Cream Recording Software</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-next-gen-streaming-enable-av1-codec-on-youtube/"><u>[New] 2024 Approved Next-Gen Streaming Enable AV1 Codec on YouTube</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-comprehensive-solution-guide-turning-xml-and-ttml-into-srt-for-2024/"><u>[New] Comprehensive Solution Guide Turning XML & TTML Into SRT for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-fast-photo-journey-crafting-quick-dynamic-google-collages/"><u>[New] The Fast Photo Journey Crafting Quick, Dynamic Google Collages</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-ideal-fullscreen-recorder-with-macpc-support/"><u>[Updated] In 2024, Ideal Fullscreen Recorder with Mac/PC Support</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-unlocking-fb-top-8-free-downloader-tools/"><u>[Updated] Unlocking FB Top 8 Free Downloader Tools</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/all-about-iphone-se-2020-unlock-chip-you-need-to-know-by-drfone-ios/"><u>All About iPhone SE (2020) Unlock Chip You Need to Know</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/discover-the-next-wave-of-effective-facebook-ad-techniques-for-2024/"><u>Discover the Next Wave of Effective Facebook Ad Techniques for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/eight-free-android-recorders-top-selection-list-for-2024/"><u>Eight Free Android Recorders – Top Selection List for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/fixing-windows-photo-viewer-issues-easy-solutions-for-windows-11-users/"><u>Fixing Windows Photo Viewer Issues: Easy Solutions for Windows 11 Users</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-do-realme-narzo-60-pro-5g-screen-sharing-drfone-by-drfone-android/"><u>How To Do Realme Narzo 60 Pro 5G Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-premier-mp4-converter-for-smooth-fb-integration/"><u>In 2024, Premier MP4 Converter for Smooth FB Integration</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/unexpected-10-best-kept-facebook-memes-for-2024/"><u>Unexpected 10 Best-Kept Facebook Memes for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-cutting-edge-marketing-anticipating-fbs-trends-of-the-new-decade/"><u>[New] 2024 Approved Cutting-Edge Marketing Anticipating FB's Trends of the New Decade</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-key-components-to-successful-ad-textual-content-creation/"><u>[New] 2024 Approved Key Components to Successful Ad Textual Content Creation</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-fine-tune-youtube-video-pacing-desktopmobile-for-2024/"><u>[New] Fine-Tune YouTube Video Pacing - Desktop/Mobile for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-the-ultimate-guide-for-enthusiasts-on-screenshotting-with-zd-software/"><u>[New] In 2024, The Ultimate Guide for Enthusiasts on Screenshotting with ZD Software</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-strategies-for-succeeding-with-facebook-video-marketing-and-revenue/"><u>[New] Strategies for Succeeding with Facebook Video Marketing and Revenue</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-top-10-premier-android-and-ios-video-chat-tools/"><u>[Updated] In 2024, Top 10 Premier Android & iOS Video Chat Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-share-wisdom-top-strategies-for-video-sharing-on-instagram/"><u>[Updated] Share Wisdom Top Strategies for Video Sharing on Instagram</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-timing-of-youtube-earnings-a-closer-insight/"><u>[Updated] Timing of YouTube Earnings A Closer Insight</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/2024-approved-discover-virtual-reality-environment-noises/"><u>2024 Approved Discover Virtual Reality Environment Noises</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-halt-video-size-bloat-convert-fb-vids-to-720p-and-1080p-mp4/"><u>2024 Approved Halt Video Size Bloat Convert FB Vids to 720P & 1080P MP4</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/dolby-sound-not-working-on-windows-11-activate-dolby-audio-driver-without-hitches/"><u>Dolby Sound Not Working on Windows 11? Activate Dolby Audio Driver Without Hitches</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723010921756-evil-genius-2-wont-start-heres-how-to-successfully-get-it-running-again/"><u>Evil Genius 2 Won't Start? Here's How to Successfully Get It Running Again</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/fb-cover-videos-demystified-what-everyone-should-know/"><u>FB Cover Videos Demystified What Everyone Should Know</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-oppo-reno-11-pro-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Oppo Reno 11 Pro 5G Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-melodic-freedom-fbs-music-library/"><u>In 2024, Melodic Freedom FB's Music Library</u></a></li>
 </ul></div>
 

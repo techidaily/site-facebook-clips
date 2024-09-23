@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step for Novices  Utilizing Facebook Insights\""
-date: 2024-09-11T09:19:26.961Z
-updated: 2024-09-18T07:17:37.893Z
+date: 2024-09-17T07:03:20.838Z
+updated: 2024-09-22T22:05:42.078Z
 tags:
   - ai video
   - ai facebook
@@ -49,18 +49,25 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
 
 ## Part 3: How to Use Facebook Insights for Beginners
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Overview
 
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
 
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Page Likes
 
@@ -71,6 +78,13 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
  Secondly, the **net likes**, which captures the total new likes on your page subtracted by the total dislikes.
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Post Reach
 
@@ -85,10 +99,10 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Post Promotion
@@ -106,13 +120,6 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
  The Top Videos section shows you the top 5 videos posted by you with more than 3 seconds views. This helps you to analyse the type of video preferred by your audiences.
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. People Analytics
 
@@ -133,26 +140,13 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -169,19 +163,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-connect-worlds-quickly-sharing-tiktoks-with-facebook/"><u>[New] 2024 Approved Connect Worlds Quickly Sharing TikToks with Facebook</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-fast-and-furious-the-prime-5-video-clipping-tools-in-chromes/"><u>[Updated] 2024 Approved Fast & Furious The Prime 5 Video Clipping Tools in Chromes</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-bridge-the-gap-transferring-files-from-pc-to-ios/"><u>[Updated] Bridge the Gap Transferring Files From PC to iOS</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-elevate-visual-appeal-incorporating-black-bar-and-box-in-social-feeds/"><u>[Updated] In 2024, Elevate Visual Appeal Incorporating Black Bar & Box in Social Feeds</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-ultimate-compilation-best-6-fb-lite-extractors/"><u>[Updated] In 2024, Ultimate Compilation Best 6 FB Lite Extractors</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-insiders-look-at-streaming-content-on-social-media-platforms/"><u>[Updated] Insider's Look at Streaming Content on Social Media Platforms</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-xbox-hdd-guide-top-5-essential-reviews/"><u>[Updated] Xbox HDD Guide Top 5 Essential Reviews</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-the-zen-of-zoom-talk-top-strategies-for-smooth-virtual-dialogue/"><u>2024 Approved The Zen of Zoom Talk Top Strategies for Smooth Virtual Dialogue</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-personalizes-mobile-transactions-eclipsing-traditional-app-store-practices/"><u>Facebook Personalizes Mobile Transactions, Eclipsing Traditional App Store Practices</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/master-iphoneandroid-apps-top-10-photo-edits-guide/"><u>Master iPhone/Android Apps Top 10 Photo Edits Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/sonic-sweepstakes-top-tunes-for-viral-youtube-short-videos-for-2024/"><u>Sonic Sweepstakes Top Tunes for Viral YouTube Short Videos for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/swiftly-solve-common-pitfalls-addressing-6-chatgpt-issues/"><u>Swiftly Solve Common Pitfalls: Addressing 6 ChatGPT Issues</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/the-insiders-look-at-creating-viral-fb-cover-videos/"><u>The Insider's Look at Creating Viral FB Cover Videos</u></a></li>
-<li><a href="https://driver-error.techidaily.com/1721096790905-windows-10-gtx-950-code-43/"><u>Windows 10를 사용하는 GTX 950의 Code 43 오류를 해결하는 획기적인 공유</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-chart-a-course-to-success-youtube-studio-blueprint/"><u>[New] 2024 Approved Chart a Course to Success YouTube Studio Blueprint</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-facebooks-10-best-music-clips-making-them-happen/"><u>[New] In 2024, Facebook's 10 Best Music Clips Making Them Happen</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-mastering-fb-reel-creation-step-by-step-guide/"><u>[Updated] In 2024, Mastering FB Reel Creation Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-jump-into-the-moment-with-these-8-trendy-videos-on-fb/"><u>[Updated] Jump Into the Moment with These 8 Trendy Videos on FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-rise-of-facebooks-quick-vids-for-2024/"><u>[Updated] The Rise of Facebook's Quick Vids for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-5-display-choices-for-ps5/"><u>[Updated] Ultimate 5 Display Choices For PS5</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-budget-saving-stratospheric-storage-for-heavy-dumps/"><u>2024 Approved Budget-Saving Stratospheric Storage for Heavy Dumps</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-virtual-interaction-at-its-peak-facebooks-guide-to-screenshare-success/"><u>2024 Approved Virtual Interaction at Its Peak Facebook's Guide to Screenshare Success</u></a></li>
+<li><a href="https://win-blog.techidaily.com/6-rapid-remedies-for-smoother-gameplay-overcoming-fps-drops-in-elden-ring/"><u>6 Rapid Remedies for Smoother Gameplay: Overcoming FPS Drops in Elden Ring</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/a-critique-on-tropico-6-ruling-over-a-stunning-island-nation/"><u>A Critique on 'Tropico 6': Ruling Over a Stunning Island Nation</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-zte-nubia-z60-ultra-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your ZTE Nubia Z60 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/exploring-beyond-manycam-enhanced-alternatives/"><u>Exploring Beyond ManyCam Enhanced Alternatives?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-diaspora-user-visualization-measurements-format-length/"><u>In 2024, Diaspora User Visualization Measurements, Format, Length</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/resolve-absent-watch-screen-button/"><u>Resolve Absent Watch Screen Button</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-non-functional-keyboard-on-boot/"><u>Troubleshooting Guide: Non-Functional Keyboard on Boot</u></a></li>
 </ul></div>
 

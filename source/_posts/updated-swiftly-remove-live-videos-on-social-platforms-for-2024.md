@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Swiftly Remove Live Videos on Social Platforms for 2024"
-date: 2024-09-14T02:50:56.566Z
-updated: 2024-09-18T02:43:28.488Z
+date: 2024-09-20T19:37:21.022Z
+updated: 2024-09-22T18:58:56.942Z
 tags:
   - ai video
   - ai facebook
@@ -98,22 +98,15 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Hide Facebook Story from Specific People?
@@ -127,10 +120,10 @@ Facebook has made sharing stories easy because of the multiple features it offer
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
@@ -140,6 +133,13 @@ If you don't want to see someone else’s story, then you can mute their stories
 Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
 
 ![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -162,16 +162,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-ensuring-your-facebook-reach-with-exceptional-cover-videos/"><u>[New] 2024 Approved Ensuring Your Facebook Reach with Exceptional Cover Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-youtube-banners-makers-10plus-online-tools-to-create-channel-art/"><u>[New] 2024 Approved Youtube Banners Makers 10+ Online Tools to Create Channel Art</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-key-fb-video-plays-for-optimal-engagement/"><u>[New] Key FB Video Plays for Optimal Engagement</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-effortlessly-download-top-5-chromium-plug-ins-for-fb-video-access/"><u>[Updated] 2024 Approved Effortlessly Download Top 5 Chromium Plug-Ins for FB Video Access</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-top-quality-fb-picture-and-film-maker-gratis/"><u>2024 Approved Top-Quality FB Picture & Film Maker (Gratis!)</u></a></li>
-<li><a href="https://article-tips.techidaily.com/accelerate-audio-playback-on-spotify-safely-and-effectively/"><u>Accelerate Audio Playback on Spotify Safely & Effectively</u></a></li>
-<li><a href="https://driver-download.techidaily.com/access-points-download-and-install-effortlessly/"><u>Access Points! Download & Install Effortlessly!</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-frozen-frontiers-highlights-from-beijings-winter-games/"><u>In 2024, Frozen Frontiers Highlights From Beijing's Winter Games</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/inside-mastery-exploring-polarrs-sophisticated-image-editing-for-2024/"><u>Inside Mastery Exploring Polarr's Sophisticated Image Editing for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ranking-the-best-notetakers-the-ultimate-top-ten-list/"><u>Ranking the Best Notetakers: The Ultimate Top-Ten List</u></a></li>
-<li><a href="https://techidaily.com/use-device-manager-to-update-hardware-drivers-in-windows-10-by-drivereasy-guide/"><u>Use Device Manager to update hardware drivers in Windows 10</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-50plus-amazing-online-sources-to-boost-your-fb-cover-image/"><u>[New] 2024 Approved 50+ Amazing Online Sources to Boost Your FB Cover Image</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-cutting-edge-tools-for-next-gen-live-streams-for-2024/"><u>[New] Cutting-Edge Tools for Next-Gen Live Streams for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhancing-user-experience-strategic-placement-of-alerts-on-youtube-content-for-2024/"><u>[New] Enhancing User Experience Strategic Placement of Alerts on YouTube Content for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-essential-tactics-for-viral-fb-video-marketing-for-2024/"><u>[New] Essential Tactics for Viral FB Video Marketing for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-extract-facebooks-most-viewed-videos-anywhere-2023/"><u>[New] Extract Facebook's Most Viewed Videos Anywhere, 2023</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-prime-selection-of-webcams-for-optimal-zoom-video-quality/"><u>[New] Prime Selection of Webcams for Optimal Zoom Video Quality</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-smooth-streaming-fix-facebooks-playback-problems-for-2024/"><u>[New] Smooth Streaming – Fix Facebook's Playback Problems for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-expressive-sketches-for-fortnite-icons/"><u>[Updated] In 2024, Expressive Sketches for Fortnite Icons</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-linguistic-linkers-the-premier-list-for-offline-recognition-devices-for-2024/"><u>[Updated] Linguistic Linkers The Premier List for Offline Recognition Devices for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Tecno Spark 20C | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Realme Narzo 60 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-download-fb-content-windows-and-mac-guide/"><u>In 2024, Download FB Content Windows & Mac Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/real-time-transmission-of-recorded-content-on-social-media-via-facebook-for-2024/"><u>Real-Time Transmission of Recorded Content on Social Media via Facebook for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-the-best-video-editing-software-videopad-review-and-comparison/"><u>Updated The Best Video Editing Software? Videopad Review and Comparison</u></a></li>
 </ul></div>
 
