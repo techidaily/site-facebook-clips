@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Proficiently Post 360-Degree Content on FB\""
-date: 2024-09-20T04:39:16.017Z
-updated: 2024-09-23T03:17:33.599Z
+date: 2024-09-24T21:35:47.962Z
+updated: 2024-09-29T01:52:08.545Z
 tags:
   - ai video
   - ai facebook
@@ -70,9 +70,23 @@ thumbnail: https://thmb.techidaily.com/37b56893bb3f0e1aebfa5ebfbca34f8037db29ed8
 
 ![Facebook 360 video upload](https://images.wondershare.com/filmora/article-images/facebook-360-video-upload.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
 
 ![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
 
@@ -81,10 +95,10 @@ thumbnail: https://thmb.techidaily.com/37b56893bb3f0e1aebfa5ebfbca34f8037db29ed8
  Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook 360 Video & Gear VR
@@ -110,10 +124,10 @@ thumbnail: https://thmb.techidaily.com/37b56893bb3f0e1aebfa5ebfbca34f8037db29ed8
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -129,5 +143,22 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-frame-by-frame-verbalizer/"><u>[New] 2024 Approved Frame by Frame Verbalizer</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-effortless-hue-adjustments-with-adobes-software-for-2024/"><u>[New] Effortless Hue Adjustments with Adobe's Software for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-elevating-social-influence-top-techniques-for-facebook-seo-excellence/"><u>[New] Elevating Social Influence Top Techniques for Facebook SEO Excellence</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-facebook-news-the-latest-updates-unveiled-for-2024/"><u>[Updated] Facebook News The Latest Updates Unveiled for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-insiders-selection-premium-webinar-tools/"><u>[Updated] Insider's Selection Premium Webinar Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-interactive-photography-sharing-immersive-360-photos-via-mobile-devices/"><u>[Updated] Interactive Photography Sharing Immersive 360 Photos via Mobile Devices</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-melody-seeker-find-mp3-on-fb/"><u>[Updated] Melody Seeker Find MP3 on FB</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-step-by-step-guide-to-efficient-video-capture-with-zd-software-tools-for-2024/"><u>[Updated] Step-by-Step Guide to Efficient Video Capture with ZD Software Tools for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-top-tier-tactics-for-crafting-fbs-most-watched-videos/"><u>[Updated] Top-Tier Tactics for Crafting #FB's Most Watched Videos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/download-kinemaster-pro-for-mac-a-detailed-installation-process-for-2024/"><u>Download KineMaster Pro for Mac A Detailed Installation Process for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/expert-advice-on-optimal-hdr-camera-selection-for-2024/"><u>Expert Advice on Optimal HDR Camera Selection for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-chat-to-tune-downloader-for-fb/"><u>In 2024, Chat to Tune Downloader for FB</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-any-vivo-s17e-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Vivo S17e Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/visual-aesthetics-boost-integrating-black-bar-and-box-frame-for-social-media-for-2024/"><u>Visual Aesthetics Boost Integrating Black Bar & Box Frame for Social Media for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Introduction to Effective Analysis  Facebook Insights\""
-date: 2024-09-13T18:06:01.195Z
-updated: 2024-09-17T21:41:11.361Z
+date: 2024-09-27T05:47:53.570Z
+updated: 2024-09-29T11:39:45.449Z
 tags:
   - ai video
   - ai facebook
@@ -41,6 +41,13 @@ thumbnail: https://thmb.techidaily.com/79265524b64a96a355aa9c66ef040a78b4c61cd77
 
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Where to Find Facebook Insights
 
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
@@ -49,13 +56,6 @@ thumbnail: https://thmb.techidaily.com/79265524b64a96a355aa9c66ef040a78b4c61cd77
 
 ## Part 3: How to Use Facebook Insights for Beginners
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Overview
 
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
@@ -63,10 +63,10 @@ thumbnail: https://thmb.techidaily.com/79265524b64a96a355aa9c66ef040a78b4c61cd77
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Page Likes
@@ -91,22 +91,15 @@ thumbnail: https://thmb.techidaily.com/79265524b64a96a355aa9c66ef040a78b4c61cd77
 
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Video Analytics
@@ -121,6 +114,13 @@ thumbnail: https://thmb.techidaily.com/79265524b64a96a355aa9c66ef040a78b4c61cd77
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. People Analytics
 
  Under the People tab, you get to understand the metrics of like and views of people on your posts. It is further divided into 3 sections.
@@ -134,10 +134,10 @@ thumbnail: https://thmb.techidaily.com/79265524b64a96a355aa9c66ef040a78b4c61cd77
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -161,5 +161,26 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-best-video-format-for-youtube-uploading-for-2024/"><u>[New] Best Video Format for YouTube Uploading for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-easier-than-ever-accessing-ifunnys-memetic-delights/"><u>[New] Easier Than Ever Accessing iFunny’s Memetic Delights</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-facebook-cover-video-widthheight-guide/"><u>[New] In 2024, Facebook Cover Video Width/Height Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-set-up-facebook-cover-videos/"><u>[New] In 2024, Set up Facebook Cover Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-seamless-access-watching-fb-videos-on-apple-tv-explained-for-2024/"><u>[New] Seamless Access Watching FB Videos on Apple TV Explained for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-correcting-accidental-youself-reappearances-on-social-media/"><u>[Updated] 2024 Approved Correcting Accidental 'Youself' Reappearances on Social Media</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-expert-tips-transforming-mundane-into-masterpieces-with-canva/"><u>[Updated] Expert Tips Transforming Mundane Into Masterpieces with Canva</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-facestream-recorder-pro-messenger/"><u>[Updated] FaceStream Recorder Pro-Messenger</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-capture-and-store-5-best-ways-to-save-your-favorite-facebook-videos/"><u>[Updated] In 2024, Capture & Store 5 Best Ways to Save Your Favorite Facebook Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-guide-to-reinventing-facebook-video-coverages-step-by-step/"><u>[Updated] In 2024, Guide to Reinventing Facebook Video Coverages Step-by-Step</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-rising-to-fame-creating-the-ultimate-facebook-song-video/"><u>[Updated] Rising to Fame Creating the Ultimate Facebook Song Video</u></a></li>
+<li><a href="https://article-tips.techidaily.com/blade-chroma-with-4k-camera-review-for-2024/"><u>Blade Chroma with 4K Camera Review for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-smooth-transition-from-iphones-jpegpng-files-to-pdf-format/"><u>In 2024, Smooth Transition From iPhone's JPEG/PNG Files to PDF Format</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-tecno-spark-20-pro-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Tecno Spark 20 Pro Device</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-vivo-y27-4g-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Vivo Y27 4G Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/real-time-facebook-footage-the-top-5-live-streaming-apps-for-2024/"><u>Real-Time Facebook Footage The Top 5 Live-Streaming Apps for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/real-time-visual-documentation/"><u>Real-Time Visual Documentation</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/spectral-synergy-using-color-theories-effectively-for-2024/"><u>Spectral Synergy Using Color Theories Effectively for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-samsung-galaxy-a15-4g-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Samsung Galaxy A15 4G Android SIM Unlock APK</u></a></li>
+</ul></div>
 

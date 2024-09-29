@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Cutting Down Curated Content  How to Delete FB Story (PC & Phone) for 2024\""
-date: 2024-09-15T23:05:46.478Z
-updated: 2024-09-18T06:34:35.245Z
+date: 2024-09-21T18:34:02.157Z
+updated: 2024-09-29T10:33:46.283Z
 tags:
   - ai video
   - ai facebook
@@ -76,6 +76,13 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This is how you will remove the stories from Facebook archived.
 
 ## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
@@ -91,10 +98,10 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Control Who Can View Your Facebook Stories?
@@ -109,6 +116,19 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 5: How to Hide Facebook Story from Specific People?
 
 Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
@@ -117,20 +137,13 @@ Facebook has made sharing stories easy because of the multiple features it offer
 
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
@@ -140,6 +153,13 @@ If you don't want to see someone else’s story, then you can mute their stories
 Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
 
 ![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -160,5 +180,22 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ssential-illumination-strategies-for-filming/"><u>[New] Essential Illumination Strategies for Filming</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-revolutionize-your-facebook-presence-with-these-10-strategies/"><u>[New] In 2024, Revolutionize Your Facebook Presence with These 10 Strategies</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-bridge-the-gap-between-viewers-and-wide-angles-posting-on-facebook-for-2024/"><u>[Updated] Bridge the Gap Between Viewers and Wide Angles Posting on Facebook for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-chromatic-magic-transform-your-video-with-color-knowledge/"><u>[Updated] Chromatic Magic Transform Your Video with Color Knowledge</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-top-picks-essential-products-every-entrepreneur-must-own/"><u>[Updated] Top Picks Essential Products Every Entrepreneur Must Own</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unlocking-the-secrets-of-google-podcast-uploads/"><u>[Updated] Unlocking the Secrets of Google Podcast Uploads</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-insiders-look-at-facebook-video-proportions-and-settings/"><u>2024 Approved The Insider's Look at Facebook Video Proportions and Settings</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/5-solutions-for-asus-unlock-without-password-by-drfone-android/"><u>5 Solutions For Asus Unlock Without Password</u></a></li>
+<li><a href="https://facebook.techidaily.com/hiding-undesired-memories-on-facebook/"><u>Hiding Undesired Memories on Facebook</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-get-and-install-updated-drivers-for-your-hp-officejet-pro-e8610-on-windows-systems/"><u>How to Get and Install Updated Drivers for Your HP Officejet Pro E8610 on Windows Systems</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-from-basics-to-brilliance-a-complete-guide-to-writing-impactful-biographies/"><u>In 2024, From Basics to Brilliance A Complete Guide to Writing Impactful Biographies</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-socialmediavidextractor-app/"><u>In 2024, SocialMediaVidExtractor App</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcoming-common-windows-scanner-errors/"><u>Overcoming Common Windows Scanner Errors</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/setting-up-two-step-verification-in-gmail-a-step-by-step-guide/"><u>Setting Up Two-Step Verification in Gmail: A Step-by-Step Guide</u></a></li>
+<li><a href="https://techtrends.techidaily.com/uncovering-the-secret-displaying-non-apple-apps-again-on-iphone/"><u>Uncovering the Secret: Displaying Non-Apple Apps Again on iPhone</u></a></li>
+</ul></div>
 

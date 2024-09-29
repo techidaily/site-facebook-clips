@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-By Step Approach  Crafting Quality Subtitles for Facebook Videos in Minutes\""
-date: 2024-09-20T03:29:18.891Z
-updated: 2024-09-23T04:32:55.390Z
+date: 2024-09-26T05:49:18.230Z
+updated: 2024-09-28T19:43:57.530Z
 tags:
   - ai video
   - ai facebook
@@ -64,17 +64,38 @@ It is also possible to delete Facebook video captions with ease. Click the trash
 
 Save all updates when you are satisfied with preview.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Edit Facebook Video Text/Subtitles with Wondershare Filmora
 
 It is convenient to create captions in Facebook with the automatic generate tool or uploading the .SRT file, but if you want your text/subtitle with more cool visual effects, like dialog balloons, headings, we recommend you to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can easily update intro, credit and captions as well as subtitles to your Facebook videos using Wondershare Filmora tool. If you want to make video for business, here comes [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/). It is a simple to use video editor to make short video on Facebook. You can make amazing Facebook videos. Download it now to have a try!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Here are few simple to follow steps
 
 #### Step 1: Import your desired Video File
 
 ![drag n drop timeline](https://images.wondershare.com/filmora/article-images/drag-n-drop-timeline.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
 
@@ -97,6 +118,13 @@ Once you have finished the text based editing task then hit the Export option av
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -110,18 +138,23 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-unveiling-the-secrets-of-video-captioning-in-vimeo/"><u>[New] 2024 Approved Unveiling the Secrets of Video Captioning in Vimeo</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-artful-approaches-to-elevating-your-fb-ad-reach-for-2024/"><u>[New] Artful Approaches to Elevating Your FB Ad Reach for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-battling-the-invisible-screen-on-social-media-a-chromesafari-guide/"><u>[New] Battling the Invisible Screen on Social Media A Chrome/Safari Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-video-marketing-excellence-on-instagram-crafting-a-winning-strategy-for-2024/"><u>[New] Video Marketing Excellence on Instagram Crafting a Winning Strategy for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-optimizing-hashtag-performance-on-facebook-ads/"><u>[Updated] 2024 Approved Optimizing Hashtag Performance on Facebook Ads</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-accessing-and-archiving-your-facebook-status-vids/"><u>[Updated] In 2024, Accessing and Archiving Your Facebook Status Vids</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-masterful-methods-for-attaching-fb-story-links-for-2024/"><u>[Updated] Masterful Methods for Attaching FB Story Links for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-mastering-desktop-and-mobile-the-best-ways-to-download-fb-story/"><u>2024 Approved Mastering Desktop & Mobile The Best Ways to Download FB Story</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/direct-connection-navigating-desktop-display-integration-on-facebook/"><u>Direct Connection Navigating Desktop Display Integration on Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-streamlining-your-site-facebook-live-integration-guide/"><u>In 2024, Streamlining Your Site Facebook LIVE Integration Guide</u></a></li>
+<li><a href="https://driver-download.techidaily.com/mastering-wd-ses-usb-installation-tips-for-secure-data-transfer-on-newer-devices-post-2n11/"><u>Mastering WD SES USB Installation: Tips for Secure Data Transfer on Newer Devices (Post-2n11)</u></a></li>
+<li><a href="https://techtrends.techidaily.com/no-worries-mastering-the-art-of-post-send-instagram-message-edits/"><u>No Worries: Mastering the Art of Post-Send Instagram Message Edits</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/quickcapture-plus-voice-guided-session-maker/"><u>QuickCapture + Voice-Guided Session Maker</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/quickprint-the-easy-guide-to-win-screen-snaps/"><u>QuickPrint The Easy Guide to Win Screen Snaps</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722974417406-step-by-step-guide-to-repairing-windows-7-network-adapter-driver-woes-now-fixed/"><u>Step-by-Step Guide to Repairing Windows 7 Network Adapter Driver Woes - NOW FIXED</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tech-faceoff-analyzing-the-differences-between-apples-ipad-pro-and-microsoft-surface-pro/"><u>Tech Faceoff: Analyzing the Differences Between Apple’s iPad Pro and Microsoft Surface Pro</u></a></li>
+</ul></div>
 
