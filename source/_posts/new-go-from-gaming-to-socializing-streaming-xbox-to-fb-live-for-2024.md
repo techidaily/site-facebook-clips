@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Go From Gaming to Socializing  Streaming Xbox to FB Live for 2024\""
-date: 2024-08-24T08:56:08.936Z
-updated: 2024-08-25T08:56:08.936Z
+date: 2024-10-02T18:21:40.074Z
+updated: 2024-10-04T19:24:02.116Z
 tags:
   - ai video
   - ai facebook
@@ -46,9 +46,23 @@ a. For this you need to go to the settings of your Xbox and then choose Preferen
 
 ![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
 
 ![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2: Connect the Xbox one to the Windows 10 computer**
 
@@ -65,15 +79,23 @@ d. Once the connection is established the icons would indicate that and you will
 ![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Method 2:Streaming Xbox to computer with a capture card
 
 You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Use Wirecast or OBS to stream your desktop to Facebook
 
 Once all is set up you can live stream you desktop screen to facebook, we are not going to give a full introdcution here, you can check _OBS setup here,_ and _Wirecast setup here._
@@ -86,9 +108,6 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 ![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
 
 **Pros**\- One of the best live streaming software, Wirecast can be used even by novices. This powerful and professional software comes with loads of exciting features
@@ -97,25 +116,13 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 ![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -123,3 +130,25 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-evaluating-itop-as-a-screen-recording-solution/"><u>[New] 2024 Approved Evaluating ITop as a Screen Recording Solution?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-from-lurkers-to-leaders-elevate-your-facebook-game/"><u>[New] 2024 Approved From Lurkers to Leaders Elevate Your Facebook Game</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-engage-viewers-directly-tips-for-live-video-screen-share/"><u>[New] Engage Viewers Directly Tips for Live Video Screen-Share</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-explore-the-limitless-potential-of-fb-vr-upload-tips-for-2024/"><u>[New] Explore the Limitless Potential of FB VR Upload Tips for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-the-pros-guide-to-efficient-win11-use/"><u>[New] In 2024, The Pro's Guide to Efficient Win11 Use</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-televising-fb-live-top-methods-explored/"><u>[New] Televising FB Live Top Methods Explored</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-crafting-captivating-intros-on-mobile-platforms/"><u>[Updated] Crafting Captivating Intros on Mobile Platforms</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-elevate-your-profiles-visual-appeal-for-2024/"><u>[Updated] Elevate Your Profile's Visual Appeal for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-getting-it-just-right-the-art-of-social-media-video-dimensions/"><u>[Updated] Getting It Just Right The Art of Social Media Video Dimensions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-amplify-your-online-influence-with-these-best-5-youtube-marketing-techniques/"><u>2024 Approved Amplify Your Online Influence with These Best 5 YouTube Marketing Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/clearing-up-audio-issues-in-half-volume-facebook-content-for-2024/"><u>Clearing Up Audio Issues in Half-Volume Facebook Content for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/combat-fuzzy-visuals-facebook-videos-tips-and-tricks/"><u>Combat Fuzzy Visuals Facebook Videos Tips & Tricks</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/harnessing-hours-of-light-long-exposure-iphone-tips-for-2024/"><u>Harnessing Hours of Light Long-Exposure iPhone Tips for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-can-i-unlock-my-iphone-se-2022-after-forgetting-my-pin-code-by-drfone-ios/"><u>How Can I Unlock My iPhone SE (2022) After Forgetting my PIN Code?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Honor X50 GT? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/the-sharex-insight-reviews-and-competing-choices-for-2024/"><u>The ShareX Insight Reviews & Competing Choices for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-oneplus-ace-2-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends OnePlus Ace 2 without Him Knowing | Dr.fone</u></a></li>
+</ul></div>
+

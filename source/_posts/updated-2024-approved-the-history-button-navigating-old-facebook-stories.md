@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The History Button  Navigating Old Facebook Stories\""
-date: 2024-08-29T05:56:54.618Z
-updated: 2024-08-30T05:56:54.618Z
+date: 2024-09-29T19:02:38.527Z
+updated: 2024-10-04T19:42:09.824Z
 tags:
   - ai video
   - ai facebook
@@ -57,18 +57,17 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
 You can find and see the old stories on Facebook with the help of the archived section. Here following are the easy steps you could follow:
@@ -82,23 +81,27 @@ You can find and see the old stories on Facebook with the help of the archived s
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
 If you are looking to see old Facebook stories shared by your friend then let me tell you that it is very difficult to do that. Your friend only would be able to see the old shared stories on Facebook by turning the archive option on.
@@ -107,12 +110,16 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
 
@@ -122,9 +129,6 @@ To attract more audience and gain more likes, comments all you need is a smart [
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Features:**
 
 4K Resolution Editing Support
@@ -173,11 +177,33 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-endgame-permanently-blocking-access-to-youtube-shorts/"><u>[New] 2024 Approved The Endgame Permanently Blocking Access to YouTube Shorts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-beat-infused-videos-a-step-by-step-guide-to-adding-tunes-to-fb/"><u>[New] In 2024, Beat-Infused Videos A Step-by-Step Guide to Adding Tunes to FB</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-crystal-crisp-playback-ps5s-favorite-hdmi-21-displays/"><u>[New] In 2024, Crystal Crisp Playback PS5's Favorite HDMI 2.1 Displays</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-rescue-absent-watch-thumbnail-icon/"><u>[New] In 2024, Rescue Absent Watch Thumbnail Icon</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-reviving-past-joy-on-fb-the-look-back-video-editing-path/"><u>[Updated] 2024 Approved Reviving Past Joy on FB The Look Back Video Editing Path</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-choosing-between-bandicam-and-camtasia-for-2024/"><u>[Updated] Choosing Between Bandicam & Camtasia for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-uncovering-facebooks-fresh-favorites-our-picks-of-top-vids/"><u>[Updated] In 2024, Uncovering Facebook's Fresh Favorites Our Picks of Top Vids</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-uniting-zooms-power-with-facebook-live-streaming/"><u>[Updated] In 2024, Uniting Zoom's Power with Facebook LIVE Streaming</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-stop-facebook-ad-popups-for-peaceful-browsing-for-2024/"><u>[Updated] Stop Facebook Ad Popups for Peaceful Browsing for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-fix-mobile-device-errors-fb-vids-not-loading/"><u>2024 Approved Fix Mobile Device Errors FB Vids Not Loading</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-turn-social-media-audio-into-mp3/"><u>2024 Approved Turn Social Media Audio Into MP3</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discover-how-these-6-chatgpt-powered-applications-revolutionize-pdf-conversations/"><u>Discover How These 6 ChatGPT-Powered Applications Revolutionize PDF Conversations</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/enhance-live-footage-overcoming-blurry-video-issues-in-chrome/"><u>Enhance Live Footage Overcoming Blurry Video Issues in Chrome</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Samsung Galaxy XCover 6 Pro Tactical Edition? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-comparing-dailymovements-and-youtubes-income-models/"><u>In 2024, Comparing DailyMovement's and Youtube's Income Models</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-master-tips-securing-audio-for-unboxing-vids/"><u>In 2024, Master Tips Securing Audio for Unboxing Vids</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-perfect-screen-capture-on-mac-the-top-5-recommended-approaches/"><u>In 2024, Perfect Screen Capture on Mac The Top 5 Recommended Approaches</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/mastering-the-art-of-downloading-and-updating-microsoft-drivers-on-windows-systems-1187-edition/"><u>Mastering the Art of Downloading & Updating Microsoft Drivers on Windows Systems: 11/8/7 Edition</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/top-5-ios-downloader-tools-seamless-access-to-fb-videos-and-events-for-2024/"><u>Top 5 iOS Downloader Tools Seamless Access to FB Videos & Events for 2024</u></a></li>
+</ul></div>
+

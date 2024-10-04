@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unmarked Eyes  Facebook Story Viewer\""
-date: 2024-09-26T17:37:04.418Z
-updated: 2024-09-29T07:52:33.402Z
+date: 2024-10-01T19:20:49.637Z
+updated: 2024-10-04T16:18:47.587Z
 tags:
   - ai video
   - ai facebook
@@ -60,16 +60,10 @@ Just like you can upload something on your story for others to see, you can also
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1: How to View Someone's Facebook Story Anonymously? \[ 4 Ways\]
@@ -96,6 +90,13 @@ As the name suggests, rather than watching the entire story, you need to stop wa
 
 **Step 3:** Quickly swipe right or left and make sure the story doesn't end. This way, Facebook won't register you.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 3: Block Them
 
 This is another method to stop appearing as one of the viewers. This method will let you view the whole story; however, since it involves blocking the user, they will be removed from your friend list completely. So, try it if only you are fine with removing that person from your friends' list. Here's how to follow this method:
@@ -117,16 +118,10 @@ For the last resort, you can deactivate your account and reactivate it after a w
 ![deactivate FB account to View Facebok Story anonymously](https://images.wondershare.com/filmora/article-images/deactivate-facebook-account.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Once 24 hours is over, you can log in to reactive your account.
@@ -135,24 +130,18 @@ Once 24 hours is over, you can log in to reactive your account.
 
 There are three easy ways to see someone's story on Facebook. One way is to use the web browser of your pc or Mac, the second is exploring Facebook stories on Facebook Messenger, and the third is by using the Facebook mobile app. We will discuss these three methods below.
 
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 1: View Facebook Stories through the Website Browser
 
 **Step 1:** Use any of the browsers on your computer and visit Facebook.Log in, and the home page will be displayed. On the top, you will see the stories.
 
 **Step 2:** Click on any of the stories to view them.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: View Facebook Story Through Facebook Messenger
 
@@ -162,6 +151,20 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 
 ![View Facebok Story via Messenger](https://images.wondershare.com/filmora/article-images/view-facebook-story-messenger.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 3: Open Facebook Mobile App to View Stories
 
 **Step 1:** Launch the Facebook mobile application. You will be directly taken to the home page. On top, you will see the story section.
@@ -169,20 +172,6 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 **Step 2:** Please click on any of the stories that you want to see.
 
 ![View Facebok Story on mobile](https://images.wondershare.com/filmora/article-images/view-facebook-story-mobile-app.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Check Facebook Story Views?
 
@@ -193,19 +182,6 @@ Facebook allows you to check who viewed your stories. This is known as **Faceboo
 **Step 2:** Now, click on the viewers' option that you see towards the bottom left.
 
 ![View who have seen my Facebok Story  ](https://images.wondershare.com/filmora/article-images/check-who-viewed-facebook-story.jpg)
-
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now, you can see the list of people's names who have seen your story. This step will remain the same for both computer and mobile app users.
 
@@ -252,21 +228,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2023-convert-facebook-video-to-mp4-720p1080phd-online-and-free-in-2024/"><u>[New] 2023 | Convert Facebook Video to MP4 720P/1080p/HD Online and Free, In 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-apowersoft-masterclass-top-pc-screen-recorder-analysis-for-2024/"><u>[New] Apowersoft Masterclass Top PC Screen Recorder Analysis for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-integrating-instant-video-playback-within-the-social-media-webspace/"><u>[New] In 2024, Integrating Instant Video Playback Within the Social Media Webspace</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-decoding-faux-support-a-guide-for-savvy-social-network-users/"><u>[Updated] In 2024, Decoding Faux Support A Guide for Savvy Social Network Users</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-increase-fb-engagement-and-sales-the-15-most-effective-analyzers/"><u>[Updated] In 2024, Increase FB Engagement & Sales The 15 Most Effective Analyzers</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-reclaim-lost-watch-video-preview/"><u>[Updated] In 2024, Reclaim Lost Watch Video Preview</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-unlocking-your-sound-potential-a-modern-look-at-pazeras-techniques/"><u>[Updated] In 2024, Unlocking Your Sound Potential A Modern Look at Pazera's Techniques</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-solving-the-yous-problem-seeing-myself-on-social-media/"><u>[Updated] Solving the 'You's Problem Seeing Myself on Social Media</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-top-iphone-video-editor-choose-between-cameo-and-filmorago-for-2024/"><u>[Updated] Top iPhone Video Editor Choose Between Cameo & FilmoraGo for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixing-msi-afterburners-undetected-graphics-card-issue-in-windows-11/"><u>Fixing MSI Afterburner's Undetected Graphics Card Issue in Windows 11</u></a></li>
-<li><a href="https://blog-min.techidaily.com/free-guide-to-converting-avi-files-to-mp4-format-with-ffmpeg-without-quality-loss/"><u>Free Guide to Converting AVI Files to MP4 Format with FFmpeg Without Quality Loss</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-discovering-screenflow-on-macos-an-expert-review/"><u>In 2024, Discovering ScreenFlow on MacOS An Expert Review</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-12-mini-to-windows-10-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone 12 mini to Windows 10? | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-supreme-conversion-software-top-4k-downloads-for-youtubers/"><u>In 2024, Supreme Conversion Software Top 4K Downloads for YouTubers</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-realtek-hd-audio-issues-how-to-fix-audio-manager-not-launching/"><u>Troubleshooting Realtek HD Audio Issues: How to Fix 'Audio Manager Not Launching'</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/visualize-for-a-friendly-facebook-for-2024/"><u>Visualize for a Friendly Facebook for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-effortless-transformation-of-your-fb-video-content-to-mp3-for-2024/"><u>[New] Effortless Transformation of Your Fb Video Content to MP3 for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-experts-picks-top-5-free-screen-recorders-for-pc-users/"><u>[New] Expert's Picks Top 5 Free Screen Recorders For PC Users</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-mastering-gopro-livestreams-connecting-to-facebook-and-periscope/"><u>[Updated] In 2024, Mastering Gopro Livestreams Connecting to Facebook & Periscope</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-revolutionize-your-content-harnessing-the-power-of-fb-lives/"><u>[Updated] Revolutionize Your Content Harnessing the Power of FB Lives</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-essential-guide-to-high-quality-audio-capture-sans-microphone-for-2024/"><u>[Updated] The Essential Guide to High-Quality Audio Capture Sans Microphone for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-elevate-your-facebook-chronicles-with-gratuitous-upgrades/"><u>2024 Approved Elevate Your Facebook Chronicles with Gratuitous Upgrades</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-facebook-fanfare-unveiled-android-and-iphones-most-liked-apps/"><u>2024 Approved Facebook Fanfare Unveiled Android & iPhone's Most Liked Apps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-innovation-hub-for-youtube-gurus/"><u>2024 Approved Innovation Hub for YouTube Gurus</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-easy-ways-to-transfer-contacts-from-apple-iphone-x-to-android-drfone-by-drfone-transfer-from-ios/"><u>5 Easy Ways to Transfer Contacts from Apple iPhone X to Android | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/duets-and-dreams-songs-to-accompany-your-life-altering-kiss/"><u>Duets & Dreams Songs to Accompany Your Life-Altering Kiss</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/master-excel-in-no-time-with-chatgpt-insights/"><u>Master Excel in No Time With ChatGPT Insights</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/sharpviewzoomx7-professional-photo-size-controls/"><u>SharpViewZoomX7 Professional Photo Size Controls</u></a></li>
+<li><a href="https://win-able.techidaily.com/solution-guide-stop-the-endless-loop-of-content-warning-software-failures-on-windowsmac/"><u>Solution Guide: Stop the Endless Loop of 'Content Warning' Software Failures on Windows/Mac</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722715049305-sonys-offering-a-comprehensive-review-of-the-65-inch-4k-xbr-65x850f-led-tv-at-a-reasonable-price/"><u>Sony's Offering: A Comprehensive Review of the 65-Inch 4K XBR-65X850F LED TV at a Reasonable Price</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/twitch-facebook-synergy-broadcasting-tips-for-2024/"><u>Twitch-Facebook Synergy Broadcasting Tips for 2024</u></a></li>
 </ul></div>
 

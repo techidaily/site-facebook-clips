@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Wipe Out Facebook Story  Desktop/Mobile Tips\""
-date: 2024-08-24T08:50:34.476Z
-updated: 2024-08-25T08:50:34.476Z
+date: 2024-10-03T17:11:58.791Z
+updated: 2024-10-04T19:13:09.301Z
 tags:
   - ai video
   - ai facebook
@@ -78,6 +78,13 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 This is how you will remove the stories from Facebook archived.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
 
 Facebook stories don't only appear on your Facebook home page; they also appear on your Facebook Messenger. And you can delete your stories by visiting Facebook Messenger. Let's find out how.
@@ -91,20 +98,18 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: How to Control Who Can View Your Facebook Stories?
 
 You can make your stories visible to your friends, customize the viewers, or keep them public. Facebook allows you to control how and with whom you want to share your stories with.
@@ -113,16 +118,17 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 5: How to Hide Facebook Story from Specific People?
 
 Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
@@ -131,10 +137,14 @@ Facebook has made sharing stories easy because of the multiple features it offer
 
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
 
@@ -144,14 +154,18 @@ Visit the Stories section, and then tap on a story of a person that you don't wa
 
 ![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Conclusion**
 
 Facebook stories are a great way to let people know what you are up to. It's short and does the job perfectly. But there will be moments when you will want to remove the story early, and to do that, we have shared all the essential tips that will help you. Now that you have learned **how to remove** a **story from Facebook, go on and delete your stories early**.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -159,11 +173,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-humorhub-easy-login-easy-signup/"><u>[New] HumorHub Easy Login, Easy Signup</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-earning-potential-unlocked-profitable-strategies-for-youtube-on-fb/"><u>[New] In 2024, Earning Potential Unlocked Profitable Strategies for YouTube on FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-leveraging-fb-livestream-for-post-produced-content-dissemination-for-2024/"><u>[New] Leveraging FB Livestream for Post-Produced Content Dissemination for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-explore-olden-days-on-facebook-device-friendly-tips-for-2024/"><u>[Updated] Explore Olden Days on Facebook - Device-Friendly Tips for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-targeted-thought-leadership-with-profound-fb-video-strategies/"><u>[Updated] In 2024, Targeted Thought Leadership with Profound FB Video Strategies</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-professional-framing-methods-using-letterbox-and-black-bar-on-social-networks-for-2024/"><u>[Updated] Professional Framing Methods Using Letterbox & Black Bar on Social Networks for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-quick-guide-crafting-youtube-thumbnails-on-your-phone/"><u>[Updated] Quick Guide Crafting YouTube Thumbnails on Your Phone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-strategizing-live-broadcasts-turn-your-recordings-into-facebook-hits-for-2024/"><u>[Updated] Strategizing Live Broadcasts Turn Your Recordings Into Facebook Hits for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-transforming-your-videos-first-impression-fb-cover-makeover-techniques-for-2024/"><u>[Updated] Transforming Your Videos' First Impression FB Cover Makeover Techniques for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-social-media-connections-instagram-and-tiktok/"><u>2024 Approved Mastering Social Media Connections Instagram & TikTok</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-telegram-for-newcomers-how-to-make-your-advertising-stand-out/"><u>2024 Approved Telegram for Newcomers How to Make Your Advertising Stand Out</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/authentische-technische-angaben-zu-winxvideo-ai-vollstandige-liste/"><u>Authentische Technische Angaben Zu winXvideo AI - Vollständige Liste</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-from-your-iphone-15-plus-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code From your iPhone 15 Plus</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/core-principles-in-crafting-persuasive-facebook-ads-for-2024/"><u>Core Principles in Crafting Persuasive Facebook Ads for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-realme-c55-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Realme C55 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-itel-p40plus-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Itel P40+ to iPad | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-expert-picks-top-6-fb-lite-extractors/"><u>In 2024, Expert Picks Top 6 FB Lite Extractors</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-transform-photos-step-by-step-background-cleanup-for-canva-users/"><u>In 2024, Transform Photos Step-by-Step Background Cleanup for Canva Users</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-the-on-screen-keyboard-in-windows-11-toggle-on-and-off-guide/"><u>Mastering the On-Screen Keyboard in Windows 11 - Toggle On & Off Guide</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "[New] Discovering Old Content on Facebook via Your Smartphone/Computer"
-date: 2024-08-24T08:53:17.268Z
-updated: 2024-08-25T08:53:17.268Z
+date: 2024-09-30T16:53:46.008Z
+updated: 2024-10-04T16:09:38.147Z
 tags:
   - ai video
   - ai facebook
@@ -55,6 +55,13 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to View Stories on Facebook Desktop?
 
 You can use Facebook on your desktop; it is feasible to use it on a desktop when you are using it for professional purposes such as blogging or business. It is possible to view old Facebook stories through desktop also; here is how:
@@ -70,8 +77,12 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How to View A Friend’s Old Facebook Story?
 
 It is nearly impossible to view your friend’s story once it has disappeared. You cannot watch the stories even if they are achieved. However, there is one way to view old stories of your friends. Here is how:
@@ -91,13 +102,12 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -114,18 +124,6 @@ After visiting the story archive, click on the story you wish to save. Click on 
 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
 Facebook business pages help in enhancing business significantly, primarily if you use story features for customer interaction. If you want to keep track of old stories, you can use the following method:
@@ -149,15 +147,17 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -165,3 +165,24 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-troubleshooting-when-youtube-shorts-images-fail-to-display/"><u>[New] 2024 Approved Troubleshooting When YouTube Shorts Images Fail To Display</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-bridging-the-gap-between-tiktok-and-facebook-sharing/"><u>[New] Bridging the Gap Between TikTok & Facebook Sharing</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-top-6-cool-minecraft-house-ideas/"><u>[New] Top 6 Cool Minecraft House Ideas</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-strategies-for-effortlessly-sharing-youtube-videos-on-fb/"><u>[Updated] 2024 Approved Strategies for Effortlessly Sharing YouTube Videos on FB</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-create-an-individualistic-meme-masterpiece/"><u>[Updated] Create an Individualistic Meme Masterpiece</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-prime-picks-easy-youtube-template-downloads/"><u>[Updated] In 2024, Prime Picks Easy YouTube Template Downloads</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-mastering-media-your-step-by-step-video-tweet-for-2024/"><u>[Updated] Mastering Media Your Step-by-Step Video Tweet for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-boosting-your-browser-lightning-speed-profile-hunts/"><u>2024 Approved Boosting Your Browser Lightning Speed Profile Hunts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-enhance-your-digital-diaries-for-free-extensions-and-mobile-edition/"><u>2024 Approved Enhance Your Digital Diaries for Free – Extensions & Mobile Edition</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-hustle-humor-fast-track-funny-with-kapwing/"><u>2024 Approved Hustle Humor Fast-Track Funny with Kapwing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-what-is-a-watermark-how-to-watermark-your-facebook-photosvideos/"><u>2024 Approved What Is a Watermark? How to Watermark Your Facebook Photos/Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/google-upload-mastery-a-step-by-step-guide-for-2024/"><u>Google Upload Mastery - A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-from-vaults-to-viewers-streaming-video-archives-onto-facebook/"><u>In 2024, From Vaults to Viewers Streaming Video Archives Onto Facebook</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-how-to-craft-a-unique-identifier-for-your-tiktok-stream/"><u>In 2024, How to Craft a Unique Identifier for Your TikTok Stream</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mtsmp46/"><u>MTSをMP4へ完全再現品質移行方法：6つの絶対的な手法</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/overcoming-the-2023-facebook-security-breach-for-2024/"><u>Overcoming the 2023 Facebook Security Breach for 2024</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Fast Friending  Mastering the Art of Profile Searches\""
-date: 2024-09-26T00:00:46.120Z
-updated: 2024-09-28T19:22:16.643Z
+date: 2024-09-30T19:07:15.342Z
+updated: 2024-10-04T16:44:43.703Z
 tags:
   - ai video
   - ai facebook
@@ -36,6 +36,13 @@ Here are two ways to search people on Facebook. The second option also helps you
 
 ## Part 1: How to search people on Facebook
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 1: Log in to Facebook
 
 Open Facebook on your computer – Firstly, open a web browser and get to the Facebook website. You can find the log in fields on the top right corner of the page. Input your user ID and password and hit the login button at the side to proceed further.
@@ -47,10 +54,10 @@ On the header tool icons, click on your name and you are directed to your Facebo
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 3: Friends Finder Page
@@ -60,17 +67,10 @@ To reach the friend’s finder page, click on “find friends” from the friend
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 4: Friends Search
@@ -81,21 +81,7 @@ On the top right of old friends search, you can find the “search for your frie
 
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to search people using Search Is Back
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Open and Select
 
@@ -104,15 +90,22 @@ On a browser open the [Search is Back site](https://searchisback.com/). You can 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Input your Interest
 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Add People as Friends
 
@@ -123,6 +116,19 @@ Once you have filled in all the filters in the page, you can hit Find People but
 **Note**: If there are no results on the redirected Facebook page, you must get back to the Search is Back page and change your search filters to start a new round of search.
 
 Like Find People tab at the top of the page, you may also search events, posts, shares and photos from the event, post & shares, and photos tabs at the top of the page.
+
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -153,20 +159,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-step-by-step-guide-on-acquiring-elite-hdr-cameras/"><u>[New] 2024 Approved Step-by-Step Guide on Acquiring Elite HDR Cameras</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-assessing-magixs-multimedia-capabilities/"><u>[New] Assessing MAGIX's Multimedia Capabilities</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-immediate-measures-to-reactivate-stopped-facebook-live-for-2024/"><u>[New] Immediate Measures to Reactivate Stopped Facebook LIVE for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-innovative-approaches-for-podcast-cover-art-mastery/"><u>[New] Innovative Approaches for Podcast Cover Art Mastery</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-transform-your-facebook-presence-with-dynamic-slideshows/"><u>[Updated] 2024 Approved Transform Your Facebook Presence with Dynamic Slideshows</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-elevate-engagement-4-steps-to-add-fb-story-link/"><u>[Updated] In 2024, Elevate Engagement 4 Steps to Add FB Story Link</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-pick-the-best-top-8-srt-tools-without-payment-for-2024/"><u>[Updated] Pick the Best Top 8 SRT Tools Without Payment for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-spy-on-fb-chronicles-unseen-for-2024/"><u>[Updated] Spy on FB Chronicles, Unseen for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/access-chatgpt-on-mac-without-paying-free-access-now-available/"><u>Access ChatGPT on Mac Without Paying: Free Access Now Available</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-oppo-a78-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Oppo A78 Pattern Lock Screen</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-efficient-techniques-for-distributing-youtube-videos-via-facebook/"><u>In 2024, Efficient Techniques for Distributing YouTube Videos via Facebook</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Honor 100 Pro? | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-subaquatic-spectacites-tips-to-enrich-underwater-videos-using-gopro/"><u>In 2024, Subaquatic Spectacites Tips to Enrich Underwater Videos Using GoPro</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-swipe-right-for-music-top-10-fb-vids-today/"><u>In 2024, Swipe Right for Music Top 10 FB Vids Today</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-how-to-create-a-freeze-frame-sequence-effect/"><u>New In 2024, How to Create a Freeze Frame Sequence Effect</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-fast-footsteps-simple-recording-for-dell-pcs/"><u>[New] In 2024, Fast Footsteps Simple Recording for Dell PCs</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-is-your-social-media-strategy-up-to-date-with-facebook-changes/"><u>[New] In 2024, Is Your Social Media Strategy Up-to-Date with Facebook Changes?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-formula-for-a-high-ranking-online-persona-for-2024/"><u>[New] The Formula for a High-Ranking Online Persona for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-efficient-video-download-from-facebooks-domain/"><u>[Updated] 2024 Approved Efficient Video Download From Facebook's Domain</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-instant-social-interaction-tweetplusfb-guide/"><u>[Updated] 2024 Approved Instant Social Interaction Tweet+FB Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-a-step-by-step-guide-to-the-top-20-strategies-for-successful-fb-videos-for-2024/"><u>[Updated] A Step-by-Step Guide to the Top 20 Strategies for Successful FB Videos for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-squared-up-strategies-boosting-video-popularity-on-the-platform/"><u>[Updated] In 2024, Squared Up Strategies Boosting Video Popularity on the Platform</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-initiate-online-interactions-with-this-guide-to-facebook-registration/"><u>[Updated] Initiate Online Interactions with This Guide to Facebook Registration</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-empowering-healing-with-vr-technology/"><u>2024 Approved Empowering Healing with VR Technology</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-spoof-spectacle-steps-to-create-a-parody/"><u>2024 Approved Spoof Spectacle Steps to Create a Parody</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/animating-faces-the-guide-to-motion-blur-in-picsart/"><u>Animating Faces The Guide to Motion Blur in Picsart</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Oppo Reno 8T 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Vivo V29 Pro | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-honor-magic-5-lite-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Honor Magic 5 Lite? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-living-room-on-a-budget-with-the-caixun-75-inch-4k-smart-tv-review/"><u>Revolutionize Your Living Room on a Budget with the Caixun 75 Inch 4K Smart TV Review.</u></a></li>
 </ul></div>
 

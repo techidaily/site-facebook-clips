@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step for Novices  Utilizing Facebook Insights\""
-date: 2024-09-24T01:34:12.570Z
-updated: 2024-09-29T09:22:03.071Z
+date: 2024-09-27T20:36:13.670Z
+updated: 2024-10-04T17:34:46.812Z
 tags:
   - ai video
   - ai facebook
@@ -56,10 +56,10 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Page Likes
@@ -71,13 +71,6 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
  Secondly, the **net likes**, which captures the total new likes on your page subtracted by the total dislikes.
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Post Reach
 
@@ -91,16 +84,16 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
 
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Video Analytics
 
@@ -113,6 +106,19 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
  The Top Videos section shows you the top 5 videos posted by you with more than 3 seconds views. This helps you to analyse the type of video preferred by your audiences.
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
+
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. People Analytics
 
@@ -127,10 +133,10 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -139,14 +145,14 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -163,18 +169,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-biography-breakthroughs-101-expert-tips-and-tricks-for-facebook-biographers/"><u>[New] Biography Breakthroughs 101 Expert Tips and Tricks for Facebook Biographers</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-dive-into-fb-360-videos-recording-and-sharing-secrets/"><u>[New] Dive Into FB 360 Videos Recording and Sharing Secrets</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-on-apple-iphone-13-proipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock on Apple iPhone 13 Pro/iPad/iPod</u></a></li>
-<li><a href="https://howto.techidaily.com/calls-on-vivo-s17e-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Vivo S17e Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-on-honor-play-7t-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Honor Play 7T Devices</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-fix-samsung-printer-drivers-on-windows-problems-and-solutions/"><u>How to Fix Samsung Printer Drivers on Windows - Problems and Solutions</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/how-to-obtain-your-logitech-m525-device-drivers/"><u>How To Obtain Your Logitech M525 Device Drivers?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-enhancing-engagement-sound-synchronization-for-fb-video-posts/"><u>In 2024, Enhancing Engagement Sound Synchronization for FB Video Posts</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-exploring-options-when-facebook-takes-down-my-content/"><u>In 2024, Exploring Options When Facebook Takes Down My Content</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-easy-gopro-video-editing-a-step-by-step-guide-for-macbook-users/"><u>New 2024 Approved Easy GoPro Video Editing A Step-by-Step Guide for MacBook Users</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/premium-free-fb-media-designer-toolkit/"><u>Premium Free FB Media Designer Toolkit</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/the-art-of-audio-in-a-virtual-world-your-ultimate-zoom-recording-tutorial/"><u>The Art of Audio in a Virtual World Your Ultimate Zoom Recording Tutorial</u></a></li>
-<li><a href="https://win11.techidaily.com/win11-fixing-persistent-read-only-folders/"><u>Win11: Fixing Persistent Read-Only Folders</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/uick-hacks-for-more-views-no-investment-needed/"><u>[New] Quick Hacks for More Views, No Investment Needed</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-enhance-workflow-the-essential-list-of-8-scheduling-apps-for-2024/"><u>[Updated] Enhance Workflow The Essential List of 8 Scheduling Apps for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-how-to-present-ppt-on-google-meet-in-2024/"><u>[Updated] How to Present PPT on Google Meet, In 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-facebook-update-essential-strategies-for-social-media-savvy/"><u>[Updated] In 2024, Facebook Update Essential Strategies for Social Media Savvy</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-how-to-optimize-microphone-use-on-windows-11-for-best-results/"><u>2024 Approved How to Optimize Microphone Use on Windows 11 for Best Results</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-step-by-step-guide-how-to-watch-social-media-videos-on-your-apple-tv/"><u>2024 Approved Step by Step Guide How to Watch Social Media Videos on Your Apple TV</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-samsung-galaxy-f34-5g-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Samsung Galaxy F34 5G Without PUK Codes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-tips-for-creating-engaging-fb-video-content/"><u>In 2024, Tips for Creating Engaging FB Video Content</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/navigating-networks-generating-social-media-sensations-for-2024/"><u>Navigating Networks Generating Social Media Sensations for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/surviving-and-thriving-adapting-to-facebooks-algorithm-changes/"><u>Surviving and Thriving Adapting to Facebook's Algorithm Changes</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-photos-from-moto-g14-by-fonelab-android-recover-photos/"><u>Undelete lost photos from Moto G14.</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unleashing-creativity-crafting-compelling-fb-video-campaigns-for-2024/"><u>Unleashing Creativity Crafting Compelling FB Video Campaigns for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/virtual-cam-tech-showdown-discover-the-leading-competitors-to-manycams-live-video-solutions/"><u>Virtual Cam Tech Showdown: Discover the Leading Competitors to ManyCam's Live Video Solutions</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Pioneering Platform Presence  Innovative Square Video Methods\""
-date: 2024-08-29T05:56:12.613Z
-updated: 2024-08-30T05:56:12.613Z
+date: 2024-09-27T16:29:13.492Z
+updated: 2024-10-04T16:58:33.726Z
 tags:
   - ai video
   - ai facebook
@@ -70,8 +70,12 @@ The software can do whatever you wish in video and image editing, starting from 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Step 1: Import video**
 
 First of all, you need to install the software on your Windows/Mac computer and then launch it. Go to the timeline panel media files and select the file after tapping the thumbnail. It gets imported to the Filmora interface.
@@ -85,17 +89,18 @@ You got to right click on the selected video and then select ‘Crop & Zoom’ f
 ![crop and zoom](https://images.wondershare.com/filmora/article-images/crop-and-zoom.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Step 3: Open the edit panel**
 
 Now, on the edit panel hit the ‘Crop Clip’ button and select 1:1 from the bottom. The square video area can be adjusted from the preview window.
 
 ![edit panel](https://images.wondershare.com/filmora/article-images/crop-zoom-panel.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 4: Save changes and export**
 
 Here, you need to press ‘OK’ and export the file to your computer. Later you can upload it on your Facebook account easily.
@@ -103,9 +108,20 @@ Here, you need to press ‘OK’ and export the file to your computer. Later you
 ![export video](https://images.wondershare.com/filmora/article-images/export-video-filmora.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to create square videos by Adobe Premiere
 
@@ -119,15 +135,19 @@ First you need to import video to Premiere Pro. Go to File > Import, and then se
 
 ![import video premiere](https://images.wondershare.com/filmora/article-images/import-video-premiere.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2：Sequence settings**
 
 Click Sequence in the top, and then select Sequence Settings. First to seclect ARRI Cinema to activiate the settings. In the video area, adjust the frame size. You need to keep horizontal and vertical number the same in order to create square video. Here, we adjsut it to 600\. Leave the rest options the same. Click OK.
 
 ![Sequence settings](https://images.wondershare.com/filmora/article-images/sequence-setting.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 **Step 3：Export**
 
 Export your video once the changes are satisfactory and enjoy!
@@ -142,16 +162,11 @@ From the above article, we are sure that square videos on Facebook are significa
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -159,3 +174,23 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-dial-up-discovery-mastering-quick-search-on-social-media/"><u>[New] 2024 Approved Dial-Up Discovery Mastering Quick Search on Social Media</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-elevate-your-video-game-with-these-5-youtube-thumbnail-builders/"><u>[New] 2024 Approved Elevate Your Video Game with These 5 YouTube Thumbnail Builders</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-revolutionary-6-sustainable-minecraft-homes/"><u>[New] 2024 Approved Revolutionary 6 Sustainable Minecraft Homes</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-effortless-iphone-screen-recording-techniques-unveiled/"><u>[New] Effortless iPhone Screen Recording Techniques Unveiled</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-can-you-stream-a-pre-recorded-video-live-on-facebook-for-2024/"><u>[New] How Can You Stream A Pre-Recorded Video Live on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-view-facebook-videos-with-apple-remote/"><u>[New] How to View Facebook Videos with Apple Remote</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-top-picks-of-firefox-tools-to-streamline-your-facebook-video-experience-2023/"><u>[New] In 2024, Top Picks of Firefox Tools to Streamline Your Facebook Video Experience, 2023</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-fb-livestream-success-on-television-four-pathways/"><u>[Updated] FB Livestream Success on Television Four Pathways</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-seamless-facebook-live-experience-combat-interruptions/"><u>[Updated] In 2024, Seamless Facebook Live Experience Combat Interruptions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-complete-manual-for-modifying-cover-images/"><u>[Updated] The Complete Manual for Modifying Cover Images</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-skyrocketing-status-15-clever-methods-for-rapid-social-media-stardom-on-instagram/"><u>In 2024, Skyrocketing Status 15 Clever Methods for Rapid Social Media Stardom on Instagram</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/lock-your-tecno-spark-10-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Tecno Spark 10 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-comparison-adobe-storage-vs-non-adobe-options/"><u>The Ultimate Comparison Adobe Storage Vs. Non-Adobe Options</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-vivo-y55s-5g-2023-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Vivo Y55s 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/windows-hub-mastery-achieved-post-fixes/"><u>Windows Hub Mastery Achieved Post-Fixes</u></a></li>
+</ul></div>
+

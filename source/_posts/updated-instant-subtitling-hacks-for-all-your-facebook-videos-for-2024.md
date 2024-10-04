@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Instant Subtitling Hacks for All Your Facebook Videos for 2024"
-date: 2024-08-29T05:56:40.821Z
-updated: 2024-08-30T05:56:40.821Z
+date: 2024-09-30T17:44:06.236Z
+updated: 2024-10-04T17:18:23.405Z
 tags:
   - ai video
   - ai facebook
@@ -82,6 +82,13 @@ First if all, you need to add your video file to Wondershare Filmora timeline. N
 
 ![filmora text interface 201704](https://images.wondershare.com/filmora/article-images/filmora-text-interface-201704.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Wondershare Filmora will provide you a wide range of templates for selection of text formats. You can pick any of these as per need.
 
 * **Add Titles:**When you are ready to add titles to your Facebook videos, then simply move to Text/Credit Tab on your software tool, here you will find more than 90 text templates. Choose any of these as per your need and finally drag it to title track available on timeline. Soon you will find a text thumbnail on screen with a letter T. Open text editor panel by double clicking on this text thumbnail and now you can start typing you’re your titles. Make selections for animation, color and font type.
@@ -93,9 +100,36 @@ Once you have finished the text based editing task then hit the Export option av
 
 ![output format](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -103,14 +137,29 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-finding-balance-in-fb-sharing-a-guide-to-aspect-ratio-knowledge/"><u>[New] In 2024, Finding Balance in FB Sharing A Guide to Aspect Ratio Knowledge</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-leveraging-snapchat-for-income/"><u>[New] Leveraging Snapchat for Income</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-transferring-facebook-videos-directly-to-whatsapp/"><u>[Updated] 2024 Approved Transferring Facebook Videos Directly to WhatsApp</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-demystifying-ajeys-monetization-strategy-youtube-edition/"><u>[Updated] Demystifying Ajey's Monetization Strategy - YouTube Edition</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-web-accessory-fb-stories-keeper-for-2024/"><u>[Updated] Web Accessory FB Stories Keeper for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-inside-look-at-instagrams-subtle-yet-powerful-features/"><u>2024 Approved Inside Look at Instagram's Subtle Yet Powerful Features</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-ways-to-transfer-music-from-apple-iphone-12-mini-to-android-drfone-by-drfone-transfer-from-ios/"><u>5 Ways to Transfer Music from Apple iPhone 12 mini to Android | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-t-mobile-iphone-se-2022-online-without-sim-card-by-drfone-ios/"><u>In 2024, How to Unlock T-Mobile iPhone SE (2022) online without SIM Card?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-inspire-audiences-with-these-high-quality-free-sound-files/"><u>In 2024, Inspire Audiences with These High-Quality, Free Sound Files</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-strategies-for-uploading-and-live-streaming-past-videos-on-facebook/"><u>In 2024, Strategies for Uploading and Live Streaming Past Videos on Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/journey-through-data-storage-saving-fb-chats-as-video-files-for-2024/"><u>Journey Through Data Storage Saving FB Chats as Video Files for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/one-arm-wonders-keeping-photos-steady-for-2024/"><u>One Arm Wonders Keeping Photos Steady for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-role-of-free-exchange-in-discovery/"><u>The Role of Free Exchange in Discovery</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-picks-for-cost-efficient-wireless-routers-a-thorough-assessment-of-the-tp-link-archer-c9-review/"><u>Top Picks for Cost-Efficient Wireless Routers: A Thorough Assessment of the TP-Link Archer C9 Review</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/unlocking-stream-potential-your-journey-with-obs-youtube-and-twitch/"><u>Unlocking Stream Potential Your Journey with OBS, YouTube, & Twitch</u></a></li>
+</ul></div>
+

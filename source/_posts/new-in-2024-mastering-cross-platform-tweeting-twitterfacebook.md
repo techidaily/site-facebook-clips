@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Mastering Cross-Platform Tweeting (Twitter/Facebook)\""
-date: 2024-09-27T04:56:09.230Z
-updated: 2024-09-29T08:24:23.108Z
+date: 2024-09-28T20:15:46.351Z
+updated: 2024-10-04T19:30:27.714Z
 tags:
   - ai video
   - ai facebook
@@ -40,10 +40,10 @@ thumbnail: https://thmb.techidaily.com/7a5da68125bc45bc63708f2f580be8038605e22ab
 ![post tweet on facebook 1](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Once you login to your Twitter account, tap on your profile picture on the top right corner of the screen, next to the ‘Tweet' tab.
@@ -52,36 +52,48 @@ thumbnail: https://thmb.techidaily.com/7a5da68125bc45bc63708f2f580be8038605e22ab
 ![post tweet on facebook 2](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Now, hit the ‘Connect to Facebook' option under Applications. You will be prompted with a popup to log in, in case you haven't logged in to Facebook on the same browser. Enter the details and log in.
 
 ![post tweet on facebook 3](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-3.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Upon being prompted for permission from Twitter to access your Facebook information, click ‘Continue as \[Facebook Profile/user name\]' to continue.
 
 ![post tweet on facebook 4](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Now you need to configure the ‘Select the privacy settings' to decide who is going to receive your Twitter updates on Facebook. When you post Tweets to Facebook, by default your friends will get to see them.
 2. Now, you need to tap ‘OK' and finish the process. The Tweets and Retweets will be posted to your Facebook with your Twitter username, though the replies for the Tweets won't be posted in Facebook.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Tools for managing your social media accounts
 
@@ -208,21 +220,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-bring-forth-forgotten-vids-unlock-the-power-of-these-12-secrets-fb-2023/"><u>[New] 2024 Approved Bring Forth Forgotten Vids Unlock the Power of These 12 Secrets, FB, 2023</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-demystifying-data-a-beginners-guide-to-facebook-insights/"><u>[New] 2024 Approved Demystifying Data A Beginner's Guide to Facebook Insights</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-discovery-unearthing-the-best-videos-from-fbs-sphere-for-2024/"><u>[New] Discovery Unearthing the Best Videos From FB's Sphere for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-gamers-guide-to-affordable-yet-powerful-keyboards-for-2024/"><u>[New] Gamer's Guide to Affordable, Yet Powerful Keyboards for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-insights-into-whatsapp-sound-calls/"><u>[New] In 2024, Insights Into WhatsApp Sound Calls</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-sparking-social-media-stories-facebook-fame-techniques-for-2024/"><u>[Updated] Sparking Social Media Stories Facebook Fame Techniques for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-youtubes-tagging-system-unveiled/"><u>[Updated] YouTube's Tagging System Unveiled</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-rhythm-discoveries-at-your-fingertips-free-online/"><u>2024 Approved Rhythm Discoveries at Your Fingertips (Free, Online)</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/broadcasting-facebook-videos-through-your-tv-setup/"><u>Broadcasting Facebook Videos Through Your TV Setup</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/freedom-in-memories-your-instagrams-savior/"><u>Freedom in Memories Your Instagram's Savior</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Motorola G24 Power? | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-repair-your-tiktok-problems-and-get-back-in-the-groove/"><u>How to Repair Your TikTok Problems and Get Back in the Groove</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-optimizing-your-fb-profile-with-stunning-cover-videos/"><u>In 2024, Optimizing Your FB Profile with Stunning Cover Videos</u></a></li>
-<li><a href="https://program-issues.techidaily.com/quick-solution-how-to-solve-the-battlefield-5-wont-start-problem-a-step-by-step-guide/"><u>Quick Solution: How to Solve the 'Battlefield 5 Won't Start' Problem – A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/social-media-archives-live-version-for-2024/"><u>Social Media Archives - Live Version for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/the-blueprint-for-youtube-profitability-via-cpm-strategy-for-2024/"><u>The Blueprint for YouTube Profitability via CPM Strategy for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-essential-listing-best-free-vector-art-pages-online/"><u>[New] 2024 Approved Essential Listing Best Free Vector Art Pages Online</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-turn-your-watched-fb-video-into-an-mp3-file/"><u>[New] 2024 Approved Turn Your Watched FB Video Into an MP3 File</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-cutting-edge-video-meeting-techniques-on-slack-plus-filmora-for-2024/"><u>[New] Cutting-Edge Video Meeting Techniques on Slack + Filmora for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-invisible-viewers-for-fb-chronicles-for-2024/"><u>[New] Invisible Viewers for FB Chronicles for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unique-soundscapes-for-your-one-person-show/"><u>[New] Unique Soundscapes for Your One-Person Show</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unlock-hidden-instagram-story-views/"><u>[Updated] 2024 Approved Unlock Hidden Instagram Story Views</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-how-to-setup-and-evaluate-facebook-instream-ads/"><u>[Updated] In 2024, How to Setup and Evaluate Facebook Instream Ads?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-troubleshooting-your-facebook-stories-wont-load-properly/"><u>[Updated] In 2024, Troubleshooting Your Facebook Stories Won't Load Properly</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagrams-filter-arsenal-for-revamping-your-archive-for-2024/"><u>[Updated] Instagram's Filter Arsenal for Revamping Your Archive for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-premium-free-facebook-media-craftsman-suite/"><u>2024 Approved Premium Free Facebook Media Craftsman Suite</u></a></li>
+<li><a href="https://techtrends.techidaily.com/convertir-formatos-de-audio-gratuitamente-con-el-sitio-web-de-movavi-transforme-sus-archivos-au-en-formato-mp3/"><u>Convertir Formatos De Audio Gratuitamente Con El Sitio Web De Movavi: Transforme Sus Archivos .au en Formato MP3</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-infinix-note-30-vip-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Infinix Note 30 VIP to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-realme-11-proplus-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Realme 11 Pro+ Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-leading-selection-top-6-fb-lite-vids/"><u>In 2024, Leading Selection #Top 6 FB Lite Vids</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-top-vr-films-that-you-should-never-miss/"><u>In 2024, Top VR Films That You Should Never Miss</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/innovating-content-tips-for-facebook-slide-show-makers-for-2024/"><u>Innovating Content Tips for Facebook Slide Show Makers for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/saving-facebook-gifs-on-computer-phone-and-tablet/"><u>Saving Facebook GIFs on Computer, Phone & Tablet</u></a></li>
+<li><a href="https://program-issues.techidaily.com/the-ultimate-fixes-for-smoothing-out-resident-evil-village-gameplay-on-pc-systems/"><u>The Ultimate Fixes for Smoothing Out Resident Evil Village Gameplay on PC Systems</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-guide-resolving-windows-media-player-issues-cant-play-avi-files/"><u>Ultimate Guide: Resolving Windows Media Player Issues - Can't Play AVI Files?</u></a></li>
 </ul></div>
 

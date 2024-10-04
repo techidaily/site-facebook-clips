@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Navigating to Past Facebook Stories  A Step-by-Step Mobile & Laptop Guide\""
-date: 2024-08-24T08:51:14.160Z
-updated: 2024-08-25T08:51:14.160Z
+date: 2024-09-28T19:40:52.352Z
+updated: 2024-10-04T17:51:25.391Z
 tags:
   - ai video
   - ai facebook
@@ -55,6 +55,13 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to View Stories on Facebook Desktop?
 
 You can use Facebook on your desktop; it is feasible to use it on a desktop when you are using it for professional purposes such as blogging or business. It is possible to view old Facebook stories through desktop also; here is how:
@@ -69,9 +76,6 @@ Once you click on the story archive, all your **old stories** will appear in seq
 
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## Part 3: How to View A Friend’s Old Facebook Story?
 
 It is nearly impossible to view your friend’s story once it has disappeared. You cannot watch the stories even if they are achieved. However, there is one way to view old stories of your friends. Here is how:
@@ -91,10 +95,12 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -112,8 +118,12 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
 Facebook business pages help in enhancing business significantly, primarily if you use story features for customer interaction. If you want to keep track of old stories, you can use the following method:
@@ -137,15 +147,17 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -153,3 +165,25 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-digging-deep-into-facebooks-short-video-shift-the-2023-scenario-for-2024/"><u>[New] Digging Deep Into Facebook's Short Video Shift The 2023 Scenario for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-defiance-against-data-thieves/"><u>[New] In 2024, Defiance Against Data Thieves</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-enhancing-engagement-creating-top-tier-fb-ad-videos/"><u>[New] In 2024, Enhancing Engagement Creating Top-Tier FB Ad Videos</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-copyright-freedom-tunes-best-free-melodies-for-zen/"><u>[Updated] 2024 Approved Copyright-Freedom Tunes - Best Free Melodies for Zen</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-direct-mp4-uploader-for-facebook-services/"><u>[Updated] 2024 Approved Direct MP4 Uploader for Facebook Services</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-the-quest-for-your-own-distinctive-stream-tagline/"><u>[Updated] The Quest for Your Own Distinctive Stream Tagline</u></a></li>
+<li><a href="https://blog-min.techidaily.com/experience-the-future-of-gaming-this-virtual-reality-music-game-could-be-your-ticket-to-embracing-vr/"><u>Experience the Future of Gaming: This Virtual Reality Music Game Could Be Your Ticket to Embracing VR</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/expressive-authenticity-learning-to-alter-voice-on-ig-for-2024/"><u>Expressive Authenticity Learning to Alter Voice on IG for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/facebook-today-unpacking-the-recent-updates-for-2024/"><u>Facebook Today Unpacking the Recent Updates for 2024</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-5-ways-change-your-home-address-in-googleapple-map-on-apple-iphone-14ipad-drfone-by-drfone-virtual-ios/"><u>In 2024, 5 Ways Change Your Home Address in Google/Apple Map on Apple iPhone 14/iPad | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-auditory-adventures-pinpointing-top-music-picks-for-podcast-openings/"><u>In 2024, Auditory Adventures Pinpointing Top Music Picks for Podcast Openings</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-how-to-post-360-photos-on-iosandroid-to-facebook/"><u>In 2024, How to Post 360 Photos on iOS/Android to Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-unveiling-facebooks-video-ratio-options-and-tweaks/"><u>In 2024, Unveiling Facebook's Video Ratio Options & Tweaks</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-why-does-facebook-suggested-videos-not-showing-up/"><u>In 2024, Why Does Facebook Suggested Videos Not Showing Up?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/persuasive-visuals-uncover-the-power-in-6-video-types-for-2024/"><u>Persuasive Visuals Uncover the Power in 6 Video Types for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/skyrocket-views-with-these-proven-youtube-optimization-strategies-for-2024/"><u>Skyrocket Views with These Proven YouTube Optimization Strategies for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/eling-the-secrets-to-dynamic-youtube-trailers-in-filmora/"><u>Unraveling the Secrets to Dynamic YouTube Trailers in Filmora</u></a></li>
+</ul></div>
+

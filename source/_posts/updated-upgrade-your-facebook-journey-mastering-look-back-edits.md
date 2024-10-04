@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Upgrade Your Facebook Journey  Mastering Look Back Edits\""
-date: 2024-08-24T08:53:23.693Z
-updated: 2024-08-25T08:53:23.693Z
+date: 2024-09-30T19:34:36.067Z
+updated: 2024-10-04T20:07:36.750Z
 tags:
   - ai video
   - ai facebook
@@ -56,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/5f5f5b93e7d5296621d28cc46446de06ad76f2671
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
@@ -76,7 +83,21 @@ thumbnail: https://thmb.techidaily.com/5f5f5b93e7d5296621d28cc46446de06ad76f2671
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
 
@@ -89,6 +110,13 @@ thumbnail: https://thmb.techidaily.com/5f5f5b93e7d5296621d28cc46446de06ad76f2671
 
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -97,14 +125,33 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-thumbnails-that-captivate-a-professionals-guide-to-visual-lures/"><u>[New] 2024 Approved Thumbnails That Captivate A Professional's Guide to Visual Lures</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-digital-doppelganger-deliberation-building-caricatured-characters/"><u>[New] Digital Doppelganger Deliberation Building Caricatured Characters</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-attention-a-look-at-the-best-15-video-intro-plans/"><u>[New] In 2024, Crafting Attention A Look at the Best 15 Video Intro Plans</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-mend-facebook-story-playback-pauses/"><u>[New] In 2024, Mend Facebook Story Playback Pauses</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-replace-missing-watch-playback-icons/"><u>[New] Replace Missing Watch Playback Icons</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-elevating-social-media-interaction-via-fb-story-links/"><u>[Updated] 2024 Approved Elevating Social Media Interaction via FB Story Links</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-become-an-expert-at-capturing-every-detail-on-xiaomi-mi-11/"><u>[Updated] Become an Expert at Capturing Every Detail on Xiaomi Mi 11</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-building-a-strong-visual-narrative-in-youtube-videos/"><u>[Updated] Building a Strong Visual Narrative in YouTube Videos</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-fast-footsteps-simple-recording-for-dell-pcs/"><u>[Updated] In 2024, Fast Footsteps Simple Recording for Dell PCs</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-how-to-handle-accidental-reflections-in-video-conversations/"><u>[Updated] In 2024, How To Handle Accidental Reflections in Video Conversations</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-interpreting-the-functionality-behind-facebooks-blue-video-icon-for-2024/"><u>[Updated] Interpreting the Functionality Behind Facebook's Blue Video Icon for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-full-spectrum-slomo-recording-app-evaluation-for-2024/"><u>[Updated] The Full Spectrum SloMo Recording App Evaluation for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-key-elements-for-compelling-facebook-ad-textual-content/"><u>2024 Approved Key Elements for Compelling Facebook Ad Textual Content</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-posting-tiktok-content-on-facebook-a-step-by-step-guide/"><u>2024 Approved Posting TikTok Content on Facebook A Step-by-Step Guide</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>Does Life360 Notify When You Log Out On Apple iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-vivo-t2x-5g-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Vivo T2x 5G</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-realme-v30t-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Realme V30T to Gmail | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/peer-into-the-future-with-apeaksofts-screen-capture-trends-2023-for-2024/"><u>Peer Into the Future with Apeaksoft’s Screen Capture Trends 2023 for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/web-enhancer-facebook-story-keeper-for-2024/"><u>Web Enhancer Facebook Story Keeper for 2024</u></a></li>
+</ul></div>
+
