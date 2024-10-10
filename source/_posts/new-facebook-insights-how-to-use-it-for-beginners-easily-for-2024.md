@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Facebook Insights  How to Use It for Beginners Easily for 2024\""
-date: 2024-09-25T20:46:48.861Z
-updated: 2024-09-28T19:34:28.352Z
+date: 2024-10-02T16:16:16.237Z
+updated: 2024-10-09T16:01:01.365Z
 tags:
   - ai video
   - ai facebook
@@ -41,18 +41,18 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
 
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Where to Find Facebook Insights
 
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
 
  By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Use Facebook Insights for Beginners
 
@@ -63,16 +63,10 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Page Likes
@@ -84,13 +78,6 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
  Secondly, the **net likes**, which captures the total new likes on your page subtracted by the total dislikes.
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Post Reach
 
@@ -104,16 +91,16 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
 
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Video Analytics
 
@@ -126,6 +113,20 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
  The Top Videos section shows you the top 5 videos posted by you with more than 3 seconds views. This helps you to analyse the type of video preferred by your audiences.
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. People Analytics
 
@@ -145,13 +146,6 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -169,19 +163,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-instantly-access-fb-videos-on-your-apple-entertainment-center/"><u>[New] 2024 Approved Instantly Access FB Videos on Your Apple Entertainment Center</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-future-of-video-on-facebook-focusing-on-shorter-formats/"><u>[New] In 2024, The Future of Video on Facebook Focusing on Shorter Formats</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-decoding-the-top-5-transformative-social-updates-for-2024/"><u>[Updated] Decoding the Top 5 Transformative Social Updates for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-top-rated-apps-for-capturing-and-saving-videos-online/"><u>[Updated] Top-Rated Apps for Capturing & Saving Videos Online</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-mastering-roi-with-effective-animated-social-media-campaigns/"><u>2024 Approved Mastering ROI with Effective Animated Social Media Campaigns</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-unlocking-the-art-of-captions-a-short-guide-to-facebook-videos/"><u>2024 Approved Unlocking the Art of Captions A Short Guide to Facebook Videos</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/1726233751132-mp4mxf-movavi/"><u>免費線上MP4至MXF格式優化 - Movavi影片轉換工具指南</u></a></li>
-<li><a href="https://facebook.techidaily.com/conceal-your-social-profile-from-curious-strangers/"><u>Conceal Your Social Profile From Curious Strangers</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/convertir-pef-a-formato-png-sin-costo-con-movavi-online/"><u>Convertir PEF a Formato PNG Sin Costo Con Movavi Online</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-copy-paste-issues-in-windows-11-step-by-step-guide/"><u>Fixing 'Copy-Paste' Issues in Windows 11: Step-by-Step Guide</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-masterful-multiplatform-apps-for-dynamic-media-collage/"><u>In 2024, Masterful Multiplatform Apps for Dynamic Media Collage</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-the-ultimate-pathway-best-7-platforms-turning-art-into-nfts/"><u>In 2024, The Ultimate Pathway Best 7 Platforms Turning Art Into NFTs</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/unveiling-the-similarities-how-samsung-galaxy-buds-3-mirror-apples-iconic-airpods-design/"><u>Unveiling the Similarities: How Samsung Galaxy Buds 3 Mirror Apple's Iconic AirPods Design</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unveiling-top-4-ai-story-generators-for-imagination-boosters/"><u>Unveiling Top 4 AI Story Generators for Imagination Boosters</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-discovering-latest-fb-watches-a-step-by-step-guide/"><u>[New] Discovering Latest FB Watches A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-make-and-upload-360-video-to-facebook/"><u>[New] How to Make and Upload 360 Video to Facebook</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-switch-clash-top-10-intense-battles-to-play/"><u>[New] Switch Clash Top 10 Intense Battles to Play</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-select-20-humorous-incarceration-posts-to-infuse-positivity-into-facebook-feeds/"><u>[Updated] Select 20 Humorous Incarceration Posts to Infuse Positivity Into Facebook Feeds</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-symbolize-your-brand-exclusive-access-to-free-customizable-logos/"><u>[Updated] Symbolize Your Brand Exclusive Access to Free, Customizable Logos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-spark-creativity-30-unique-video-projects/"><u>2024 Approved Spark Creativity 30 Unique Video Projects</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/affordable-high-performance-gaming-keyboards-listed-for-2024/"><u>Affordable High-Performance Gaming Keyboards Listed for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/bring-back-missing-watch-playlist-icon/"><u>Bring Back Missing Watch Playlist Icon</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-honor-90-pro-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Honor 90 Pro</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/expert-choices-best-6-fb-lite-video-saves-for-2024/"><u>Expert Choices Best 6 FB Lite Video Saves for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Fast Friending  Mastering the Art of Profile Searches\""
-date: 2024-09-30T19:07:15.342Z
-updated: 2024-10-04T16:44:43.703Z
+date: 2024-10-09T00:27:20.779Z
+updated: 2024-10-09T17:38:30.990Z
 tags:
   - ai video
   - ai facebook
@@ -37,15 +37,22 @@ Here are two ways to search people on Facebook. The second option also helps you
 ## Part 1: How to search people on Facebook
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 1: Log in to Facebook
 
 Open Facebook on your computer – Firstly, open a web browser and get to the Facebook website. You can find the log in fields on the top right corner of the page. Input your user ID and password and hit the login button at the side to proceed further.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 2: Check your list of Friends on Facebook
 
@@ -54,10 +61,10 @@ On the header tool icons, click on your name and you are directed to your Facebo
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 3: Friends Finder Page
@@ -65,13 +72,6 @@ On the header tool icons, click on your name and you are directed to your Facebo
 To reach the friend’s finder page, click on “find friends” from the friends’ page header. Doing so takes you to the “Friends Finder” page of Facebook.
 
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 4: Friends Search
 
@@ -81,6 +81,13 @@ On the top right of old friends search, you can find the “search for your frie
 
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to search people using Search Is Back
 
 ### 1\. Open and Select
@@ -89,23 +96,9 @@ On a browser open the [Search is Back site](https://searchisback.com/). You can 
 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Input your Interest
 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Add People as Friends
 
@@ -118,16 +111,10 @@ Once you have filled in all the filters in the page, you can hit Find People but
 Like Find People tab at the top of the page, you may also search events, posts, shares and photos from the event, post & shares, and photos tabs at the top of the page.
 
 <!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -141,6 +128,13 @@ If you want to make Facebook videos, try to use [Filmora](https://tools.techidai
 [](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -159,20 +153,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-fast-footsteps-simple-recording-for-dell-pcs/"><u>[New] In 2024, Fast Footsteps Simple Recording for Dell PCs</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-is-your-social-media-strategy-up-to-date-with-facebook-changes/"><u>[New] In 2024, Is Your Social Media Strategy Up-to-Date with Facebook Changes?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-the-formula-for-a-high-ranking-online-persona-for-2024/"><u>[New] The Formula for a High-Ranking Online Persona for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-efficient-video-download-from-facebooks-domain/"><u>[Updated] 2024 Approved Efficient Video Download From Facebook's Domain</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-instant-social-interaction-tweetplusfb-guide/"><u>[Updated] 2024 Approved Instant Social Interaction Tweet+FB Guide</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-a-step-by-step-guide-to-the-top-20-strategies-for-successful-fb-videos-for-2024/"><u>[Updated] A Step-by-Step Guide to the Top 20 Strategies for Successful FB Videos for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-squared-up-strategies-boosting-video-popularity-on-the-platform/"><u>[Updated] In 2024, Squared Up Strategies Boosting Video Popularity on the Platform</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-initiate-online-interactions-with-this-guide-to-facebook-registration/"><u>[Updated] Initiate Online Interactions with This Guide to Facebook Registration</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-empowering-healing-with-vr-technology/"><u>2024 Approved Empowering Healing with VR Technology</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-spoof-spectacle-steps-to-create-a-parody/"><u>2024 Approved Spoof Spectacle Steps to Create a Parody</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/animating-faces-the-guide-to-motion-blur-in-picsart/"><u>Animating Faces The Guide to Motion Blur in Picsart</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Oppo Reno 8T 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Vivo V29 Pro | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-honor-magic-5-lite-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Honor Magic 5 Lite? 7 Ways to Resolve | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionize-your-living-room-on-a-budget-with-the-caixun-75-inch-4k-smart-tv-review/"><u>Revolutionize Your Living Room on a Budget with the Caixun 75 Inch 4K Smart TV Review.</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/utting-to-a-consensus-in-news-endings-for-2024/"><u>[New] Cutting to a Consensus in News Endings for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-decrypting-fb-chat-videography-a-detailed-approach-for-2024/"><u>[New] Decrypting FB Chat Videography A Detailed Approach for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-luts-explained-enhancing-images-through-color-grading/"><u>[New] LUTs Explained Enhancing Images Through Color Grading</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-average-revenue-what-every-view-contributes-to-creators-for-2024/"><u>[Updated] Average Revenue What Every View Contributes to Creators for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-crafting-squares-for-viral-videos-in-a-social-media-world-for-2024/"><u>[Updated] Crafting Squares for Viral Videos in a Social Media World for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-leveraging-obs-for-smooth-streaming-mac-and-pc-users-guide/"><u>[Updated] Leveraging OBS for Smooth Streaming Mac & PC Users' Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-streamline-and-save-prime-tools-to-plug-into-fb-videos/"><u>[Updated] Streamline & Save Prime Tools to Plug Into Fb Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/best-and-free-facebook-picture-video-maker-for-2024/"><u>Best And Free Facebook Picture Video Maker for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-samsung-galaxy-s23-fe-is-unlocked-by-drfone-android/"><u>How To Check if Your Samsung Galaxy S23 FE Is Unlocked</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-toshiba-driver-updates-and-free-downloads-for-windows-pcs/"><u>Latest Toshiba Driver Updates & Free Downloads for Windows PCs</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-rotate-your-3gp-videos-for-free-top-5-tools/"><u>Updated Rotate Your 3GP Videos for Free Top 5 Tools</u></a></li>
 </ul></div>
 

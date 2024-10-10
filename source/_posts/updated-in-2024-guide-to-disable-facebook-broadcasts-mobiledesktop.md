@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Guide to Disable Facebook Broadcasts, Mobile/Desktop"
-date: 2024-08-24T08:46:51.598Z
-updated: 2024-08-25T08:46:51.598Z
+date: 2024-10-03T03:01:15.547Z
+updated: 2024-10-10T00:08:04.741Z
 tags:
   - ai video
   - ai facebook
@@ -62,6 +62,13 @@ Let's begin with the mobile Facebook application:
 
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Delete A Story from Facebook Story Archive?
 
 After your story vanishes from the Story section after 24 hours, they remain stored in the Story Achieve. But this feature has to stay enabled to store your stories in the Story Achieve. This way, you can control which stories you will like to save and which ones you will want to delete completely. To enable Story Archive, go to your Facebook profile and click on the three dots. You need to click on the settings option; after that, you need to select the gear icon. Once done, just toggle the save to archive option, and it will be enabled.
@@ -72,6 +79,13 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
 
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
@@ -79,8 +93,12 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 This is how you will remove the stories from Facebook archived.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
 
 Facebook stories don't only appear on your Facebook home page; they also appear on your Facebook Messenger. And you can delete your stories by visiting Facebook Messenger. Let's find out how.
@@ -93,12 +111,6 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ## Part 4: How to Control Who Can View Your Facebook Stories?
 
 You can make your stories visible to your friends, customize the viewers, or keep them public. Facebook allows you to control how and with whom you want to share your stories with.
@@ -112,12 +124,12 @@ You can make your stories visible to your friends, customize the viewers, or kee
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 5: How to Hide Facebook Story from Specific People?
 
 Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
@@ -127,6 +139,13 @@ Facebook has made sharing stories easy because of the multiple features it offer
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
 
@@ -142,16 +161,11 @@ Facebook stories are a great way to let people know what you are up to. It's sho
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -159,3 +173,27 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-audio-excellence-premium-recording-mics-ranked/"><u>[New] Audio Excellence Premium Recording Mics Ranked</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-effective-ways-to-design-fb-ad-videos/"><u>[New] In 2024, Effective Ways to Design FB Ad Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-essential-process-of-modifying-your-online-community-background/"><u>[New] In 2024, The Essential Process of Modifying Your Online Community Background</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-instant-upload-tiktok-vids-to-your-fb-page-easily-for-2024/"><u>[New] Instant Upload TikTok Vids to Your FB Page Easily for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-manipulating-fonts-in-visual-media/"><u>[New] Manipulating Fonts in Visual Media</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-streamers-guide-to-choosing-a-video-player-vlc-vs-mpc/"><u>[New] Streamer's Guide to Choosing a Video Player VLC Vs. MPC</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-the-ultimate-guide-to-increasing-traffic-with-powerful-social-media-videos/"><u>[Updated] 2024 Approved The Ultimate Guide to Increasing Traffic with Powerful Social Media Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-beat-the-hurdle-best-video-extractors-for-your-iphoneipad-from-fb-for-2024/"><u>[Updated] Beat the Hurdle Best Video Extractors for Your iPhone/iPad From FB for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-charting-the-course-for-creative-campaigns-on-facebook-2024/"><u>[Updated] Charting the Course for Creative Campaigns on Facebook, 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-digital-footprints-on-instagram-effective-photo-watermarking/"><u>[Updated] Digital Footprints on Instagram Effective Photo Watermarking</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-enhance-youtube-creations-with-soundtrack-perfection-guide/"><u>[Updated] Enhance YouTube Creations with Soundtrack Perfection Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-harmonizing-hues-the-filmmakers-palette-guide/"><u>[Updated] Harmonizing Hues The Filmmaker's Palette Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-az-video-grabber-in-depth-app-analysis-and-diversions/"><u>[Updated] In 2024, AZ Video Grabber In-Depth App Analysis & Diversions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-snapcutsolution-examination-extensive-review/"><u>[Updated] SnapCutSolution Examination – Extensive Review</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-elevate-engagement-escalate-ranks-on-fb-pages/"><u>2024 Approved Elevate Engagement, Escalate Ranks on FB Pages</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fast-solution-guide-overcoming-performance-issues-in-assassins-creed-valhalla/"><u>Fast Solution Guide: Overcoming Performance Issues in Assassin's Creed: Valhalla</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-a-non-functioning-keyboard-on-your-dell-laptop/"><u>How to Fix a Non-Functioning Keyboard on Your Dell Laptop</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-pick-your-favorite-top-ios-apps-for-facebook-video-loading/"><u>In 2024, Pick Your Favorite Top iOS Apps for Facebook Video Loading</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/next-gen-responders-eclipsing-chatgpt/"><u>Next-Gen Responders Eclipsing ChatGPT</u></a></li>
+</ul></div>
+

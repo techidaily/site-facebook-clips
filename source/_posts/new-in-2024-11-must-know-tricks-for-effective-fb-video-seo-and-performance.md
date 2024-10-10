@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, 11 Must-Know Tricks for Effective FB Video SEO and Performance\""
-date: 2024-08-24T08:40:36.545Z
-updated: 2024-08-25T08:40:36.545Z
+date: 2024-10-07T04:39:01.909Z
+updated: 2024-10-10T01:25:24.113Z
 tags:
   - ai video
   - ai facebook
@@ -33,9 +33,6 @@ Facebook video marketing seems great where you can live interact with your consu
 
 ![facebook live video](https://images.wondershare.com/filmora/article-images/facebook-live-iphone.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Upload Videos Directly to Facebook rather than YouTube
 
 Though videos on YouTube usually get views but uploading directly on to Facebook would bring more viewership for your social media video.
@@ -51,8 +48,19 @@ The video view counter helps you estimate the way your viral video fared. You ca
 ![upload video to facebook](https://images.wondershare.com/filmora/article-images/upload-video-to-facebook.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Keep your Facebook video short
 
 Like text content, your Facebook Marketing video should also be crisp and short. Video with a fresh and fascinatingly entertaining content becomes a potential viral video. Creating them in widely used language (such as English) would garner more popularity sans the cultural or geographical background of a person.
@@ -61,9 +69,6 @@ Shorter videos between 2 minutes effectively perform in comparison to longer ver
 
 ![facebook video short](https://images.wondershare.com/filmora/article-images/facebook-video-length.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\. Shoot Facebook video vertically
 
 A majority of Facebook users watch videos on their mobile phone or tablets. So shooting your social media video in vertical mode is pleasing to the eyes, while viewing it on a mobile. Portrait (vertically-aligned) videos have a better hit rate compared to horizontal shots. Keeping that in mind, make sure to create your new videos in a mobile friendly manner.
@@ -71,20 +76,19 @@ A majority of Facebook users watch videos on their mobile phone or tablets. So s
 ![facebook vidoe vertical](https://images.wondershare.com/filmora/article-images/facebook-video-vertical.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 5\. Feature a Video on Facebook Page
 
 Just like featured photos on the about section of your Facebook page, you can add your Facebook marketing video as a featured video. When people love your video they keep on sharing it to their near and dear ones, be it about anything.
@@ -95,12 +99,6 @@ You can use it to promote an event, launch a product or service, or a teaser abo
 
 ![feature video facebook](https://images.wondershare.com/filmora/article-images/feature-video-facebook.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 6\. Carefully choose thumbnail
 
 Well! We have just said about the thumbnail on your Facebook video. The social media video you upload on Facebook will garner more viewership with a suitable and attractive thumbnail.
@@ -119,6 +117,13 @@ These videos can be rotated, paned, and can be viewed from any angle they desire
 
 ![facebook 360 video](https://images.wondershare.com/filmora/article-images/facebook-360-video.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8\. Mobile friendly
 
 Being the perfect partner to kill time, while waiting for someone, travelling alone, or in the queue in a supermarket, mobile phones certainly have more attention than other gadgets.
@@ -133,8 +138,18 @@ So, Facebook marketing videos need to cash on this aspect. These videos need to 
 ![mobile friendly](https://images.wondershare.com/filmora/article-images/mobile-users.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 9\. Posting time is important
 
 Knowing the right time to post your social media video on Facebook or any other social media platform is vital.
@@ -145,9 +160,6 @@ There are tools to study the statistics and analyze the most favorable time for 
 
 ![facebook posting time](https://images.wondershare.com/filmora/article-images/facebook-posting-time.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 10\. Add call to action
 
 Adding a call to action in your video is vital. Without a call to action, viewers might watch and forget a video and the message you are conveying will be lost.
@@ -155,6 +167,20 @@ Adding a call to action in your video is vital. Without a call to action, viewer
 You need to build the base, ask them to like, share, or comment on your Facebook videos or even push them gently to visit your website, check out the products/service. You can add a link using goo.gl or bit.ly to cut-short the link and guide them for more information about your services.
 
 ![facebook call to action](https://images.wondershare.com/filmora/article-images/facebook-call-to-action.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **11\. Choose a suitable video creator**
 
@@ -172,17 +198,11 @@ For Win 7 or later (64-bit)
 
 For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Final Verdict
 
 Facebook marketing videos would gain more focus and fan following, if you make use of the above mentioned points while creating it. A significant point here is, in case you are not uploading a live video, then use a top-notch video editing software to create an amazingly interesting video and see your fan following increase multifold. You can also use Filmora to eidt video for fitting Facebook square video
 
 10 tips for Facebook video marketing
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -190,3 +210,22 @@ Facebook marketing videos would gain more focus and fan following, if you make u
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-key-components-to-successful-ad-textual-content-creation/"><u>[New] 2024 Approved Key Components to Successful Ad Textual Content Creation</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-mastering-video-chat-on-snapchat-a-3-step-guide-to-efficiency/"><u>[New] 2024 Approved Mastering Video Chat on Snapchat A 3-Step Guide to Efficiency</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-mastering-video-edits-in-youtube-studios-editor/"><u>[New] 2024 Approved Mastering Video Edits in YouTube Studio's Editor</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-strategies-for-succeeding-with-facebook-video-marketing-and-revenue/"><u>[New] Strategies for Succeeding with Facebook Video Marketing and Revenue</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-from-novice-to-pro-your-roadmap-to-crafting-engaging-fb-stories-for-2024/"><u>[Updated] From Novice to Pro Your Roadmap to Crafting Engaging FB Stories for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-insiders-edge-to-editing-your-look-back-story/"><u>[Updated] In 2024, The Insider's Edge to Editing Your Look Back Story</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-share-wisdom-top-strategies-for-video-sharing-on-instagram/"><u>[Updated] Share Wisdom Top Strategies for Video Sharing on Instagram</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-halt-video-size-bloat-convert-fb-vids-to-720p-and-1080p-mp4/"><u>2024 Approved Halt Video Size Bloat Convert FB Vids to 720P & 1080P MP4</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/capturing-the-heavens-phone-panorama-basics/"><u>Capturing the Heavens Phone Panorama Basics</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/fb-cover-videos-demystified-what-everyone-should-know/"><u>FB Cover Videos Demystified What Everyone Should Know</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-realme-11x-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-essential-top-5-zero-cost-windows-10-screen-recorder-tools/"><u>In 2024, Essential Top 5 Zero Cost Windows 10 Screen Recorder Tools</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/save-money-on-video-conversion-transform-vimeo-clips-to-mp4-using-free-tools-5-uncomplicated-techniques/"><u>Save Money on Video Conversion: Transform Vimeo Clips to MP4 Using Free Tools - 5 Uncomplicated Techniques</u></a></li>
+<li><a href="https://fox-place.techidaily.com/the-ultimate-list-of-elite-pc-maintenance-suites-for-tech-experts/"><u>The Ultimate List of Elite PC Maintenance Suites for Tech Experts</u></a></li>
+</ul></div>
+

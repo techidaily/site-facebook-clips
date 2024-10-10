@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Video Perfection  Crafting Squares for Facebook Popularity\""
-date: 2024-08-17T09:43:15.436Z
-updated: 2024-08-18T09:43:15.436Z
+date: 2024-10-06T02:34:56.291Z
+updated: 2024-10-09T23:24:12.764Z
 tags:
   - ai video
   - ai facebook
@@ -59,9 +59,6 @@ Here are the facts and figures –
 
 If the video has links, a 25 characters’ link and 30 characters’ link description is what you need. If you post 360 videos, the aspect ratio tolerance needs to be 3%.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: How to create square videos by Filmora
 
 For creating square videos on Facebook, [Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/) is the best choice so far. You get to edit photos and videos with a range of features on your Mac or Windows computers as well as on your mobile devices using this application.
@@ -91,8 +88,12 @@ Now, on the edit panel hit the ‘Crop Clip’ button and select 1:1 from the bo
 ![edit panel](https://images.wondershare.com/filmora/article-images/crop-zoom-panel.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Step 4: Save changes and export**
 
 Here, you need to press ‘OK’ and export the file to your computer. Later you can upload it on your Facebook account easily.
@@ -100,8 +101,12 @@ Here, you need to press ‘OK’ and export the file to your computer. Later you
 ![export video](https://images.wondershare.com/filmora/article-images/export-video-filmora.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Part 4: How to create square videos by Adobe Premiere
@@ -116,21 +121,22 @@ First you need to import video to Premiere Pro. Go to File > Import, and then se
 
 ![import video premiere](https://images.wondershare.com/filmora/article-images/import-video-premiere.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 **Step 2：Sequence settings**
 
 Click Sequence in the top, and then select Sequence Settings. First to seclect ARRI Cinema to activiate the settings. In the video area, adjust the frame size. You need to keep horizontal and vertical number the same in order to create square video. Here, we adjsut it to 600\. Leave the rest options the same. Click OK.
 
 ![Sequence settings](https://images.wondershare.com/filmora/article-images/sequence-setting.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 **Step 3：Export**
 
 Export your video once the changes are satisfactory and enjoy!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bottom Line
 
@@ -141,9 +147,20 @@ From the above article, we are sure that square videos on Facebook are significa
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -151,11 +168,30 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-disqus-poster-pixel-arrangement-for-2024/"><u>[New] Disqus Poster Pixel Arrangement for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ow-to-broadcast-your-online-meeting-via-youtube-google-meet-steps/"><u>[New] How To Broadcast Your Online Meeting via YouTube - Google Meet Steps</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-use-google-trends-to-come-up-with-video-ideas-for-2024/"><u>[New] How to Use Google Trends to Come up with Video Ideas for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-discovering-social-medias-top-5-innovations-in-fb/"><u>[Updated] Discovering Social Media’s Top 5 Innovations in FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-premier-movie-access-on-facebook-ranked-8-list/"><u>[Updated] In 2024, Premier Movie Access on Facebook Ranked #8 List</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-windows-11-excellent-video-capture-tools-compared/"><u>[Updated] In 2024, Windows 11 Excellent Video Capture Tools Compared</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-maximize-your-income-winning-at-monetizing-social-media-videos-for-2024/"><u>[Updated] Maximize Your Income Winning at Monetizing Social Media Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-crafting-your-signature-voice-for-instagram-success/"><u>2024 Approved Crafting Your Signature Voice for Instagram Success</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-huawei-has-native-mkv-support-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Does Huawei has native MKV support?</u></a></li>
+<li><a href="https://driver-download.techidaily.com/effortless-guide-to-updating-your-wacom-intuos-pro-for-windows-11/"><u>Effortless Guide to Updating Your Wacom Intuos Pro for Windows 11</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/extract-and-save-fb-videos-the-cutting-edge-of-top-5/"><u>Extract and Save FB Videos The Cutting Edge of Top 5</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-2023-how-to-solve-facebook-videos-are-partially-muted/"><u>In 2024, 2023 | How to Solve Facebook Videos Are Partially Muted?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-advanced-tips-for-sending-fb-videos-via-whatsapp/"><u>In 2024, Advanced Tips for Sending FB Videos via WhatsApp</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-with-ocr-convert-pdfs-and-jpgs-using-finereader/"><u>IPhone Document Scanning with OCR: Convert PDFs & JPGs Using FineReader</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-key-to-captivating-audiences-crafting-fb-slideshows-for-2024/"><u>The Key to Captivating Audiences Crafting FB Slideshows for 2024</u></a></li>
+</ul></div>
+
