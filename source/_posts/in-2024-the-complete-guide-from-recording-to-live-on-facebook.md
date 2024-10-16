@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Complete Guide  From Recording to Live on Facebook\""
-date: 2024-10-05T21:54:06.708Z
-updated: 2024-10-09T17:36:58.408Z
+date: 2024-10-14T16:43:38.642Z
+updated: 2024-10-15T19:48:28.438Z
 tags:
   - ai video
   - ai facebook
@@ -29,15 +29,22 @@ thumbnail: https://thmb.techidaily.com/db54d4e94bdc568181a5a19bde06cb60cc627002a
 
  With some recent updates to Facebook platform so many new features have been added to it and one of the best out of this big list is ability to live stream 360 degree videos. If you have right equipment to capture 360 degree videos then you can definitely create wonders around. The ability to Live Stream on Facebook assists people to share their special moments of life immediately with friends. So are you ready to have the real fun? Let us start with the tricks to create live 360 videos but before that let us discuss about best compatible cameras to enjoy live 360.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Compatible Cameras for Live 360
 
  If you want to live broadcast a 360 degree video on facebook then your first most requirements will be a camera that can capture such videos. There are so many options available in market that you can add into your preference list like ALLie, Insta360 Air (Android) and Nano (iPhone), Giroptic IO, Samsung Gear 360 and many more. The Nokia Ozo and Z CAM S1 are also supported in the higher end professional grade category. Pick any one of these devices and soon you will be able to impress your audience with impressive updates.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specification for Live 360
@@ -51,6 +58,19 @@ thumbnail: https://thmb.techidaily.com/db54d4e94bdc568181a5a19bde06cb60cc627002a
 * Supported video frame rate is 30fps only.
 * It is important to maintain a distance of at least 20 to 30 feet between camera and objects to be recorded.
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Go Live 360?
 
  You can use these two tricks to go live 360:
@@ -58,13 +78,6 @@ thumbnail: https://thmb.techidaily.com/db54d4e94bdc568181a5a19bde06cb60cc627002a
 1\. In case if you are going to use a camera having Facebook live integration feature then you can find all the guidelines on website of camera vender. Here we are going to consider Insta360 for exploring important details.
 
 2\. Go to “facebook.com/live/create” link and here you will get RTMP server URL along with a valid stream key. This information can be utilized to start live 360 with cameras that do not have auto integration feature. It will also help you to start streaming using simple streaming software.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Go Live 360 with Instagram 360?
 
@@ -106,13 +119,6 @@ thumbnail: https://thmb.techidaily.com/db54d4e94bdc568181a5a19bde06cb60cc627002a
 
  Step 7: Go live 360 on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How does Live 360 looks like?
 
  Live 360 degree videos on facebok have same impact as that of other commonly uploaded 360 video. Users can easily tilt or pan their smartphones to enjoy different viewing angles. Broadcasters, that are using live 360 as their cameras native app will be able to enjoy live reactions and comments from viewers on screen but the effect is same as like normal live streams. Once 360 degree videos are available on Facebook live, viewers can easily download them. If you are using desktop to watch them then simply go to your favourite video post in your group, page or profile. Then expand its view and you will find three dot type icon on your screen. Hit this icon and soon you will be able to download your video to your device. It will get saved as like an equirectangle flattened image.
@@ -129,10 +135,10 @@ thumbnail: https://thmb.techidaily.com/db54d4e94bdc568181a5a19bde06cb60cc627002a
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -150,16 +156,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-leading-the-pack-2023s-8-facebook-movie-downloads-for-2024/"><u>[New] Leading the Pack 2023'S #8 Facebook Movie Downloads for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-ultimate-index-ranked-6-fb-lite-downloads/"><u>[New] Ultimate Index Ranked 6 FB Lite Downloads</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-fb-sounds-unlimited-grab-and-go/"><u>[Updated] 2024 Approved FB Sounds Unlimited Grab & Go</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-discovering-your-customized-youtube-playlist/"><u>[Updated] In 2024, Discovering Your Customized YouTube Playlist</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-priority-tools-critical-6-fb-lite-downloads/"><u>[Updated] In 2024, Priority Tools Critical 6 FB Lite Downloads</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-the-original-pc-word-processor-exclusive-free-access-available/"><u>Download the Original PC Word Processor: Exclusive Free Access Available!</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/enhance-your-viewing-with-ease-utilizing-the-pip-mode-on-netflix/"><u>Enhance Your Viewing with Ease Utilizing the PIP Mode on Netflix</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-unleash-creativity-filming-and-editing-on-the-go-with-a-phone/"><u>In 2024, Unleash Creativity Filming & Editing on the Go with a Phone</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/the-ultimate-glossary-of-youtube-shorts-terms-for-2024/"><u>The Ultimate Glossary of YouTube Shorts Terms for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/thriving-in-the-social-media-jungle-facebooks-essentials-for-2024/"><u>Thriving in the Social Media Jungle Facebook's Essentials for 2024</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/why-are-there-no-wps-buttons-anymore-on-android-phones-a-comprehensive-guide/"><u>Why Are There No WPS Buttons Anymore on Android Phones: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-accelerate-profits-using-the-top-15-facebook-data-analyzers-for-2024/"><u>[New] Accelerate Profits Using the Top 15 Facebook Data Analyzers for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-essential-8-tools-for-quick-subs-to-srt-on-windows-osx-and-more/"><u>[Updated] In 2024, Essential 8 Tools for Quick Subs to SRT on Windows, OSX and More</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-master-the-making-of-spectacular-slideshows-for-your-social-circle/"><u>[Updated] In 2024, Master the Making of Spectacular Slideshows for Your Social Circle</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-streamlining-board-collaboration-a-compreenasion-of-using-whiteboards-on-all-zoom-platforms/"><u>[Updated] In 2024, Streamlining Board Collaboration - A Compreenasion of Using Whiteboards on All Zoom Platforms</u></a></li>
+<li><a href="https://win-blog.techidaily.com/dealing-with-a-broken-msi-ws65-performance-pc-a-comprehensive-guide/"><u>Dealing With a Broken MSI WS65 Performance PC – A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-breaking-through-the-2023-fb-lockdown/"><u>In 2024, Breaking Through The 2023 FB Lockdown</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-cutting-edge-screencasting-harness-the-power-of-visual-storytelling/"><u>In 2024, Cutting Edge Screencasting Harness the Power of Visual Storytelling</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-strategic-planning-for-effective-live-video-production-on-fb/"><u>In 2024, Strategic Planning for Effective Live Video Production on FB</u></a></li>
+<li><a href="https://discover-community.techidaily.com/is-it-possible-to-use-the-seagate-dashboard-on-windows-11-comprehensive-guide-and-alternatives/"><u>Is It Possible to Use the Seagate Dashboard on Windows 11? Comprehensive Guide & Alternatives</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/leading-phones-best-gopro-videos-editing-tools/"><u>Leading Phones' Best GoPro Videos Editing Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/strategies-for-efficiently-configuring-facebooks-instream-ads-for-2024/"><u>Strategies for Efficiently Configuring Facebook's Instream Ads for 2024</u></a></li>
 </ul></div>
 

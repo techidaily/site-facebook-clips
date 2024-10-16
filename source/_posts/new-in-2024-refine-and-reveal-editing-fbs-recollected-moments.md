@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Refine and Reveal  Editing FB's Recollected Moments\""
-date: 2024-08-10T09:31:51.119Z
-updated: 2024-08-11T09:31:51.119Z
+date: 2024-10-14T09:46:54.647Z
+updated: 2024-10-16T06:44:14.320Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://www.lifewire.com/thmb/eSdnWd7UkKDvBuZwRSvQnVkEOKc=/540x405/fi
 
 # How to Edit Facebook Look Back Video
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -34,9 +31,6 @@ thumbnail: https://www.lifewire.com/thmb/eSdnWd7UkKDvBuZwRSvQnVkEOKc=/540x405/fi
 
  The good new is that, Facebook has introduced a new editor now, which lets you choose your favorite images for the video. To edit the Look Back video, simply hit the "Edit" button on the top right corner of the Look Back page. Then un-check the photos and updates you don't want in your video, and check the ones that you want include. Once you're done, click the green "Share Your Movie" button at the top of the page.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/edit-look-back-video.png "edit look back video")
 
  Now you've selected the image you like. But what if the result is still disappointing? Don't worry! Here I'll introduce you a more powerful video editing tool to edit and enrich your Facebook Look Back video. Read on to get more information.
@@ -55,8 +49,12 @@ thumbnail: https://www.lifewire.com/thmb/eSdnWd7UkKDvBuZwRSvQnVkEOKc=/540x405/fi
 * Burn Look Back video to a DVD as a special gift.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Easily Edit Facebook Look Back Video with Filmora
 
 #### 1. Download and import your Look Back video
@@ -69,11 +67,14 @@ thumbnail: https://www.lifewire.com/thmb/eSdnWd7UkKDvBuZwRSvQnVkEOKc=/540x405/fi
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -89,10 +90,14 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
 
@@ -103,12 +108,16 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * Premiere your video on iPhone, iPad, Galaxy, HTC and other mobile devices.
 * Burn to DVD to preserve or share.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -116,11 +125,30 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-twitter-video-series-breakdown-area-format-duration/"><u>[New] 2024 Approved Twitter Video Series Breakdown Area, Format, Duration</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-unveiling-the-most-advanced-websites-for-customizable-text-design/"><u>[New] 2024 Approved Unveiling the Most Advanced Websites for Customizable Text Design</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-how-to-create-square-videos-to-gain-more-likes-on-facebook/"><u>[New] In 2024, How to Create Square Videos to Gain More Likes on Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-streamline-sharing-process-youtube-to-facebook-tips/"><u>[New] In 2024, Streamline Sharing Process YouTube to Facebook Tips</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-step-by-step-guide-signing-up-for-a-new-facebook-profile/"><u>[New] Step-by-Step Guide Signing Up for a New Facebook Profile</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-a-comprehensive-look-editing-and-polishing-yt-videos-via-movie-maker/"><u>[Updated] 2024 Approved A Comprehensive Look Editing and Polishing YT Videos via Movie Maker</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-11-proven-steps-to-amplify-your-fb-video-campaigns/"><u>[Updated] In 2024, 11 Proven Steps to Amplify Your FB Video Campaigns</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/best-stop-motion-apps-for-ios-and-android/"><u>Best Stop Motion Apps for iOS and Android</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-a-found-apple-iphone-14-pro-by-drfone-ios/"><u>In 2024, How To Unlock A Found Apple iPhone 14 Pro?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-precision-in-storyboard-planning/"><u>In 2024, Precision in Storyboard Planning</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-depth-analysis-of-the-latest-apple-iphone-12-top-model-of-its-generation/"><u>In-Depth Analysis of the Latest Apple iPhone 12 - Top Model of Its Generation!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastering-facebook-insights-a-novices-guide-for-2024/"><u>Mastering Facebook Insights A Novice's Guide for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/mastering-snapchat-flipping-videos-backwards-for-2024/"><u>Mastering Snapchat Flipping Videos Backwards for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/troubleshooting-steps-for-graphics-driver-warning-quick-fixes/"><u>Troubleshooting Steps for 'Graphics Driver Warning' - Quick Fixes</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unveiling-the-art-of-digital-cropping-on-websites/"><u>Unveiling the Art of Digital Cropping on Websites</u></a></li>
+</ul></div>
+

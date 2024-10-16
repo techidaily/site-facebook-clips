@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Enriching Your Social Media Footprint  Live Streaming via Wirecast\""
-date: 2024-08-10T09:36:32.275Z
-updated: 2024-08-11T09:36:32.275Z
+date: 2024-10-12T18:36:18.634Z
+updated: 2024-10-15T22:31:02.536Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/0be1e99c17baad20df818e64c74b29c212a06e76b
 
 # How to live stream to facebook with wirecast
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -32,14 +29,21 @@ thumbnail: https://thmb.techidaily.com/0be1e99c17baad20df818e64c74b29c212a06e76b
 
 [For OBS guide check this article >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to set wirecast for facebook live?
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### A. Check bandwidth before going Live
 
 * You’ll need sufficient bandwidth to do this. An upload speed of at least 4-5 mbps is required for live streaming. Before you proceed further, it is better to test the speed of your connection using <www.speedtest.net> or testmy.net from your PC. You’ll probably need to run repetitive tests to ensure that you are getting a consistent upload speed at the required rate.
@@ -53,34 +57,36 @@ thumbnail: https://thmb.techidaily.com/0be1e99c17baad20df818e64c74b29c212a06e76b
 
 ![ well installed ](https://images.wondershare.com/filmora/article-images/well-installed.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  2\. Now it is time to get your content ready for streaming. Open wirecast and arrange your images, cameras, sources and titles in the manner you want to.If you are using wirecast for the first time, you should look for the beginners’ tutorials on how to use the program properly.
 
  3\. After your content is ready, you need to select the destination. You have to find ‘Output’ from the menu bar and select **‘Output Settings’** from it.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Choose output ](https://images.wondershare.com/filmora/article-images/choose-output.jpg)
 
  4\. Then check **‘Facebook Live’** from the **‘Output Destination’** drop down box that has been opened.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![click Destination ](https://images.wondershare.com/filmora/article-images/click-destination.jpg)
 
  5\. You can click **ok** now.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ click ok ](https://images.wondershare.com/filmora/article-images/click-ok.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  6\. Now, you have to select the default encoding according to the bandwidth of your connection.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![default encoding ](https://images.wondershare.com/filmora/article-images/default-encoding.jpg)
 
  7\. Enter the username of your facebook profile and then check **‘Authenticate’**.
@@ -89,9 +95,6 @@ thumbnail: https://thmb.techidaily.com/0be1e99c17baad20df818e64c74b29c212a06e76b
 
  8\. Now, it is time to log in to your facebook account in the pop up browser opened on your screen.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![Log into ](https://images.wondershare.com/filmora/article-images/log-into.jpg)
 
  9\. Put the title description of your video in the designated space, then select the exact page or group and the friends with whom you want to share your live streaming.
@@ -106,13 +109,24 @@ thumbnail: https://thmb.techidaily.com/0be1e99c17baad20df818e64c74b29c212a06e76b
 
 ![finish setting ](https://images.wondershare.com/filmora/article-images/finish-setting.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  12\. Your set up is now absolutely ready to begin broadcasts. Add your content now, and click the stream button to go live on facebook.
 
 ![add your content ](https://images.wondershare.com/filmora/article-images/add-your-content.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Alternative to wirecast
 
  It is no doubt that [wirecast](https://www.telestream.net/wirecast/overview.htm) is an extremely easy-to-use yet efficient program that offers more diverse scene transitions than other similar programs. However, a high performance PC is required to successfully run the program. The price is also quite high for amateur users. As an alternative to wirecast, [OBS Studio](https://tools.techidaily.com/wondershare/filmora/download/) is highly recommended for live streaming on facebook from your computer. Like wirecast, OBS also supports multiple displays at the same time and smart features like the picture-in-picture.
@@ -123,13 +137,18 @@ thumbnail: https://thmb.techidaily.com/0be1e99c17baad20df818e64c74b29c212a06e76b
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -137,3 +156,20 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-navigate-the-social-sphere-10-techniques-for-triumphant-fb-growth/"><u>[New] Navigate the Social Sphere 10 Techniques for Triumphant FB Growth</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-ultimate-list-of-ae-title-enhancement-methods/"><u>[New] Ultimate List of AE Title Enhancement Methods</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-gofundme-campaign-imagery-tips/"><u>2024 Approved GoFundMe Campaign Imagery Tips</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-online-facebook-downloader-mp3/"><u>2024 Approved Online Facebook Downloader MP3</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-unlocking-top-five-transformative-facebook-traits/"><u>2024 Approved Unlocking Top Five Transformative Facebook Traits</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/automatic-youtube-video-transition-tips-for-facebook-users-for-2024/"><u>Automatic YouTube Video Transition Tips for Facebook Users for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/enhance-tv-viewing-with-global-news-and-events-via-fb-live-roku-style/"><u>Enhance TV Viewing with Global News & Events via FB Live, Roku Style</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/formato-de-video-gratuito-para-convertir-mp2-a-mp4-online-con-eficiencia-soluciones-de-movavi/"><u>Formato De Video Gratuito Para Convertir MP2 a MP4 Online Con Eficiencia: Soluciones De Movavi</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-11-to-other-iphone-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 11 to other iPhone devices? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-nubia-red-magic-9-promirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Nubia Red Magic 9 ProMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-top-talents-merging-photography-and-sound-in-videos/"><u>In 2024, Top Talents Merging Photography & Sound in Videos</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-guide-how-to-check-icloud-activation-lock-status-from-your-apple-iphone-se-2022-by-drfone-ios/"><u>New Guide How To Check iCloud Activation Lock Status From Your Apple iPhone SE (2022)</u></a></li>
+</ul></div>
+

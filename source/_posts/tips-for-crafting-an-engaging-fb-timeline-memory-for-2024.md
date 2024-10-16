@@ -1,7 +1,7 @@
 ---
 title: "Tips for Crafting an Engaging FB Timeline Memory for 2024"
-date: 2024-10-07T18:01:05.971Z
-updated: 2024-10-09T21:06:38.165Z
+date: 2024-10-13T10:58:20.801Z
+updated: 2024-10-15T23:34:25.611Z
 tags:
   - ai video
   - ai facebook
@@ -49,10 +49,10 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 * Burn Look Back video to a DVD as a special gift.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Easily Edit Facebook Look Back Video with Filmora
@@ -63,18 +63,18 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -84,20 +84,27 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
 
@@ -109,13 +116,6 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 * Burn to DVD to preserve or share.
 
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
@@ -134,17 +134,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-your-vlogging-game-with-tripod-mastery/"><u>[New] 2024 Approved Elevate Your Vlogging Game with Tripod Mastery</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-essentials-unleashed-8-products-that-are-changing-the-business-landscape/"><u>[New] 2024 Approved Essentials Unleashed 8 Products That Are Changing the Business Landscape</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-unveiling-the-purpose-behind-facebooks-blue-emoji-for-2024/"><u>[New] Unveiling the Purpose Behind Facebook's Blue Emoji for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-youtube-free-conversion-hack-turn-hd-fb-videos-into-high-res-mp4-for-free/"><u>[Updated] 2024 Approved YouTube-Free Conversion Hack Turn HD FB Videos Into High-Res MP4 For Free</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-acoustic-data-recording-sounds-and-speech-for-2024/"><u>[Updated] Acoustic Data Recording Sounds & Speech for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-top-picks-for-free-virtual-conferencing-and-screensharing-software/"><u>[Updated] In 2024, Top Picks for FREE Virtual Conferencing & Screensharing Software</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-mastering-facetune-a-thorough-app-guide/"><u>2024 Approved Mastering Facetune A Thorough App Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-transform-every-moment-top-tasks-to-master-while-listening-to-your-favorite-podcasts/"><u>2024 Approved Transform Every Moment Top Tasks to Master While Listening to Your Favorite Podcasts</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/barefoot-tape-observation-and-supplementary-selections-for-2024/"><u>Barefoot Tape Observation and Supplementary Selections for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/fire-browser-revolution-top-extra-tools-to-streamline-facebook-video-downloads-on-firefox/"><u>Fire-Browser Revolution Top Extra Tools to Streamline Facebook Video Downloads on FireFox</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-motorola-edge-40-neo-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Motorola Edge 40 Neo in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/premium-free-facebook-media-craftsman-suite-for-2024/"><u>Premium Free Facebook Media Craftsman Suite for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-a-guide-to-pinpointing-posted-videos-in-fb-groups/"><u>[New] A Guide to Pinpointing Posted Videos in FB Groups</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-elevate-zoom-audio-clarity-with-strategic-effective-tweaks-for-2024/"><u>[New] Elevate Zoom Audio Clarity with Strategic, Effective Tweaks for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-visionary-graphs-on-upcoming-23-trends/"><u>[New] In 2024, Visionary Graphs on Upcoming '23 Trends</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-from-capture-to-share-the-art-of-live-360-broadcasting-on-fb/"><u>[Updated] 2024 Approved From Capture to Share The Art of Live 360 Broadcasting on FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-how-to-add-music-to-facebook-videos-in-2024/"><u>[Updated] How to Add Music to Facebook Videos, In 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unveiling-facebooks-secrets-30-insider-tricks-for-growth-for-2024/"><u>[Updated] Unveiling Facebook's Secrets 30 Insider Tricks for Growth for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/crafting-vague-scenes-skillful-use-of-gaussian-blur/"><u>Crafting Vague Scenes Skillful Use of Gaussian Blur</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-gifs-to-glam-a-complete-guide-to-creating-emojis-on-telegram-and-whatsapp/"><u>In 2024, GIFs-to-Glam A Complete Guide to Creating Emojis on Telegram & WhatsApp</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/innovative-techniques-for-iphone-data-backup-a-comprehensive-guide/"><u>Innovative Techniques for iPhone Data Backup: A Comprehensive Guide</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/inside-toms-computing-world-precision-hardware-evaluations-and-guides/"><u>Inside Tom's Computing World: Precision Hardware Evaluations and Guides</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/maximizing-social-interaction-with-innovative-fb-slideshow-techniques/"><u>Maximizing Social Interaction with Innovative FB Slideshow Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/pioneering-platform-presence-innovative-square-video-methods-for-2024/"><u>Pioneering Platform Presence Innovative Square Video Methods for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/quick-remedies-to-restore-functionality-of-hp-laptops-stickyunresponsive-buttons/"><u>Quick Remedies to Restore Functionality of HP Laptop's Sticky/Unresponsive Buttons</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-adjustment-of-youtube-vids-for-mac-screen/"><u>Rapid Adjustment of YouTube Vids for Mac Screen</u></a></li>
 </ul></div>
 

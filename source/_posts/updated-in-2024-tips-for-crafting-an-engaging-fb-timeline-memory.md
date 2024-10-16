@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Tips for Crafting an Engaging FB Timeline Memory"
-date: 2024-08-10T09:38:21.956Z
-updated: 2024-08-11T09:38:21.956Z
+date: 2024-10-13T16:29:42.431Z
+updated: 2024-10-16T06:24:14.485Z
 tags:
   - ai video
   - ai facebook
@@ -31,16 +31,10 @@ thumbnail: https://thmb.techidaily.com/0b2657385f18cc859d59520b24816f771e8e749f1
 
  The good new is that, Facebook has introduced a new editor now, which lets you choose your favorite images for the video. To edit the Look Back video, simply hit the "Edit" button on the top right corner of the Look Back page. Then un-check the photos and updates you don't want in your video, and check the ones that you want include. Once you're done, click the green "Share Your Movie" button at the top of the page.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/edit-look-back-video.png "edit look back video")
 
  Now you've selected the image you like. But what if the result is still disappointing? Don't worry! Here I'll introduce you a more powerful video editing tool to edit and enrich your Facebook Look Back video. Read on to get more information.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Powerful Editor to Edit Facebook Look Back Video
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -54,10 +48,6 @@ thumbnail: https://thmb.techidaily.com/0b2657385f18cc859d59520b24816f771e8e749f1
 * Enables you to upload the edit Look Back Video to Facebook instantly.
 * Burn Look Back video to a DVD as a special gift.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ## How to Easily Edit Facebook Look Back Video with Filmora
 
 #### 1. Download and import your Look Back video
@@ -72,6 +62,13 @@ thumbnail: https://thmb.techidaily.com/0b2657385f18cc859d59520b24816f771e8e749f1
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 3. Edit the audio of Look Back video
 
  To adjust the background music of Look Back video, double click the video on the Timeline. In the pop up editing panel, switch to Audio column and change the Speed, Volume, Pitch of the audio file or add the Fade in/out effect as you like.
@@ -80,19 +77,27 @@ thumbnail: https://thmb.techidaily.com/0b2657385f18cc859d59520b24816f771e8e749f1
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
 
@@ -106,8 +111,12 @@ thumbnail: https://thmb.techidaily.com/0b2657385f18cc859d59520b24816f771e8e749f1
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -116,11 +125,29 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-achieve-profitability-with-powerful-facebook-video-marketing-tips/"><u>[New] 2024 Approved Achieve Profitability with Powerful Facebook Video Marketing Tips</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-enhance-audience-reach-share-twitch-videos-on-facebook-for-2024/"><u>[New] Enhance Audience Reach Share Twitch Videos on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-extract-soundtrack-of-fb-events-for-2024/"><u>[New] Extract Soundtrack of FB Events for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-a-step-by-step-roadmap-for-masterful-instagram-photos/"><u>[Updated] 2024 Approved A Step-by-Step Roadmap for Masterful Instagram Photos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-boosting-your-fb-following-top-10-strategies-unveiled/"><u>[Updated] 2024 Approved Boosting Your FB Following Top 10 Strategies Unveiled</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exclusive-gpodc-must-haves/"><u>2024 Approved Exclusive GPodC Must-Haves</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-epson-xp-245-printer-drivers-compatible-with-windows-7-8-and-10/"><u>Download Epson XP-245 Printer Drivers: Compatible with Windows 7, 8 & 10</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/effective-social-crossposting-from-twitch-to-fb-for-2024/"><u>Effective Social Crossposting From Twitch to FB for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/elevate-your-brand-with-these-10-keywords-on-facebook/"><u>Elevate Your Brand with These 10 Keywords on Facebook</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-enhancing-your-content-with-effortlessly-added-youtube-subtitles/"><u>In 2024, Enhancing Your Content with Effortlessly Added YouTube Subtitles</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-the-risks-of-befriending-unknowns-online/"><u>Top 10: The Risks of Befriending Unknowns Online</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-high-ping-and-lag-in-counter-strike-2-cs2-a-step-by-step-guide-for-pc-users/"><u>Troubleshooting High Ping and Lag in Counter-Strike 2 (CS2): A Step-by-Step Guide for PC Users</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unleash-your-ugc-making-memes-and-marks-on-fb/"><u>Unleash Your UGC Making Memes and Marks on FB</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-gif-speed-editors-the-ultimate-online-and-app-roundup/"><u>Updated 2024 Approved GIF Speed Editors The Ultimate Online and App Roundup</u></a></li>
+</ul></div>
+

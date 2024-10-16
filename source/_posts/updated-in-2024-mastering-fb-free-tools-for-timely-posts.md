@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mastering FB  Free Tools for Timely Posts\""
-date: 2024-08-10T09:35:17.118Z
-updated: 2024-08-11T09:35:17.118Z
+date: 2024-10-11T16:33:58.221Z
+updated: 2024-10-15T21:57:48.163Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/42d888d9431637ab1388aeb276d6888b24b9d1d85
 
 # How to Schedule a Post on Your Facebook \[+Free Tools\]
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -96,9 +93,6 @@ Now that you clearly understand the above basics, let’s get back to our main s
 
 Anyone can schedule Facebook posts using their desktops or mobile phones. The procedures involved in both hardware devices are simple if you have a Facebook page.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ## How to schedule a Facebook Post on Desktop
 
 **Step 1: Log into your Facebook page**
@@ -111,10 +105,14 @@ Remember, you can only schedule posts on a business page, Facebook group, fan pa
 
 On the page menu, click “**Publishing Tools”**. If you don’t see it, click the down arrow besides just “**More”** and a drop-down menu will pop up. Then select **Publishing Tools**. This action will open another page will all published posts.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![how to schedule Facebook post step](https://images.wondershare.com/filmora/article-images/schedule-facebook-post-D2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3: Create your post**
 
@@ -124,18 +122,19 @@ Hit “**create”** which is on the top right of your published posts and then 
 
 After creating your post, don’t hit the “Share Now” button immersed in the blue paint. Just above is another “Share Now” button sandwiched between a down arrow and a clock icon. Select the “Schedule” option.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![how to schedule Facebook post step](https://images.wondershare.com/filmora/article-images/schedule-facebook-post-D4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 5: Set date and time**
 
 After clicking “Schedule”, a calendar will pop up for you to select time and date on which your post will be published. Select date, set time and then click "Schedule".
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![how to schedule Facebook post step](https://images.wondershare.com/filmora/article-images/schedule-facebook-post-D5.jpg)
 
 If scheduled successfully, the “Share Now” button will change to “Later”. Now click “Schedule Post” and that’s how to schedule a post on Facebook group or business page.
@@ -143,8 +142,12 @@ If scheduled successfully, the “Share Now” button will change to “Later”
 Hit that “Scheduled Posts” option on your page to see all the scheduled posts.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Schedule a Post on Facebook Mobile?
 
 Whether you are using iPhone or Android phone, you can very easily schedule a post on Facebook in as long as you’ve downloaded the Facebook manager’s app.
@@ -168,8 +171,12 @@ After creating your post, tap “Publishing Options” and from the downward men
 ![how to schedule Facebook post step](https://images.wondershare.com/filmora/article-images/schedule-facebook-post-M4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Turn Off (Reschedule, Edit, or Delete) Scheduled Posts on Facebook
 
 There will always be a reason for you to schedule a post in the morning and not the evening. As the extended support for Windows 7 by Microsoft draws closer (January 14, 2020), hundreds of tech-savvy writers will create and schedule posts related to Windows 7 on Facebook days before the set date.
@@ -190,9 +197,6 @@ While on that page, click “Scheduled Posts” and select the post to reschedul
 
 Hit the down arrow beside the "Edit" button then choose the action you want to take.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![how to edit scheduled Facebook post step](https://images.wondershare.com/filmora/article-images/edit-scheduled-facebook-post-3.jpg)
 
 Option 1: Select “Reschedule” to set a new date and time.
@@ -217,9 +221,6 @@ The numbers of media scheduling tools that can help you triple your posts engage
 
 #### 1. [Buffer](https://buffer.com/)\- For publishing, analyzing and replying
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![shedule Facebook post tool](https://images.wondershare.com/filmora/article-images/buffer-interface.jpg)
 
 Buffer has been voted by majority of social media marketers as the best tool to manage, plan and publish content that engages. If you are looking for a tool to schedule and publish a post on Facebook, Pinterest, Instagram, Twitter and LinkedIn, this is your tool.
@@ -236,10 +237,14 @@ I highly recommend Hootsuite as the free plan allows you to schedule 30 posts on
 
 #### 3. [Zoho](https://www.zoho.com/)\- For monitoring, collaborations, analytics and scheduling posts
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![shedule Facebook post tool](https://images.wondershare.com/filmora/article-images/zoho-interface.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Zoho has been in the market from 1996 and enjoys trust from over 50 million users. To get started, subscribe for the free plan that requires no credit card. This tool is compatible with Facebook, Twitter, Instagram, Pinterest and personal websites and LinkedIn.
 
@@ -256,6 +261,13 @@ The free plan comes with the following features; RSS feed, unlimited scheduling,
 #### 5. [Postfity](https://postfity.com/) – Best for content management, scheduling and analysis
 
 ![shedule Facebook post tool](https://images.wondershare.com/filmora/article-images/postfity-interface.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Postfity allows its users to schedule unlimited posts for multiple social media accounts from one place. With this app, you can schedule Facebook posts, VKontakte publications, Instagram texts and photos, LinkedIn posts and schedule twitter tweets.
 
@@ -291,10 +303,14 @@ Now that how to schedule a post on Facebook is right at your fingertips, It’s 
 
 As you answer these questions, kindly share with us how this article helped you or leave a comment on our social media platforms.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -304,11 +320,31 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-reel-relationships-establishing-a-strong-social-media-presence-with-memes/"><u>[New] Reel Relationships Establishing a Strong Social Media Presence with Memes</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-counteracting-loss-of-live-streams-on-twitch/"><u>[Updated] Counteracting Loss of Live Streams on Twitch</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2023s-facebook-video-grabber-windowsmacosandroid/"><u>2023'S Facebook Video Grabber Windows/macOS/Android</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-drive-engagement-with-free-tools-crafting-powerful-fb-ad-videos/"><u>2024 Approved Drive Engagement with FREE Tools Crafting Powerful FB Ad Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-from-ordinary-to-outstanding-unveiling-the-secrets-of-engaging-biographies/"><u>2024 Approved From Ordinary to Outstanding Unveiling the Secrets of Engaging Biographies</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-kinemasters-ultimate-green-screen-implementation-techniques/"><u>2024 Approved Kinemaster's Ultimate Green Screen Implementation Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-roku-meets-social-media-watching-facebook-live-effortlessly/"><u>2024 Approved Roku Meets Social Media Watching Facebook Live Effortlessly</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-security-victory-making-your-fb-available-again/"><u>2024 Approved Security Victory Making Your FB Available Again</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-nubia-red-magic-8s-pro-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Nubia Red Magic 8S Pro to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/accelerate-your-audience-size-the-best-apps-on-androidiphone-for-2024/"><u>Accelerate Your Audience Size The Best Apps on Android/iPhone for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/adapting-to-the-elements-the-stability-of-electric-cars-in-extreme-weather-conditions/"><u>Adapting to the Elements: The Stability of Electric Cars in Extreme Weather Conditions</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/epic-webcam-connectivity-quests-for-2024/"><u>Epic Webcam Connectivity Quests for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-the-critical-error-in-google-chrome-a-step-by-step-guide/"><u>Fixing the 'Critical Error' In Google Chrome: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-access-full-range-of-groups-shared-media-for-2024/"><u>How to Access Full Range of Group's Shared Media for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-banishing-facebook-broadcasts-from-laptoptablet/"><u>In 2024, Banishing Facebook Broadcasts From Laptop/Tablet</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-navigating-song-rights-on-social-media/"><u>In 2024, Navigating Song Rights on Social Media</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/1728488861043-windows-11/"><u>Windows 11中清理不使用区域的高效解决方案</u></a></li>
+</ul></div>
+

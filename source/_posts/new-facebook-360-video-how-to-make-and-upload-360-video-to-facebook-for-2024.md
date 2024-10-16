@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Facebook 360 Video  How to Make and Upload 360 Video to Facebook for 2024\""
-date: 2024-08-10T09:39:37.223Z
-updated: 2024-08-11T09:39:37.223Z
+date: 2024-10-11T19:58:43.158Z
+updated: 2024-10-16T03:43:24.830Z
 tags:
   - ai video
   - ai facebook
@@ -34,9 +34,6 @@ thumbnail: https://www.lifewire.com/thmb/DR4eAaMw5O8zb4lVyCeKwtCptPY=/540x405/fi
 * [Part 3: How to Upload 360 Video to Facebook](#part3)
 * [Part 4: Facebook 360 Video & Gear VR](#part4)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## What is 360 Degree Video?
 
  Most of the cameras these days are capable enough to capture shoots with 170 degree wide coverage and in case if you want to show the scene behind the camera then it becomes essential to use two 170 degree FOV cameras back to back. Hence, for capturing all six directions in a single footage you may require connecting 6 cameras together while adjusting their focus in different directions. The resultant content is known as 360 degree video. Many smart algorithms have been developed by professionals to get these videos stitched together to develop complete 360 degree content in a single footage. This is something like standing in the centre of a sphere and viewing everything in all directions.
@@ -44,6 +41,13 @@ thumbnail: https://www.lifewire.com/thmb/DR4eAaMw5O8zb4lVyCeKwtCptPY=/540x405/fi
  These 360 degree videos have inspired the concept of virtual reality but these equipments are quite expensive. But as soon as the technology is gaining popularity, chances are to get VR gear at lower price in near future.
 
  So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to make a 360 Degree video on Facebook?
 
@@ -64,8 +68,12 @@ thumbnail: https://www.lifewire.com/thmb/DR4eAaMw5O8zb4lVyCeKwtCptPY=/540x405/fi
  In case if you are using any other device to capture your 360 degree videos then you may need to make manual adjustments for your 360 video formats.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to upload 360 degree videos on Facebook
 
  Uploading 360 video to Facebook is easy, just follow the steps below:
@@ -74,19 +82,25 @@ thumbnail: https://www.lifewire.com/thmb/DR4eAaMw5O8zb4lVyCeKwtCptPY=/540x405/fi
 
  Step 2: Before you hit the publish button on your screen, go to the   **Advanced** tab.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ![Facebook 360 video upload](https://images.wondershare.com/filmora/article-images/facebook-360-video-upload.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
 
@@ -94,9 +108,6 @@ The powerful video editing program for your Windows PC</a>
 
  Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Facebook 360 Video & Gear VR
 
  As now, it is possible to add 360 degree videos on Facebook so people these days are searching for new formats. These 360 degree videos can capture thrills and action from sports games or can show you things that are happening behind the camera. They can also help viewers to explore various beautiful locations throughout the world.
@@ -117,9 +128,6 @@ The powerful video editing program for your Windows PC</a>
 
 **Timeline:** When you are ready to update your own 360 degree videos or wish to go through your earlier updates then visit Timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -128,11 +136,33 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/updated-boost-your-videos-best-editing-apps-for-android-pc-users-for-2024/"><u>[Updated] Boost Your Videos Best Editing Apps for Android, PC Users for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-dialing-in-the-ideal-fb-video-ratio-for-every-post-for-2024/"><u>[Updated] Dialing in the Ideal FB Video Ratio for Every Post for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-facebook-newsletter-the-most-recent-changes-for-2024/"><u>[Updated] Facebook Newsletter - The Most Recent Changes for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-mastering-media-migration-tiktok-directly-to-fb/"><u>[Updated] In 2024, Mastering Media Migration TikTok Directly to FB</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-understanding-the-shift-navigating-posting-in-an-algorithm-world/"><u>[Updated] In 2024, Understanding the Shift Navigating Posting in an Algorithm World</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-music-infused-content-sharing-strategies-for-facebook-for-2024/"><u>[Updated] Music-Infused Content Sharing Strategies for Facebook for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-navigating-facebook-for-video-sharing-tips-for-2024/"><u>[Updated] Navigating Facebook for Video Sharing Tips for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-transforming-media-landscape-an-exclusive-look-at-magix-vpx-for-2024/"><u>[Updated] Transforming Media Landscape An Exclusive Look at Magix VPX for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-legalities-sharing-vids-on-social-media-platforms/"><u>2024 Approved Legalities Sharing Vids on Social Media Platforms</u></a></li>
+<li><a href="https://win11.techidaily.com/directx-12-the-comprehensive-guide-to-system-updates-and-installation/"><u>DirectX 12: The Comprehensive Guide to System Updates & Installation</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/expertise-in-action-leading-youtube-text-to-video-devices-for-2024/"><u>Expertise in Action Leading Youtube Text-to-Video Devices for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-newly-updated-magicard-rio-pro-driver-compatible-with-multiple-windows-os-free-download/"><u>Get the Newly Updated Magicard Rio Pro Driver: Compatible with Multiple Windows OS - Free Download</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/hide-faces-in-photos-efficiently-with-these-tools/"><u>Hide Faces in Photos Efficiently with These Tools</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-htc-u23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/livestream-leaders-guide-elevating-pre-recorded-videos-on-social-media-for-2024/"><u>Livestream Leaders' Guide Elevating Pre-Recorded Videos on Social Media for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/record-call-audio-exchange-contact-details-and-hit-the-pavement-top-tips-from-the-abbyy-experts/"><u>Record Call Audio, Exchange Contact Details & Hit The Pavement: Top Tips From the ABBYY Experts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/step-by-step-tech-livestream-setup-pcmaclaptop-for-fb/"><u>Step-by-Step Tech Livestream Setup (PC/Mac/Laptop) for FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-like-factor-techniques-for-traffic-driving-facebook-content-for-2024/"><u>The Like Factor Techniques for Traffic-Driving Facebook Content for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Meizu 21 Pro | Dr.fone</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking Memories  Facebook Look Back Editing Steps\""
-date: 2024-08-10T09:38:39.568Z
-updated: 2024-08-11T09:38:39.568Z
+date: 2024-10-11T19:34:24.640Z
+updated: 2024-10-16T05:50:12.048Z
 tags:
   - ai video
   - ai facebook
@@ -31,21 +31,12 @@ thumbnail: https://thmb.techidaily.com/9dc3437ed1a0c4e12ecf0fe73c74b8d72b51654a1
 
  The good new is that, Facebook has introduced a new editor now, which lets you choose your favorite images for the video. To edit the Look Back video, simply hit the "Edit" button on the top right corner of the Look Back page. Then un-check the photos and updates you don't want in your video, and check the ones that you want include. Once you're done, click the green "Share Your Movie" button at the top of the page.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/edit-look-back-video.png "edit look back video")
 
  Now you've selected the image you like. But what if the result is still disappointing? Don't worry! Here I'll introduce you a more powerful video editing tool to edit and enrich your Facebook Look Back video. Read on to get more information.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Powerful Editor to Edit Facebook Look Back Video
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### Why Choose [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to edit Facebook Look back video?
@@ -63,13 +54,6 @@ thumbnail: https://thmb.techidaily.com/9dc3437ed1a0c4e12ecf0fe73c74b8d72b51654a1
 
  To edit the Look Back video, you should first download it. Then click "Import" to add it to the video editor, or drag and drop files to the User's Album. It will be displayed in thumbnail in the album and you can preview it on the right viewing window. Then place the Look Back video on the timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
 #### 2. Add texts to the Look Back video
@@ -77,6 +61,13 @@ No advertising on the website.
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -86,18 +77,19 @@ No advertising on the website.
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 5. Save or share the edited Look Back video
@@ -111,7 +103,21 @@ No advertising on the website.
 
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -119,11 +125,30 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-repair-inaccessible-facebook-playback-icon/"><u>[New] 2024 Approved Repair Inaccessible Facebook Playback Icon</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-fb-video-direction-whats-the-right-angle/"><u>[New] In 2024, FB Video Direction What's the Right Angle?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-navigating-social-feed-anomalies-missing-video-ideas/"><u>[New] In 2024, Navigating Social Feed Anomalies Missing Video Ideas</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-tech-tips-swiftly-sending-videos-as-shorts-on-digital-platforms/"><u>[New] Tech Tips Swiftly Sending Videos as Shorts on Digital Platforms</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-15-sensational-tiktok-cooking-challenges-for-your-plate-for-2024/"><u>[Updated] 15 Sensational TikTok Cooking Challenges for Your Plate for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-crafting-the-perfect-sonic-storytelling-on-social-media/"><u>[Updated] In 2024, Crafting the Perfect Sonic Storytelling on Social Media</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-final-cut-editors-toolkit-10-plugin-winners/"><u>[Updated] In 2024, The Final Cut Editor's Toolkit 10 Plugin Winners</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-navigating-pip-functionality-in-apples-browsers/"><u>[Updated] Navigating PIP Functionality in Apple's Browsers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unplugging-pauses-from-social-streams-a-2023-approach-to-fixing-livestream-issues-for-2024/"><u>[Updated] Unplugging Pauses From Social Streams A 2023 Approach to Fixing Livestream Issues for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/elevate-your-social-feed-with-superior-twit-hd-vids-for-2024/"><u>Elevate Your Social Feed with Superior Twit HD Vids for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-tecno-spark-10c-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Tecno Spark 10C Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-samsung-galaxy-m14-5g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Samsung Galaxy M14 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/premium-5-hidden-video-access-tools-for-2024/"><u>Premium 5 Hidden Video Access Tools for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/streammine-group-video-downloads-for-2024/"><u>StreamMine Group Video Downloads for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/surface-synced-type-ready/"><u>Surface Synced, Type Ready!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-fusion-of-style-and-cloud-in-nixplay-iris/"><u>Unveiling the Fusion of Style and Cloud in Nixplay Iris</u></a></li>
+</ul></div>
+

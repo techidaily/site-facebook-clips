@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Discover Unlimited Stories – FREE Extensions & Mobile Marvels\""
-date: 2024-10-05T21:37:32.945Z
-updated: 2024-10-10T02:54:59.954Z
+date: 2024-10-08T19:02:45.732Z
+updated: 2024-10-16T03:16:20.064Z
 tags:
   - ai video
   - ai facebook
@@ -39,9 +39,29 @@ Facebook stories are always short, but you may find some interesting and save th
 
 ## **Part 1: Best Facebook Story Saver Chrome**
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\.  Story Saver
 
 ![facebook story saver - extensions](https://images.wondershare.com/filmora/article-images/facebook-story-saver-extension.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 For those who want a sure-shot way to download Facebook stories on their PC, you can download the Google Chrome extension named Story Saver. Then, you can go to the extensions page and search for Story Saver. **Facebook story saver** not only works on Facebook stories but WhatsApp and Instagram stories as well.
 
@@ -60,16 +80,10 @@ And that's how the **Facebook Story Saver** for **Chrome** extension works.
 ![facebook story saver - extensions](https://images.wondershare.com/filmora/article-images/swift-video-downloader-for-facebook-story-extension.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Just like Story Saver, there is another extension that you can try. Swift Video Downloader for Facebook is the extension's name that will let you view all the stories in a jiffy and download them to watch them again later. Here are the steps that you need to follow:
@@ -83,10 +97,10 @@ Just like Story Saver, there is another extension that you can try. Swift Video 
 **Step 4:** The stories will be saved in your computer's download folder.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\.  Download Facebook Videos
@@ -107,13 +121,6 @@ This is an extension essentially to save Facebook videos, but the best part abou
 
 Apart from the Google Chrome extensions, you can try some online tools to download Facebook videos. Although not many online tools can help you save Facebook stories, this section will cover the best ways to do that.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\.  YouTuFab
 
 ![facebook story saver - online ](https://images.wondershare.com/filmora/article-images/youtufab-facebook-story-downloader-online.jpg)
@@ -125,13 +132,6 @@ YouTuFab is a **Facebook story saver** **online** tool that will let you save Fa
 **Step 2:** Copy the Facebook story link and paste it onto the search bar of YouTuFabe.
 
 **Step 3:** The story will be saved in the download folder.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\.  Facebook Video Downloader
 
@@ -170,10 +170,10 @@ The last tool that you can try is Wondershare Filmora. It will let you record th
 **Step 3:** To start the recorder, click on the red circle, and to finish recording, click on the red circle again.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Part 3: Best Story Saver Apps for Facebook on iPhone and Android**
@@ -184,6 +184,13 @@ Now, let's find out about the best apps to use to save Facebook stories on iPhon
 
 ![facebook story saver - record with filmora ](https://images.wondershare.com/filmora/article-images/friendly-social-browser-facebook-story-saver.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Friendly Social Browser lets you browse through multiple apps, setting you free from downloading numerous apps on your device. One distinctive feature that separates it from all the other similar apps is its' story saver feature.
 
 **Step 1:** Visit Play Store or App Store and download Friendly Social Browser.
@@ -192,28 +199,15 @@ Friendly Social Browser lets you browse through multiple apps, setting you free 
 
 **Step 3:** Tap on any Facebook story and click on the download option.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\.  Save Story for Facebook Stories
 
 ![facebook story saver app on iPhone and Android  ](https://images.wondershare.com/filmora/article-images/save-story-for-facebook-stories-download.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Save Story for Facebook Stories is an excellent tool to download and save Facebook stories. This tool is dedicatedly designed for Facebook users and is pretty easy to use.
@@ -223,13 +217,6 @@ Save Story for Facebook Stories is an excellent tool to download and save Facebo
 **Step 2:** Open the app and log in to Facebook via the app using your credentials.
 
 **Step 3:** Click on the story and hit the download option to save the Facebook story.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\.  Story Saver For Facebook Stories Downloader For FB
 
@@ -249,6 +236,13 @@ Now you know the different ways to save Facebook stories. You can download exten
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -266,24 +260,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-preventing-and-addressing-live-pause-issues-fb/"><u>[New] 2024 Approved Preventing and Addressing Live Pause Issues (FB)</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-propel-your-social-impact-with-strategic-facebook-video-ads/"><u>[New] 2024 Approved Propel Your Social Impact with Strategic Facebook Video Ads</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-the-joyride-collection-for-young-ones/"><u>[New] 2024 Approved The Joyride Collection for Young Ones</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-discover-free-high-quality-facebook-image-and-vfx-makers/"><u>[New] Discover Free, High-Quality Facebook Image & VFX Makers</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-mastering-the-art-of-vector-imagery-best-10-sources/"><u>[New] Mastering the Art of Vector Imagery Best 10 Sources</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-a-concierge-guide-for-monitoring-facebook-livestreams/"><u>[Updated] 2024 Approved A Concierge Guide for Monitoring Facebook Livestreams</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-best-5-video-webcams-equipped-with-microphones-for-2024/"><u>[Updated] Best 5 Video Webcams Equipped With Microphones for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-how-to-take-360-videos-on-iphone-for-facebook-for-2024/"><u>[Updated] How to Take 360 Videos on iPhone for Facebook for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-legal-framework-the-fine-print-for-facebook-video-postings/"><u>[Updated] Legal Framework The Fine Print for Facebook Video Postings</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-top-10-essential-tools-for-pro-ig-video-editors-for-2024/"><u>[Updated] Top 10 Essential Tools for Pro IG Video Editors for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-chrome-extensions-best-5-facebook-video-downloaders-for-chrome/"><u>2024 Approved Chrome Extensions | Best 5 Facebook Video Downloaders for Chrome</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/adepts-compendium-of-fullscreen-insights-in-premiere-pro-for-2024/"><u>Adept's Compendium of Fullscreen Insights in Premiere Pro for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-samsung-galaxy-xcover-6-pro-tactical-edition-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Samsung Galaxy XCover 6 Pro Tactical Edition Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-clickbait-crafting-secrets-to-facebooks-favorites/"><u>In 2024, Clickbait Crafting Secrets to Facebook's Favorites</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-make-a-collage-on-iphone-handy-tips/"><u>In 2024, How to Make a Collage on iPhone [Handy Tips]</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-organize-a-virtual-gathering-using-zoom-on-android/"><u>In 2024, How to Organize a Virtual Gathering Using Zoom on Android</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-xiaomi-civi-3-disney-100th-anniversary-edition-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Xiaomi Civi 3 Disney 100th Anniversary Edition Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/mastering-fb-buzz-creating-share-worthy-content/"><u>Mastering FB Buzz Creating Share-Worthy Content</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/restoring-netflix-functionality-on-roku-troubleshooting-techniques-and-best-practices/"><u>Restoring Netflix Functionality on Roku - Troubleshooting Techniques and Best Practices</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-vibrant-discourse-evaluation-ver-8/"><u>[New] 2024 Approved Vibrant Discourse Evaluation - Ver. 8</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-a-comprehensive-approach-to-live-video-on-websites/"><u>[New] In 2024, A Comprehensive Approach to Live Video on Websites</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-mastery-guide-swiftly-switching-facebook-profile-pictures-for-2024/"><u>[New] Mastery Guide Swiftly Switching Facebook Profile Pictures for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-foundations-of-facebook-video-marketing-for-2024/"><u>[New] The Foundations of Facebook Video Marketing for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-guide-to-disable-facebook-broadcasts-mobiledesktop/"><u>[Updated] In 2024, Guide to Disable Facebook Broadcasts, Mobile/Desktop</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-journey-towards-facebooks-premium-verified-emblem/"><u>[Updated] In 2024, Journey Towards Facebook's Premium Verified Emblem</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/expertenanleitung-mp4-dateien-erfolgreich-zu-vereinen-und-zu-fusionieren/"><u>Expertenanleitung: MP4-Dateien Erfolgreich Zu Vereinen Und Zu Fusionieren</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-poco-m6-pro-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ideal-iphones-for-gamers-which-model-should-you-buy/"><u>Ideal iPhones for Gamers: Which Model Should You Buy?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-7-top-ways-to-resolve-apple-id-not-active-issue-for-apple-iphone-13-pro-drfone-by-drfone-ios/"><u>In 2024, 7 Top Ways To Resolve Apple ID Not Active Issue For Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-how-do-i-explore-every-shared-piece-by-friends-on-messages/"><u>In 2024, How Do I Explore Every Shared Piece by Friends on Messages?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-poco-x5-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Poco X5 to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-supercharge-your-status-top-8-apps-for-boosting-facebook-popularity/"><u>In 2024, Supercharge Your Status Top 8 Apps for Boosting Facebook Popularity</u></a></li>
+<li><a href="https://win-able.techidaily.com/step-by-step-tutorial-on-playing-swf-files-directly-from-your-windows-or-mac-computer/"><u>Step-by-Step Tutorial on Playing SWF Files Directly From Your Windows or Mac Computer</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/transform-your-farm-with-stardews-most-innovative-mods-7-best-for-2024/"><u>Transform Your Farm with Stardew's Most Innovative Mods (7 Best) for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-guide-5-simple-techniques-to-keep-deathloop-running-smoothly-on-pc/"><u>Troubleshooting Guide: 5 Simple Techniques to Keep Deathloop Running Smoothly on PC</u></a></li>
 </ul></div>
 
