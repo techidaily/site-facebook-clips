@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Cutting Through the Facade  Real vs Pretend Facebook Followers\""
-date: 2024-10-13T16:16:50.199Z
-updated: 2024-10-16T10:42:52.463Z
+date: 2024-10-19T00:32:04.018Z
+updated: 2024-10-21T23:29:31.640Z
 tags:
   - ai video
   - ai facebook
@@ -44,6 +44,13 @@ Businesses dealing with fake followers have staff to maintain these accounts to 
 
 Let us now explore the tips and tricks to spot the fake followers on Facebook. We hope you get all the essential nitty-gritties for the purpose after reading this section.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 1: Inspect comment
 
 You can gauge the quality of engagement from the comments on influencers’ content. The manual process shows fake engagement and bots influenced comments as genuine statements. The fake statement and emojis like ‘love it’, ‘beautiful’, and ‘cool pic’ are part of this. The fake followers on Facebook, indulge in these stuff, whereas loyal followers invest time in long genuine comments. The way people fake influence these days, but also detects it due to technology.
@@ -51,10 +58,10 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 2: Calculate Engagement rate
@@ -64,32 +71,25 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 3: Check tendency chart
 
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 4: Locate Follower country
 
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 5: Use third party tools
@@ -123,16 +123,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-advanced-filmmaking-techniques-selecting-top-notch-lenses/"><u>[New] 2024 Approved Advanced Filmmaking Techniques Selecting Top-Notch Lenses</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-facebook-story-viewer-view-facebook-stories-anonymously/"><u>[New] In 2024, Facebook Story Viewer View Facebook Stories Anonymously</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-maintaining-social-standing-on-facebook-10-must-know-secrets-for-2024/"><u>[New] Maintaining Social Standing on Facebook 10 Must-Know Secrets for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-exiting-facebook-livestreams-device-specific-methods/"><u>[Updated] 2024 Approved Exiting Facebook Livestreams Device-Specific Methods</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-invisible-enthusiast-of-facebook-episodes/"><u>[Updated] In 2024, Invisible Enthusiast of Facebook Episodes</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-streamlined-strategies-for-ad-copy-formulation-on-social-platforms-for-2024/"><u>[Updated] Streamlined Strategies for Ad Copy Formulation on Social Platforms for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-from-iphone-15-pro-max-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud from iPhone 15 Pro Max Safe and Legal</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/instagram-stories-screen-capture-made-simple/"><u>Instagram Stories Screen Capture Made Simple</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/lensdirects-anti-blue-light-glasses-with-prescription-in-depth-analysis-and-benefits/"><u>LensDirect's Anti-Blue Light Glasses with Prescription - In-Depth Analysis and Benefits</u></a></li>
-<li><a href="https://common-error.techidaily.com/navigating-system-recovery-how-sfc-and-dism-restore-windows-10-stability/"><u>Navigating System Recovery: How SFC and DISM Restore Windows 10 Stability</u></a></li>
-<li><a href="https://win-able.techidaily.com/step-by-step-fixes-to-combat-lag-issues-during-naraka-bladepoint-sessions/"><u>Step-by-Step Fixes to Combat Lag Issues During Naraka Bladepoint Sessions</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-evaluating-seconds-in-a-20mb-video-file/"><u>[New] Evaluating Seconds in a 20Mb Video File</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-leading-the-digital-frontier-best-oculus-gaming-setups/"><u>[New] In 2024, Leading the Digital Frontier Best Oculus Gaming Setups</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-behind-the-scenes-navigating-multiple-viewpoints-on-facebook-live/"><u>[Updated] 2024 Approved Behind the Scenes Navigating Multiple Viewpoints on Facebook Live</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-methods-to-access-previous-facebook-journeys-mobiledesktop/"><u>[Updated] 2024 Approved Methods to Access Previous Facebook Journeys (Mobile/Desktop)</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-behind-the-smile-the-deeper-story-in-each-snapchat-emoji/"><u>[Updated] Behind the Smile The Deeper Story in Each Snapchat Emoji</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-discover-how-these-15-advanced-facebook-gadgets-boost-e-commerce-sale-traffic-for-2024/"><u>[Updated] Discover How These 15 Advanced Facebook Gadgets Boost E-Commerce Sale Traffic for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/artificial-muse-discovering-the-5-best-writing-helpers/"><u>Artificial Muse: Discovering the 5 Best Writing Helpers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/boosting-fb-video-engagement-and-audience-reach/"><u>Boosting FB Video Engagement & Audience Reach</u></a></li>
+<li><a href="https://win-blog.techidaily.com/hensbergen-jjm-et-al-2018b-fate-of-glyphosate-in-the-environment-a-review-of-occurrence-and-impact-on-aquatic-ecosystems-environ-sci-pollut-res-int-2534-316412/"><u>Hensbergen JJM., Et Al (2018B). Fate of Glyphosate in the Environment: A Review of Occurrence and Impact on Aquatic Ecosystems. Environ Sci Pollut Res Int, 25(34), 31697-31717</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-revolutionizing-channel-openings-discover-free-high-quality-intra-makers/"><u>In 2024, Revolutionizing Channel Openings Discover Free, High-Quality Intra Makers</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-oppo-a79-5g-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Oppo A79 5G Phone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/techniques-to-pull-facebook-videos-easily/"><u>Techniques to Pull Facebook Videos Easily</u></a></li>
 </ul></div>
 

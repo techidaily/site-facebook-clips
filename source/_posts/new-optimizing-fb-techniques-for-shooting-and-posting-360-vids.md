@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Optimizing FB  Techniques for Shooting & Posting 360 Vids\""
-date: 2024-08-10T09:27:59.735Z
-updated: 2024-08-11T09:27:59.735Z
+date: 2024-10-15T16:46:12.180Z
+updated: 2024-10-22T00:10:31.452Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/51b5c705b272c6a35f26cbee92033b8d25124b814
 
 # How to Make and Upload 360 Video to Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -37,9 +34,6 @@ thumbnail: https://thmb.techidaily.com/51b5c705b272c6a35f26cbee92033b8d25124b814
 * [Part 3: How to Upload 360 Video to Facebook](#part3)
 * [Part 4: Facebook 360 Video & Gear VR](#part4)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What is 360 Degree Video?
 
  Most of the cameras these days are capable enough to capture shoots with 170 degree wide coverage and in case if you want to show the scene behind the camera then it becomes essential to use two 170 degree FOV cameras back to back. Hence, for capturing all six directions in a single footage you may require connecting 6 cameras together while adjusting their focus in different directions. The resultant content is known as 360 degree video. Many smart algorithms have been developed by professionals to get these videos stitched together to develop complete 360 degree content in a single footage. This is something like standing in the centre of a sphere and viewing everything in all directions.
@@ -67,8 +61,12 @@ thumbnail: https://thmb.techidaily.com/51b5c705b272c6a35f26cbee92033b8d25124b814
  In case if you are using any other device to capture your 360 degree videos then you may need to make manual adjustments for your 360 video formats.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to upload 360 degree videos on Facebook
 
  Uploading 360 video to Facebook is easy, just follow the steps below:
@@ -81,11 +79,14 @@ thumbnail: https://thmb.techidaily.com/51b5c705b272c6a35f26cbee92033b8d25124b814
 
  Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
 
@@ -94,8 +95,12 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
  Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Facebook 360 Video & Gear VR
 
  As now, it is possible to add 360 degree videos on Facebook so people these days are searching for new formats. These 360 degree videos can capture thrills and action from sports games or can show you things that are happening behind the camera. They can also help viewers to explore various beautiful locations throughout the world.
@@ -116,10 +121,14 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
 **Timeline:** When you are ready to update your own 360 degree videos or wish to go through your earlier updates then visit Timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -127,11 +136,31 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-learn-to-initiate-harmonious-group-conversations-on-skype-for-both-pc-and-mac-users/"><u>[New] Learn to Initiate Harmonious Group Conversations on Skype for Both PC & Mac Users</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-mastering-simulations-on-android-rankings-of-the-best-15/"><u>[New] Mastering Simulations on Android Rankings of the Best 15</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-streaming-beyond-streamlabs-a-comparative-study-for-2024/"><u>[New] Streaming Beyond StreamLabs A Comparative Study for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-transforming-your-profile-into-a-showstopper/"><u>[New] Transforming Your Profile Into a Showstopper</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-maximizing-social-interaction-with-innovative-fb-slideshow-techniques/"><u>[Updated] In 2024, Maximizing Social Interaction with Innovative FB Slideshow Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-which-is-better-for-vloggers-on-facebook-vertical-or-horizontal/"><u>[Updated] In 2024, Which Is Better for Vloggers on Facebook Vertical or Horizontal?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-elevating-social-media-stardom-with-dji-drones-livestreams/"><u>2024 Approved Elevating Social Media Stardom with DJI Drones' Livestreams</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-reveal-the-secrets-top-12-ways-to-bring-non-showing-fb-vids-into-view/"><u>2024 Approved Reveal the Secrets Top 12 Ways to Bring Non-Showing FB Vids Into View</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-stepwise-approach-to-resolve-facebook-story-errors/"><u>2024 Approved Stepwise Approach to Resolve Facebook Story Errors</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/from-bland-to-blockbuster-framing-videos-in-a-square-perspective/"><u>From Bland to Blockbuster Framing Videos in a Square Perspective</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-full-guide-to-unlock-your-oppo-a79-5g-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Oppo A79 5G</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/into-the-code-labyrinastr-facebooks-message-extraction-guide-for-2024/"><u>Into the Code Labyrinastr - Facebook's Message Extraction Guide for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solving-discord-app-failure-effective-troubleshooting-steps/"><u>Solving Discord App Failure: Effective Troubleshooting Steps</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/superior-mac-screen-recorder-options-not-bandicam/"><u>Superior Mac Screen Recorder Options, Not Bandicam</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/the-ultimate-manual-for-minecraft-playbacks-on-mac/"><u>The Ultimate Manual for Minecraft Playbacks on Mac</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unnoticed-errors-in-textual-outputs/"><u>Unnoticed Errors in Textual Outputs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ating-your-channels-ad-based-income-for-2024/"><u>Validating Your Channel’s Ad-Based Income for 2024</u></a></li>
+</ul></div>
+

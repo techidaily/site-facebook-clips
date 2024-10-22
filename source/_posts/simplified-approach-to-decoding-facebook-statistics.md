@@ -1,7 +1,7 @@
 ---
 title: "Simplified Approach to Decoding Facebook Statistics"
-date: 2024-09-28T08:01:44.300Z
-updated: 2024-09-28T23:42:58.303Z
+date: 2024-10-19T02:48:21.854Z
+updated: 2024-10-22T00:45:16.224Z
 tags:
   - ai video
   - ai facebook
@@ -47,13 +47,6 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
 
  By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to Use Facebook Insights for Beginners
 
 ### 1\. Overview
@@ -61,13 +54,6 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
 
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Page Likes
 
@@ -78,13 +64,6 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
  Secondly, the **net likes**, which captures the total new likes on your page subtracted by the total dislikes.
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Post Reach
 
@@ -99,10 +78,16 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Post Promotion
@@ -121,6 +106,20 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. People Analytics
 
  Under the People tab, you get to understand the metrics of like and views of people on your posts. It is further divided into 3 sections.
@@ -133,20 +132,27 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
 
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
  Measuring the success of your Facebook page and posts is now easy with Facebook Insights. Keep a track of your posts and preferences of your audiences and run the campaigns successfully. Follow the above points to use the Facebook Insights without any confusion.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -163,17 +169,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-direct-dissemination-from-tiktok-to-social-networks/"><u>[New] 2024 Approved Direct Dissemination From TikTok to Social Networks</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-explore-the-best-kept-facebook-meme-secrets-for-2024/"><u>[New] Explore The Best-Kept Facebook Meme Secrets for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-googles-platform-unveiled-the-ultimate-guide-to-podcast-postings/"><u>[Updated] Google's Platform Unveiled The Ultimate Guide to Podcast Postings</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-mastering-live-video-recovery-on-facebook-2023-edition-for-2024/"><u>[Updated] Mastering Live Video Recovery on Facebook, 2023 Edition for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/720p-vs-1080p/"><u>720P vs 1080P 画質比較: 解像度の違い、利点・欠点 - 高精細ビデオフォーマットガイド</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/achieve-mastery-in-tracking-fbs-recently-seen-videos-for-2024/"><u>Achieve Mastery in Tracking Fb’s Recently Seen Videos for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-photos-from-motorola-edge-2023-by-fonelab-android-recover-photos/"><u>How to get back lost photos from Motorola Edge 2023.</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/navigating-new-innovations-in-computing-a-guide-by-toms-hardware/"><u>Navigating New Innovations in Computing - A Guide by Tom's Hardware</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/overcoming-invisible-vids-on-facebook-master-the-12-essentials-in-23-for-2024/"><u>Overcoming Invisible Vids on Facebook – Master the 12 Essentials in '23 for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcoming-location-services-problems-in-ios-essential-fixes-for-iphones/"><u>Overcoming Location Services Problems in iOS - Essential Fixes for iPhones</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolved-error-enjoy-payday-2-gameplay-on-personal-computers-today/"><u>Resolved Error - Enjoy Payday 2 Gameplay on Personal Computers Today</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-best-sound-equalizer-settings-for-your-device/"><u>Updated 2024 Approved Best Sound Equalizer Settings For Your Device</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-breaking-into-the-digital-age-mobile-streaming-on-facebook/"><u>[New] 2024 Approved Breaking Into the Digital Age Mobile Streaming on Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-boosting-roi-in-fb-ads-through-animation-techniques/"><u>[New] Boosting ROI in FB Ads Through Animation Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-turn-fb-hd-videos-into-high-quality-mp4-free-online-method-unveiled/"><u>[New] In 2024, Turn FB HD Videos Into High-Quality MP4 – Free Online Method Unveiled</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-understanding-fbs-rules-for-immediate-video-removal/"><u>[New] Understanding FB’s Rules for Immediate Video Removal</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unravel-the-mysteries-of-efficient-story-connectivity/"><u>[Updated] 2024 Approved Unravel the Mysteries of Efficient Story Connectivity</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-insta-videography-dimensions-for-the-ultimate-visual-impact/"><u>[Updated] Insta Videography Dimensions for the Ultimate Visual Impact</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-masterful-archive-of-twitter-animations-at-your-fingertips-for-2024/"><u>[Updated] Masterful Archive of Twitter Animations at Your Fingertips for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/banish-installation-problems-enjoy-playing-minecraft-on-windows-11-today/"><u>Banish Installation Problems: Enjoy Playing Minecraft on Windows 11 Today</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/fb-call-video-logging-essential-steps-in-4-ways-for-2024/"><u>FB Call Video Logging - Essential Steps in 4 Ways for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-extract-and-save-fb-videos-on-pcmac-anywhere/"><u>In 2024, Extract & Save FB Videos on PC/Mac, Anywhere</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-xiaomi-redmi-k70e-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Xiaomi Redmi K70E Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-step-by-step-for-turning-insta-videos-into-mp3s/"><u>In 2024, Step-by-Step for Turning Insta Videos Into MP3s</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-to-running-two-apps-simultaneeusly-on-a-macbook-air/"><u>The Ultimate Guide to Running Two Apps Simultaneeusly on a MacBook Air</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-vn-video-editor-app-review-is-it-worth-downloading-in-2024/"><u>Updated VN Video Editor App Review Is It Worth Downloading, In 2024</u></a></li>
 </ul></div>
 

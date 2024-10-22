@@ -1,7 +1,7 @@
 ---
 title: "\"[New] A Step-by-Step Manual  Swiftly Produce Captions for Facebook Videos\""
-date: 2024-08-10T09:27:32.468Z
-updated: 2024-08-11T09:27:32.468Z
+date: 2024-10-16T23:19:16.298Z
+updated: 2024-10-21T22:16:05.514Z
 tags:
   - ai video
   - ai facebook
@@ -33,9 +33,6 @@ Here are a few simple steps to get things done:
 
 Step 1: First of all, you need to move to your video library. In case if you find this library is empty, then you can add videos to it from your personal device. Simply use the upload button to get your video to which you wish to add subtitles or captions.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ![add caption facebook](https://images.wondershare.com/filmora/article-images/add-caption-video-library.jpg)
 
 Step 2: Now use edit video button it will help you to reach at Captions Tab. It offers two selections: Generate or Upload SRT file.
@@ -59,9 +56,6 @@ SRT caption files are usually supported by almost all popular media players and 
 
 For this case, all you need to do is select the Generate option from tool and captions will be automatically added in US English language format.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![auto generate caption](https://images.wondershare.com/filmora/article-images/auto-generate-caption.jpg)
 
 Now move to the Generate tab where you will find those recently generated captions for your video file. You can edit them as per your preferences. It is possible to pause the video when you are updating your captions.
@@ -70,13 +64,17 @@ It is also possible to delete Facebook video captions with ease. Click the trash
 
 Save all updates when you are satisfied with preview.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Edit Facebook Video Text/Subtitles with Wondershare Filmora
 
 It is convenient to create captions in Facebook with the automatic generate tool or uploading the .SRT file, but if you want your text/subtitle with more cool visual effects, like dialog balloons, headings, we recommend you to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can easily update intro, credit and captions as well as subtitles to your Facebook videos using Wondershare Filmora tool. If you want to make video for business, here comes [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/). It is a simple to use video editor to make short video on Facebook. You can make amazing Facebook videos. Download it now to have a try!
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are few simple to follow steps
@@ -91,6 +89,13 @@ First if all, you need to add your video file to Wondershare Filmora timeline. N
 
 ![filmora text interface 201704](https://images.wondershare.com/filmora/article-images/filmora-text-interface-201704.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Wondershare Filmora will provide you a wide range of templates for selection of text formats. You can pick any of these as per need.
 
 * **Add Titles:**When you are ready to add titles to your Facebook videos, then simply move to Text/Credit Tab on your software tool, here you will find more than 90 text templates. Choose any of these as per your need and finally drag it to title track available on timeline. Soon you will find a text thumbnail on screen with a letter T. Open text editor panel by double clicking on this text thumbnail and now you can start typing you’re your titles. Make selections for animation, color and font type.
@@ -100,20 +105,25 @@ Wondershare Filmora will provide you a wide range of templates for selection of 
 
 Once you have finished the text based editing task then hit the Export option available on software window. It will provide you six different output selection options, edited file can be send to DVD, Vimeo, YouTube, Facebook, Device and one can adjust desired Format for it. If you want to update this edited file on Facebook Page then simply select MP3 as your desired output file format.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![output format](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -121,11 +131,33 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-discover-the-next-wave-of-effective-facebook-ad-techniques/"><u>[New] 2024 Approved Discover the Next Wave of Effective Facebook Ad Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-facebooks-quintessential-video-picks-top-5-list/"><u>[New] Facebook's Quintessential Video Picks - Top 5 List</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-can-you-project-youtube-and-fb-videos-onto-your-hdtv/"><u>[New] In 2024, Can You Project YouTube & FB Videos Onto Your HDTV?</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-navigating-the-legal-landscape-check-tiktok-video-compliance/"><u>[New] Navigating the Legal Landscape Check TikTok Video Compliance</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-navigating-through-facebooks-recent-content-policy-shifts-for-2024/"><u>[New] Navigating Through Facebook's Recent Content Policy Shifts for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-definitive-list-youtubes-premier-making-up-masters/"><u>[New] The Definitive List YouTube's Premier Making-Up Masters</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-how-to-embark-on-the-facebook-experience/"><u>[Updated] 2024 Approved How to Embark on the Facebook Experience</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-legal-side-to-posting-videos-on-digital-platforms-like-fb/"><u>[Updated] The Legal Side to Posting Videos on Digital Platforms Like FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-web-add-on-fb-stories-repository-app-for-2024/"><u>[Updated] Web Add-On FB Stories Repository App for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-use-zoom-in-gmail/"><u>2024 Approved How to Use Zoom in Gmail</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/banking-security-under-threat-chatgpts-potential-risks-explored/"><u>Banking Security Under Threat? ChatGPT’s Potential Risks Explored</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1723808290732-disable-windows-10-updates-easily/"><u>Disable Windows 10 Updates Easily!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-tecno-phantom-v-fold-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Tecno Phantom V Fold Phone without Any Data Loss</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-best-concealed-vids-2023s-selective-8-software-guide/"><u>In 2024, Best Concealed Vids - 2023'S Selective 8 Software Guide</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-from-creator-to-kingmaker-ajays-youtube-revenue-revolution/"><u>In 2024, From Creator to Kingmaker Ajay’s YouTube Revenue Revolution</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-vivo-t2-5g-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Vivo T2 5G FRP</u></a></li>
+<li><a href="https://windows11.techidaily.com/master-the-art-of-3d-painting-with-these-tips/"><u>Master the Art of 3D Painting with These Tips</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/pro-gopro-filming-and-live-sharing-best-practices-for-facebookperiscope/"><u>Pro Gopro Filming and Live Sharing Best Practices for Facebook/Periscope</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722972414484-the-simple-way-to-get-and-install-new-updates-on-your-surface-drivers-today/"><u>The Simple Way to Get & Install New Updates on Your Surface Drivers Today!</u></a></li>
+</ul></div>
+

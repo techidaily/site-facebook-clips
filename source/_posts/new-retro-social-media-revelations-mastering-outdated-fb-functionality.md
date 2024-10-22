@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Retro Social Media Revelations  Mastering Outdated FB Functionality\""
-date: 2024-09-26T11:41:56.383Z
-updated: 2024-09-28T17:42:36.388Z
+date: 2024-10-19T02:06:59.216Z
+updated: 2024-10-21T23:45:51.894Z
 tags:
   - ai video
   - ai facebook
@@ -56,10 +56,10 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -77,10 +77,10 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -102,10 +102,10 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -123,6 +123,13 @@ After visiting the story archive, click on the story you wish to save. Click on 
 **Step 3: Save story**
 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
@@ -146,19 +153,6 @@ Facebook is an excellent platform to interact with your audience, and the story 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -174,19 +168,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-iconic-stock-photographs-meme-lives-and-histories/"><u>[New] Iconic Stock Photographs Meme Lives and Histories</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-spark-conversation-with-personalized-instagram-story-queries/"><u>[New] In 2024, Spark Conversation with Personalized Instagram Story Queries</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-leading-mp4-to-facebook-mover-for-2024/"><u>[New] Leading MP4 to Facebook Mover for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-best-practices-in-video-posting-choosing-correct-orientation/"><u>[Updated] Best Practices in Video Posting – Choosing Correct Orientation</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-from-zero-to-hero-profit-on-reddit-with-no-experience-top-13/"><u>[Updated] From Zero to Hero Profit on Reddit with No Experience (Top 13)</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-flip-the-like-ratio-with-squared-up-social-media-content/"><u>[Updated] In 2024, Flip the Like Ratio with Squared-Up Social Media Content</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-overcoming-invisible-vids-on-facebook-master-the-12-essentials-in-23/"><u>[Updated] In 2024, Overcoming Invisible Vids on Facebook – Master the 12 Essentials in '23</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-resolve-ipadiphone-fb-video-playback-delays/"><u>[Updated] Resolve iPad/iPhone FB Video Playback Delays</u></a></li>
-<li><a href="https://driver-install.techidaily.com/achieve-peak-graphics-quality-with-amd-drivers-on-your-windows-10-pc/"><u>Achieve Peak Graphics Quality with AMD Drivers on Your Windows 10 PC</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/expert-video-grabbing-extras-fb-and-firefox-edition/"><u>Expert Video Grabbing Extras FB & Firefox Edition</u></a></li>
-<li><a href="https://fox-http.techidaily.com/extreme-capture-duo-gopro-hero5-black-versus-hero4-silver-edition/"><u>Extreme Capture Duo GoPro Hero5 Black Versus Hero4 Silver Edition</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-12-mini-to-other-iphone-11-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 12 mini to other iPhone 11 devices? | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/toontech-complete-insight-2024-edition/"><u>ToonTech Complete Insight - 2024 Edition</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-enhancing-video-presentation-utilize-bb-and-lc-techniques-on-facebook/"><u>[New] 2024 Approved Enhancing Video Presentation Utilize BB and LC Techniques on Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-social-stream-snippets-yearly-update/"><u>[New] 2024 Approved Social Stream Snippets, Yearly Update</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-timeless-treasures-accessing-fbs-historic-stories/"><u>[New] 2024 Approved Timeless Treasures Accessing FB's Historic Stories</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-add-link-to-facebook-story-for-free-in-2024/"><u>[New] How to Add Link to Facebook Story for Free, In 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-cutting-edge-drone-footage-for-movies-and-tv/"><u>[New] In 2024, Cutting-Edge Drone Footage for Movies and TV</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-mastering-the-log-4-strategies-to-document-facebook-discussions/"><u>[New] In 2024, Mastering the Log 4 Strategies to Document Facebook Discussions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-can-i-share-videos-on-facebook/"><u>[Updated] Can I Share Videos on Facebook?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-vs-gopro-hero-session-and-polaroid-cube-top-pick-for-filmmakers/"><u>[Updated] In 2024, Vs. GoPro Hero Session & Polaroid Cube Top Pick for Filmmakers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-from-playtime-to-profits-ryan-kajis-youtube-cash-crusade/"><u>2024 Approved From Playtime to Profits Ryan Kaji's YouTube Cash Crusade</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-techniques-to-archive-and-save-video-calls/"><u>2024 Approved Techniques to Archive and Save Video Calls</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Nokia 130 Music | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/get-rid-of-graphics-cards-quickly-on-windows-os/"><u>Get Rid of Graphics Cards Quickly on Windows OS</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-realme-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Realme Contacts An Easy Method Explained.</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-samsung-galaxy-f14-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Samsung Galaxy F14 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
 </ul></div>
 

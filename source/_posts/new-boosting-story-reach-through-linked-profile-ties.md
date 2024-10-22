@@ -1,7 +1,7 @@
 ---
 title: "[New] Boosting Story Reach Through Linked Profile Ties"
-date: 2024-09-22T09:15:30.474Z
-updated: 2024-09-29T08:22:56.723Z
+date: 2024-10-14T21:05:53.026Z
+updated: 2024-10-21T17:37:52.695Z
 tags:
   - ai video
   - ai facebook
@@ -51,9 +51,23 @@ Note: Before we share the steps that you need to follow, please keep in mind tha
 
 ![create Facebook Page story](https://images.wondershare.com/filmora/article-images/create-story-on-facebook-page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** You need to type the website name and, on the top, you will see the link icon. Once you are ready with the website name, click on the link icon. Now can choose some buttons based on what kind of link you have shared. For example, shop now, book now, call now, and so on.
 
 ![add link to Facebook Page story](https://images.wondershare.com/filmora/article-images/add-link-to-facebook-story.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 And that’s it; your story will be added to Facebook Story.
 
@@ -68,15 +82,22 @@ Facebook acquired WhatsApp in February 2014, and since both the apps are connect
 ![add WhatsApp status](https://images.wondershare.com/filmora/article-images/add-whatsapp-status.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3:** On your status page, you can add the link you want people to see. Now, share the link. Once done, right below your My Status, you will see an option “Share to Facebook Story.” To cross-post your WhatsApp status with the link, please click on “Share to Facebook Story.”
 
 ![share WhatsApp status to facebook story](https://images.wondershare.com/filmora/article-images/share-whatsapp-status-to-facebook-story.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4:** You will be redirected to Facebook and asked if you want to share your WhatsApp status as a Facebook story? Click on the share icon, and that’s it.
 
@@ -94,21 +115,7 @@ You will be redirected to the Facebook app. There you will be asked if you want 
 
 ![share youtube video to facebook  story ](https://images.wondershare.com/filmora/article-images/share-youtube-video-link-to-facebook-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 And you will see the Story with YouTube video link at the top of your Story section.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to Add A Swipe Up Link on Facebook Story?
 
@@ -124,29 +131,15 @@ Facebook stories offer another feature, which is known as the Swipe Up Link. On 
 
 ![add link to swipe up button to Facebook story](https://images.wondershare.com/filmora/article-images/add-link-to-swipe-up-button-facebook-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Please note that the swipe option will be visible to your audience only after you have added the link.
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Social Media Video Maker and Editor
@@ -165,6 +158,19 @@ For Win 7 or later (64-bit)
 For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
+
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -187,22 +193,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-professionals-choice-of-best-windows-edits-tools/"><u>[New] 2024 Approved Professionals' Choice of Best Windows Edits Tools</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-boost-creativity-learn-how-to-insert-text-onto-digital-photographs-on-pcmac/"><u>[New] Boost Creativity Learn How to Insert Text Onto Digital Photographs on PC/Mac</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-premium-fb-extra-tools-secure-file-grabber-enhanced-firefox-use-for-2024/"><u>[New] Premium FB Extra Tools Secure File Grabber, Enhanced Firefox Use for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-the-new-wave-on-youtube-and-fb-discover-the-hottest-8-trends/"><u>[New] The New Wave on YouTube & FB Discover the Hottest 8 Trends</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-the-secret-to-swiftly-and-stealthily-purging-messages-on-discord-for-2024/"><u>[New] The Secret to Swiftly and Stealthily Purging Messages on Discord for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-transitioning-visuals-from-android-to-apple-gear/"><u>[New] Transitioning Visuals From Android to Apple Gear</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-unblocking-video-sharing-how-to-solve-fb-chat-issues-for-iphonesandroid/"><u>[New] Unblocking Video Sharing How to Solve FB Chat Issues for iPhones/Android</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-cutting-edge-8-streaming-selectors/"><u>[Updated] 2024 Approved Cutting-Edge 8 Streaming Selectors</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-copyright-confusion-suddenly-no-more-videos/"><u>[Updated] Copyright Confusion Suddenly No More Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-enhanced-mp4-streaming-for-facebook-networks/"><u>[Updated] Enhanced MP4 Streaming for Facebook Networks</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-enhance-engagement-with-squared-up-social-media-content/"><u>2024 Approved Enhance Engagement with Squared-Up Social Media Content</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-vivo-s17t-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Vivo S17t by Name | Dr.fone</u></a></li>
-<li><a href="https://win-forum.techidaily.com/connecting-the-world-online-a-guide-to-facebook-twitter-instagram-and-youtube/"><u>Connecting the World Online: A Guide to Facebook, Twitter, Instagram & YouTube</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-wacom-drivers-swiftly-step-by-step-instructions-for-quick-installation/"><u>Download Wacom Drivers Swiftly - Step-by-Step Instructions for Quick Installation</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-lenovo-thinkphone-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Lenovo ThinkPhone to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/keep-up-with-friends-moments-best-live-stream-tools-revealed/"><u>Keep Up With Friends' Moments Best Live-Stream Tools Revealed</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1723262396287-revive-the-classics-with-modern-tech-ayaneos-retail-ready-amd-am01-mini-pc-is-here/"><u>Revive the Classics with Modern Tech! Ayaneo's Retail-Ready, AMD AM01 Mini PC Is Here</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-apowersoft-a-complete-guide-to-screen-recording/"><u>[New] In 2024, Apowersoft A Complete Guide to Screen Recording</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-leveraging-your-roku-setup-for-exclusive-fb-live-content/"><u>[New] In 2024, Leveraging Your Roku Setup for Exclusive FB Live Content</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-step-by-step-perfecting-fbs-360-streams/"><u>[Updated] 2024 Approved Step-by-Step Perfecting FB's 360 Streams</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-ensuring-privacy-4-steps-to-safely-log-fb-calls/"><u>[Updated] Ensuring Privacy 4 Steps to Safely Log FB Calls</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-optimizing-your-fb-video-ads-20-best-tips-for-success/"><u>[Updated] In 2024, Optimizing Your FB Video Ads 20 Best Tips for Success</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-step-by-step-guide-to-uploading-immersive-photos-via-iosandroid/"><u>[Updated] In 2024, Step-by-Step Guide to Uploading Immersive Photos via iOS/Android</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unveiling-secrets-to-broadcast-recordings-on-facebook-live/"><u>[Updated] In 2024, Unveiling Secrets to Broadcast Recordings on Facebook Live</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-social-media-savvy-capturing-spherical-photos-with-iphone/"><u>[Updated] Social Media Savvy Capturing Spherical Photos with iPhone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/a-parents-guide-to-top-9-playful-preschool-sites-with-no-cost/"><u>A Parent's Guide to Top 9 Playful Preschool Sites with No Cost</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/djis-aerial-fleet-standard-aviators-professional-pilots-4k-pros/"><u>DJI's Aerial Fleet Standard Aviators, Professional Pilots, 4K Pros</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-poco-m6-pro-5g-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Poco M6 Pro 5G Data? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-facebook-live-video-downloaders-how-to-download-live-videos/"><u>In 2024, Facebook Live Video Downloaders | How to Download Live Videos?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-how-to-add-descriptive-texts-to-your-youtube-videos-for-2024/"><u>Learn How to Add Descriptive Texts to Your YouTube Videos for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/price-scale-for-shooting-tunes-in-visual-narratives/"><u>Price Scale for Shooting Tunes in Visual Narratives</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/step-by-step-moving-from-windows-10-home-to-pro/"><u>Step-by-Step: Moving From Windows 10 Home to Pro</u></a></li>
+<li><a href="https://os-tips.techidaily.com/ultimate-guide-to-the-multi-port-maggo-charger-by-anker-power-up-with-qi-usb-c/"><u>Ultimate Guide to the Multi-Port MagGo Charger by Anker - Power Up with Qi, USB-C</u></a></li>
 </ul></div>
 

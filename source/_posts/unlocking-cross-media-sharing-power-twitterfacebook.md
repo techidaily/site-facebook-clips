@@ -1,7 +1,7 @@
 ---
 title: "\"Unlocking Cross-Media Sharing Power (Twitter/Facebook)\""
-date: 2024-10-12T23:50:29.047Z
-updated: 2024-10-15T16:15:35.598Z
+date: 2024-10-17T22:02:35.750Z
+updated: 2024-10-21T16:19:31.642Z
 tags:
   - ai video
   - ai facebook
@@ -39,38 +39,32 @@ thumbnail: https://thmb.techidaily.com/5c5beff306decd9e31c3216a57ffb320c5012e171
 
 ![post tweet on facebook 1](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Once you login to your Twitter account, tap on your profile picture on the top right corner of the screen, next to the ‘Tweet' tab.
 2. Now, from the dropdown list shown to you, click ‘Settings and privacy' and then open the ‘Apps' tab from the left panel.
 
 ![post tweet on facebook 2](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Now, hit the ‘Connect to Facebook' option under Applications. You will be prompted with a popup to log in, in case you haven't logged in to Facebook on the same browser. Enter the details and log in.
 
 ![post tweet on facebook 3](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Upon being prompted for permission from Twitter to access your Facebook information, click ‘Continue as \[Facebook Profile/user name\]' to continue.
 
 ![post tweet on facebook 4](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-4.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. Now you need to configure the ‘Select the privacy settings' to decide who is going to receive your Twitter updates on Facebook. When you post Tweets to Facebook, by default your friends will get to see them.
 2. Now, you need to tap ‘OK' and finish the process. The Tweets and Retweets will be posted to your Facebook with your Twitter username, though the replies for the Tweets won't be posted in Facebook.
@@ -180,10 +174,10 @@ thumbnail: https://thmb.techidaily.com/5c5beff306decd9e31c3216a57ffb320c5012e171
 * Enterprise - $1500/month/10 users/50 profiles
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Wrapping Up
@@ -193,10 +187,10 @@ thumbnail: https://thmb.techidaily.com/5c5beff306decd9e31c3216a57ffb320c5012e171
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -214,17 +208,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-streamlining-success-strategies-for-daily-vlog-authenticity/"><u>[New] 2024 Approved Streamlining Success Strategies for Daily Vlog Authenticity</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ssessing-mr-beasts-monetary-trajectory/"><u>[New] Assessing Mr. Beast’s Monetary Trajectory</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-a-sincere-look-at-high-quality-audio-streaming-recordcast/"><u>[Updated] 2024 Approved A Sincere Look at High-Quality Audio Streaming RecordCast</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-achieving-peak-audience-interaction-with-wirecast-on-facebook/"><u>[Updated] 2024 Approved Achieving Peak Audience Interaction with Wirecast on Facebook</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-increase-your-fb-popularity-top-ten-seo-best-practices/"><u>[Updated] 2024 Approved Increase Your FB Popularity Top Ten SEO Best Practices</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-fb-sensation-strategies-for-marketers-and-influencers-for-2024/"><u>[Updated] Fb Sensation Strategies for Marketers and Influencers for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-mastering-facebook-live-with-dji-drones-a-step-by-step-guide-for-2024/"><u>[Updated] Mastering Facebook Live with DJI Drones A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-start-saving-with-reddit-today-13-easy-and-effective-strategies-no-experience/"><u>2024 Approved Start Saving with Reddit Today - 13 Easy & Effective Strategies (No Experience)</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/computers-quietly-shutdown-on-win11/"><u>Computers Quietly Shutdown on Win11</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-vivo-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Vivo on Windows??</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-your-roadmap-to-sourcing-videos-on-social-media-fb-edition/"><u>In 2024, Your Roadmap to Sourcing Videos on Social Media (FB Edition)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ing-income-a-streamers-guide-to-earning-for-2024/"><u>Yielding Income A Streamer's Guide to Earning for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-exclusive-access-to-facebook-beats/"><u>[New] 2024 Approved Exclusive Access to Facebook Beats</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-rescue-absent-watch-thumbnail-icon/"><u>[New] In 2024, Rescue Absent Watch Thumbnail Icon</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-websites-aimed-at-enhancing-text-appearance/"><u>[New] Top Websites Aimed at Enhancing Text Appearance</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-mastering-the-self-play-feature-in-facebook-videos/"><u>[Updated] In 2024, Mastering the Self-Play Feature in Facebook Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-fix-mobile-device-errors-fb-vids-not-loading/"><u>2024 Approved Fix Mobile Device Errors FB Vids Not Loading</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-turn-social-media-audio-into-mp3/"><u>2024 Approved Turn Social Media Audio Into MP3</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/console-clash-evaluating-the-pros-and-cons-of-nintendo-switch-lite-and-oled/"><u>Console Clash: Evaluating the Pros & Cons of Nintendo Switch Lite and OLED</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/crafting-captivating-captions-a-triad-of-tips-for-insta-videos-for-2024/"><u>Crafting Captivating Captions A Triad of Tips for Insta Videos for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/diving-deep-into-game-details-with-roblox-zooming/"><u>Diving Deep Into Game Details with Roblox Zooming</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-xiaomi-civi-3-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Xiaomi Civi 3 Location Settings | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/lgs-monitor-marvel-an-exhaustive-look-at-ultra-clear-technology/"><u>LG's Monitor Marvel An Exhaustive Look at Ultra-Clear Technology</u></a></li>
+<li><a href="https://fox-links.techidaily.com/yuneec-typhoon-h-deep-dive-aerial-expert-review/"><u>Yuneec Typhoon H Deep Dive Aerial Expert Review</u></a></li>
 </ul></div>
 
