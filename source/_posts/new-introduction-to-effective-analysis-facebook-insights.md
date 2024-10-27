@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Introduction to Effective Analysis  Facebook Insights\""
-date: 2024-08-10T09:25:00.919Z
-updated: 2024-08-11T09:25:00.919Z
+date: 2024-10-24T21:50:31.550Z
+updated: 2024-10-27T19:50:50.618Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/f35b950c7a8f4cdd1989c1e04c70b04dbfa6ce641
 
 # Facebook Insights: How to Use it for Beginners
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -38,9 +35,6 @@ thumbnail: https://thmb.techidaily.com/f35b950c7a8f4cdd1989c1e04c70b04dbfa6ce641
 * [**Part 2: Where to Find Facebook Insights**](#part2)
 * [**Part 3: How to Use Facebook Insights for Beginners**](#part3)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: What is Facebook Insights
 
  A free analytical tool offered by Facebook, the [Facebook Insights](https://www.facebook.com/business/news/audience-insights) helps you in understanding and analysing your posts, your fans, and your page’s performance as a whole. From understanding which of your posts are getting more likes, comments, and shares to knowing the reach of your posts and the increasing fan count, the Facebook Insights can guide you through the way.
@@ -53,10 +47,20 @@ thumbnail: https://thmb.techidaily.com/f35b950c7a8f4cdd1989c1e04c70b04dbfa6ce641
 
  By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: How to Use Facebook Insights for Beginners
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Overview
 
@@ -65,8 +69,12 @@ thumbnail: https://thmb.techidaily.com/f35b950c7a8f4cdd1989c1e04c70b04dbfa6ce641
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2\. Page Likes
 
  There are three basic metrics in the likes section.
@@ -77,9 +85,6 @@ thumbnail: https://thmb.techidaily.com/f35b950c7a8f4cdd1989c1e04c70b04dbfa6ce641
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. Post Reach
 
  The Post Reach helps you to understand how many people viewed your posts and how they interacted or responded to it. It is divided into 4 prime metrics. The Post Reach shows you the number of people who were exposed to a particular post. It is further broken into paid and organic reach.
@@ -90,14 +95,31 @@ thumbnail: https://thmb.techidaily.com/f35b950c7a8f4cdd1989c1e04c70b04dbfa6ce641
 
  In Hide, Report as Spam, and Unlikes, you may check the negative people count on your page. When the negative engagement of the people is more, lesser people can view your post in future.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Video Analytics
 
@@ -111,6 +133,13 @@ thumbnail: https://thmb.techidaily.com/f35b950c7a8f4cdd1989c1e04c70b04dbfa6ce641
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. People Analytics
 
  Under the People tab, you get to understand the metrics of like and views of people on your posts. It is further divided into 3 sections.
@@ -121,14 +150,8 @@ thumbnail: https://thmb.techidaily.com/f35b950c7a8f4cdd1989c1e04c70b04dbfa6ce641
 
  The **People Reached tab** shows the number of people who viewed your post by demographics. You can analyse if the right people, location, and age group are targeted or you need to make corrections.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
  Measuring the success of your Facebook page and posts is now easy with Facebook Insights. Keep a track of your posts and preferences of your audiences and run the campaigns successfully. Follow the above points to use the Facebook Insights without any confusion.
@@ -143,11 +166,26 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-converting-ephemeral-content-fb-messenger-video-secrets-revealed-for-2024/"><u>[New] Converting Ephemeral Content FB Messenger Video Secrets Revealed for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-creative-edge-pushing-boundaries-in-photography/"><u>[Updated] 2024 Approved The Creative Edge Pushing Boundaries in Photography</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-breaking-down-facebooks-latest-developments/"><u>[Updated] Breaking Down Facebook's Latest Developments</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-social-media-mastery-embedding-twitch-streams-on-fb/"><u>[Updated] In 2024, Social Media Mastery Embedding Twitch Streams on FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-locate-and-watch-vintage-facebook-moments/"><u>[Updated] Locate and Watch Vintage Facebook Moments</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-restoring-correct-self-image-amidst-message-distortion/"><u>[Updated] Restoring Correct Self-Image Amidst Message Distortion</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/audio-interface-innovations-for-optimal-podcasting/"><u>Audio Interface Innovations for Optimal Podcasting</u></a></li>
+<li><a href="https://program-issues.techidaily.com/no-more-black-screens-repairing-fallout-4-graphics-glitches-easily/"><u>No More Black Screens: Repairing Fallout 4 Graphics Glitches Easily</u></a></li>
+<li><a href="https://program-issues.techidaily.com/no-more-interruptions-solving-fifa-21-game-crashes-on-desktop-computers-guide/"><u>No More Interruptions: Solving FIFA 21 Game Crashes on Desktop Computers [Guide]</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/picart-tips-for-perfect-background-removal-for-2024/"><u>PicArt Tips for Perfect Background Removal for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/secrets-to-exposing-videos-in-the-news-feed/"><u>Secrets to Exposing Videos in the News Feed</u></a></li>
+<li><a href="https://win11.techidaily.com/workarounds-for-fixed-energy-mode-switches-in-win11/"><u>Workarounds for Fixed Energy Mode Switches in Win11</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "How to Create Facebook Video Ads with FREE Video Creation Kit for 2024"
-date: 2024-08-10T09:16:39.809Z
-updated: 2024-08-11T09:16:39.809Z
+date: 2024-10-23T17:35:57.755Z
+updated: 2024-10-27T20:34:22.604Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/6283ff7f0ec530727c4f03db2aa9125ca35be5851
 
 # How to Create Facebook Video Ads with FREE Video Creation Kit?
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -38,9 +35,6 @@ If you have little to no experience with video ads, don’t feel stressed. We’
 
 Wondershare Filmora is one of the [best video editing software](https://tools.techidaily.com/wondershare/filmora/download/) for making and editing social media videos sharing on YouTube, Facebook, or Instagram. It features lots of effects, transitions, templates and elements for creating video with fun. You can create videos in different aspect ratio such as 1:1, 9:16, 16:9, 4:3 or [customize the aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/) as you like.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Well, although other social media platforms are gaining popularity, Facebook remains the top of the pops, and has [over 1.5 billion daily users](https://newsroom.fb.com/company-info/). Whatever your reason for needing a video ad, you can’t go wrong broadcasting it to this kind of audience.
@@ -55,9 +49,6 @@ Below is the detailed step by step tutorial about how to create video ads in Vid
 
 You’ll need to start in [Ads Manager](https://www.facebook.com/business/help/282701548912119), which is connected with your Facebook account and can be found on your home page in the left menu.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![where to find Facebook Ads Manager](https://images.wondershare.com/filmora/article-images/facebook-ads-manager.jpg)
 
 Click on the   **Ads**  tab, and the **Create** button to get started. You can’t miss it - it’s **bright green**! You’ll be asked if you want to choose Guided Creation or Quick Creation. Either way is pretty easy to do, and you can experiment with both when you begin to see which works best for you.
@@ -101,9 +92,6 @@ Go to the **Media** section and now you can upload up to 10 images or videos and
 
 Once you’ve begun to create your vid, you’ll find a button under the **Media** tab. Click Add Image and a window will open for you to select images - you can choose from the images on your account, your particular Facebook page you’re creating the ad for, your Instagram, or upload stock images.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add Facebook ads image assets](https://images.wondershare.com/filmora/article-images/add-image-assets.jpg)
 
 When adding images to media, remember to choose images that are the same size and orientation. This will make your life easier and your ad look more appealing!
@@ -144,16 +132,10 @@ From here, you can upload your own images to fill the placeholders that the temp
 
 You can also add your own logo, and if you’re feeling inspired or want to convey a particular message, choose a sticker to put on your vid!
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![video creation kit  stickers](https://images.wondershare.com/filmora/article-images/video-creation-kit-stickers.jpg)
 
 You can also **add text** on this screen and adjust the text color, font and positon based on your needs.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![add text on video creation kit](https://images.wondershare.com/filmora/article-images/add-text-on-video-creation-kit.jpg)
 
 Once you click on **Use Video**, and it will start creating it for you in the background.
@@ -161,8 +143,12 @@ Once you click on **Use Video**, and it will start creating it for you in the ba
 You’ll be sent back to the original page where you can add text and links, and once you click on **Confirm**, your video ad will be ready!
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Tips & Tricks to Consider when creating video ads for Facebook
 
 If you’ve never made a video ad using the Facebook Video Creation Kit before, there are some things that you should consider when creating your masterpiece:
@@ -187,6 +173,13 @@ Don’t fill the first seconds of your video with fluff, because if someone isn�
 
 Going over 15 seconds means that the amount of completed views is certainly going to be less. Pack as much as you can into 15 seconds. Remember - your viewer is likely to have many things vying for their attention - if you can hold onto it for 15 seconds, that’s success!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Bonus: Why you should place Video Ads on Facebook?
 
 As we said before, Facebook has billions daily users, and here are just a few reasons to start using this as a platform to get your videos out there:
@@ -206,24 +199,39 @@ This is great for **promoting products and services, introducing new businesses 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 If you aren’t busy creating your own video ad right now, you’re missing out! Facebook is a fantastic platform, and video is an amazing tool for reaching those millions of people online. If the stats haven’t convinced you, just give it a try - you should notice the difference in engagement immediately.
 
 Video has become the go-to tool for advertising, and using the Facebook Video Creation Kit is a quick, easy, and quite fun way to put together something appealing and inviting, even if you know nothing about video editing. What are you waiting for? Head over to your Facebook page and try it out!
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -232,5 +240,22 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-conquering-facebook-audiences-live-stream-excellence-with-wirecast/"><u>[New] 2024 Approved Conquering Facebook Audiences Live Stream Excellence with Wirecast</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-maximizing-your-investment-high-roi-tactics-for-fb-animatons/"><u>[New] 2024 Approved Maximizing Your Investment High-ROI Tactics for FB Animatons</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-undisclosed-browsing-of-fb-stories/"><u>[New] 2024 Approved Undisclosed Browsing of FB Stories</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-carryminatis-income-evolution-with-ajey-nagar/"><u>[New] CarryMinati's Income Evolution with Ajey Nagar</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-find-the-forgotten-top-10-innovative-facebook-memes/"><u>[New] In 2024, Find the Forgotten Top 10 Innovative Facebook Memes</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-perfecting-photography-with-phantoms-retrograde-technique/"><u>[New] In 2024, Perfecting Photography with Phantom's Retrograde Technique</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-music-on-the-move-top-10-vids-dominating-fb-feed/"><u>[Updated] 2024 Approved Music on the Move Top 10 Vids Dominating FB Feed</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-reinstate-your-airdrop-linkages-simple-fixes-for-iosmacos-issues/"><u>2024 Approved Reinstate Your AirDrop Linkages Simple Fixes for iOS/macOS Issues</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-art-of-facebook-video-coverage-standout-tips-and-tricks/"><u>2024 Approved The Art of Facebook Video Coverage Standout Tips & Tricks</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-tune-into-the-beats-with-these-free-online-scanners/"><u>2024 Approved Tune Into the Beats with These Free Online Scanners</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-crafting-engaging-facebook-reels-the-making-process-explained/"><u>In 2024, Crafting Engaging Facebook Reels The Making Process Explained</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/master-your-hashtags-the-path-to-6-figure-youtube-success/"><u>Master Your Hashtags The Path to 6-Figure Youtube Success</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/revive-your-deleted-drives-elite-partition-recovery-solutions-explored/"><u>Revive Your Deleted Drives: Elite Partition Recovery Solutions Explored</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-full-spectrum-alliance-an-mcn-decision-blueprint-for-2024/"><u>The Full Spectrum Alliance An MCN Decision Blueprint for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/toutes-les-etapes-pour-transformer-un-fichier-audio-rom-en-format-mp3-sans-frais-guide-de-movavi/"><u>Toutes Les Étapes Pour Transformer Un Fichier Audio ROM en Format MP3 Sans Frais - Guide De Movavi</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unleash the Power of Your Devices for Effective FB Streaming\""
-date: 2024-08-10T09:19:40.203Z
-updated: 2024-08-11T09:19:40.203Z
+date: 2024-10-25T17:56:14.730Z
+updated: 2024-10-27T16:04:50.754Z
 tags:
   - ai video
   - ai facebook
@@ -38,9 +38,6 @@ Here is the step by step guide to go live from PC to facebook with OBS
 
 Step 1: Make your scenes perfectly ready before starting the actual streaming process.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![  scenes](https://images.wondershare.com/filmora/article-images/scenes.jpg)
 
 Step 2: Now you need to add sources to the scenes.
@@ -53,9 +50,6 @@ Step 3: It is possible to include windows capture, audio input and webcam as per
 
 Step 4: Prefer to use default settings for source and then press OK.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![default  ](<https://images.wondershare.com/filmora/article-images/default> .jpg)
 
 Step 5: Once you have done settings for all sources then they must be adjusted on screen in right order.
@@ -64,35 +58,30 @@ Step 5: Once you have done settings for all sources then they must be adjusted o
 
 Step 6: You also need to arrange the capture size for your videos. Adjust the right video size.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ video size](https://images.wondershare.com/filmora/article-images/video-size.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## B. Stream setting according to Facebook
 
 Once you are done with Part A then it is time to follow the guidelines as below:
 
 Step 1: First of all you need to go to the settings.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![setting ](https://images.wondershare.com/filmora/article-images/setting.jpg)
 
 Step 2: Now adjust the bit rate, it must be kept below 4000 Kbps and then choose your preferred recording format.
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ bitrate ](https://images.wondershare.com/filmora/article-images/bitrate.jpg)
 
 Step 3: Make settings for resolution as well as FPS. The desired maximum resolution level is 720p or 1280x720 whereas frame rate must be kept at 30 fps.
 
 ![resolution ](https://images.wondershare.com/filmora/article-images/resolution.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 4: Now you need to visit the facebook page and then click on the video, go to publishing tools and then from top right corner hit +Live option.
 
@@ -100,39 +89,26 @@ Step 4: Now you need to visit the facebook page and then click on the video, go 
 
 Step 5: It is time to move to the ‘create live video’ page. You have to copy the stream key from the specified location. Prefer to keep this page open.
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![create ](https://images.wondershare.com/filmora/article-images/create.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 6: Now come back to your OBS settings page and choose stream option. From list of services, prefer to choose Facebook Live option and then simply paste the stream key in the specified field on your screen.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![service ](https://images.wondershare.com/filmora/article-images/service.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## C. Preview and Test your before go live
 
 Step 1: It is time to hit the button “Start Streaming”.
@@ -141,10 +117,14 @@ Step 1: It is time to hit the button “Start Streaming”.
 
 Step 2: Now move back to your facebook page and then choose to preview.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![click preview ](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 3: It is time to add your title as per preferences, make selection for your targeted audience and once you have finished all settings and testing process then hit button “Go Live”.
 
@@ -156,7 +136,27 @@ Step 4: Once your procedure for live streaming is complete then you are free to 
 
 ![ End Live Video](https://images.wondershare.com/filmora/article-images/end-live-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 5: This is all about how to live stream your videos over facebook directly from your computer. Hope you will enjoy streaming a new impressive video soon!
+
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Video tutorial
 
@@ -178,8 +178,6 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
@@ -187,5 +185,20 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-preventing-social-media-platforms-intrusive-ads/"><u>[New] 2024 Approved Preventing Social Media Platform's Intrusive Ads</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-social-snapshot-saver-tool/"><u>[New] 2024 Approved Social Snapshot Saver Tool</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-accurate-mac-photography-mastery-of-five-proven-snapshot-ways/"><u>[New] Accurate Mac Photography Mastery of Five Proven Snapshot Ways</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-streamlined-steps-for-documenting-google-voice-talks/"><u>[New] In 2024, Streamlined Steps for Documenting Google Voice Talks</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-complete-checklist-for-recording-fb-chats-and-meets/"><u>[New] The Complete Checklist for Recording FB Chats and Meets</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-guide-to-metaverse-laughter/"><u>[Updated] The Ultimate Guide to Metaverse Laughter</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-xiaomi-civi-3-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Xiaomi Civi 3 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/advanced-mac-video-logger-for-2024/"><u>Advanced Mac Video Logger for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/copying-dvds-flawlessly-on-your-mac-discover-the-best-four-techniques-for-true-11-replication/"><u>Copying DVDs Flawlessly on Your Mac: Discover the Best Four Techniques for True 1:1 Replication</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/core-framework-principles-for-engaging-online-promotions-for-2024/"><u>Core Framework Principles for Engaging Online Promotions for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-transform-your-fb-advertising-simplify-with-a-free-toolkit/"><u>In 2024, Transform Your FB Advertising Simplify with a Free Toolkit</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
+</ul></div>
 

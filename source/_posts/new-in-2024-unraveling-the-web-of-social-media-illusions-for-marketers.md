@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Unraveling the Web of Social Media Illusions for Marketers"
-date: 2024-10-18T22:19:49.222Z
-updated: 2024-10-22T00:24:30.986Z
+date: 2024-10-22T18:12:06.148Z
+updated: 2024-10-27T18:02:34.567Z
 tags:
   - ai video
   - ai facebook
@@ -50,39 +50,32 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 2: Calculate Engagement rate
 
 [Engagement rate](https://trackmaven.com/marketing-dictionary/engagement-rate/) is nothing but the average number of engagements received by influencer for each post divided by number of followers. When an influencer has below 1% engagement, it implies involvement of few fake followers in certain amount. So, it is prevalent to track the numbers and do the calculation, so that there is no chance of fake followers on Facebook that can ruin your business.
 
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 3: Check tendency chart
 
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 4: Locate Follower country
 
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 5: Use third party tools
@@ -92,10 +85,10 @@ You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for i
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -107,6 +100,13 @@ Knowing these aspects, you will be able to protect your brand page and garner ge
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -123,24 +123,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-download-any-song-on-fb-for-free/"><u>[New] Download Any Song on FB for Free</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-enhance-engagement-with-these-15-snap-insights/"><u>[New] Enhance Engagement with These 15 Snap Insights</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-fb-to-melodic-mp3s-simple-conversion-high-quality-outputs-for-2024/"><u>[New] FB to Melodic MP3s Simple Conversion, High Quality Outputs for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-master-the-art-of-subtitling-a-brief-blueprint-for-your-fb-video-uploads/"><u>[New] Master the Art of Subtitling A Brief Blueprint for Your FB Video Uploads</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-the-entrepreneurs-playbook-gather-these-vital-products-to-thrive-in-business-for-2024/"><u>[New] The Entrepreneur's Playbook Gather These Vital Products to Thrive in Business for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-leading-tools-top-6-fb-lite-video-extractors/"><u>[Updated] In 2024, Leading Tools TOP 6 FB Lite Video Extractors</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-mastering-the-social-media-lands-point-10-secrets-for-fb-optimization/"><u>[Updated] In 2024, Mastering the Social Media Lands Point 10 Secrets for FB Optimization</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-incognito-observer-of-online-chronicles-for-2024/"><u>[Updated] Incognito Observer of Online Chronicles for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-master-mp4-transformer-for-fb-for-2024/"><u>[Updated] Master MP4 Transformer for FB for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-harnessing-the-power-of-luts-in-adobes-creative-suite/"><u>2024 Approved Harnessing the Power of LUTs in Adobe's Creative Suite</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-top-rated-iphone-apps-expert-reviews-and-recommendations/"><u>2024 Approved Top-Rated iPhone Apps Expert Reviews and Recommendations</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/crafting-your-online-identity-a-facebook-tutorial/"><u>Crafting Your Online Identity A Facebook Tutorial</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722967788754-ensure-optimal-performance-with-newly-released-msi-gs65-windows-drivers-download-here/"><u>Ensure Optimal Performance with Newly Released MSI GS65 Windows Drivers – Download Here!</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/essential-solutions-top-issues-facing-iphone-x-owners-and-how-you-can-resolve-them/"><u>Essential Solutions: Top Issues Facing iPhone X Owners & How You Can Resolve Them</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-realme-gt-3-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Realme GT 3 by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-top-glitch-video-editing-software-for-windows-and-mac-free-and-paid-options-for-2024/"><u>New Top Glitch Video Editing Software for Windows and Mac Free and Paid Options for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/preparing-to-engage-in-googles-video-meetings/"><u>Preparing to Engage in Google's Video Meetings</u></a></li>
-<li><a href="https://article-files.techidaily.com/the-dichotomy-of-triller-and-tiktok-a-deep-dive-analysis-for-2024/"><u>The Dichotomy of Triller & TikTok A Deep-Dive Analysis for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/unseen-pathways-to-friend-finder-excellence-for-2024/"><u>Unseen Pathways to Friend Finder Excellence for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-discover-the-undiscovered-top-social-media-memes/"><u>[New] 2024 Approved Discover the Undiscovered Top Social Media Memes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-effortless-facebook-video-extras-the-best-fire-browser-plugins-of-2023/"><u>[New] 2024 Approved Effortless Facebook Video Extras The Best Fire-Browser Plugins of 2023</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-enhancing-trust-through-effective-client-videography/"><u>[New] Enhancing Trust Through Effective Client Videography</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-navigating-social-networking-videos-your-ultimate-guide-for-appletv-users/"><u>[New] In 2024, Navigating Social Networking Videos Your Ultimate Guide for AppleTV Users</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-maximize-your-media-influence-with-10-effortless-steps-for-2024/"><u>[New] Maximize Your Media Influence with 10 Effortless Steps for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-first-rate-text-animation-setups/"><u>[Updated] First-Rate Text Animation Setups</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-streamlining-video-production-with-top-mac-mp4-tools/"><u>[Updated] In 2024, Streamlining Video Production with Top Mac MP4 Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2023-top-10-facebook-video-players/"><u>2023 | Top 10 Facebook Video Players</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-29-visionary-metaverse-projects-elucidating-potentialities/"><u>2024 Approved 29 Visionary Metaverse Projects Elucidating Potentialities</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/authenticity-audit-filtering-out-pretend-facebook-fans/"><u>Authenticity Audit Filtering Out Pretend Facebook Fans</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-experience-via-shortcut-customization/"><u>Enhancing Your Facebook Experience via Shortcut Customization</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-zte-nubia-z60-ultra-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your ZTE Nubia Z60 Ultra</u></a></li>
+<li><a href="https://solve-info.techidaily.com/tecnicas-eficaces-para-configurar-windows-input-what-is-the-measure-of-arc-ac-in-circle-p-if-mabc-160-and-point-c-lies-on-a-tangent-to-circle-p-at-point-a.m298/"><u>Técnicas Eficaces Para Configurar Windows [Input]: What Is the Measure of Arc AC in Circle P if M∠ABC = 160° and Point C Lies on a Tangent to Circle P at Point A?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/vidharvest-instagram-live-fb-for-2024/"><u>VidHarvest Instagram Live (FB) for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Discovering Old Content on Facebook via Your Smartphone/Computer"
-date: 2024-10-18T17:35:02.438Z
-updated: 2024-10-21T21:29:31.735Z
+date: 2024-10-20T16:01:21.868Z
+updated: 2024-10-27T19:18:57.432Z
 tags:
   - ai video
   - ai facebook
@@ -56,10 +56,10 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -77,10 +77,10 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -118,10 +118,10 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
@@ -147,10 +147,10 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -168,14 +168,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-maximizing-your-time-online-embracing-facebook-fully/"><u>[Updated] 2024 Approved Maximizing Your Time Online Embracing Facebook Fully</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-enhanced-video-clarity-on-iphone-and-android-platforms/"><u>[Updated] In 2024, Enhanced Video Clarity on iPhone & Android Platforms</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-techniques-to-lower-audio-levels-in-os-xwindows/"><u>[Updated] In 2024, Techniques to Lower Audio Levels in OS X/Windows</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-beginners-guide-to-joining-facebook/"><u>2024 Approved The Beginner's Guide to Joining Facebook</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-meizu-21-pro-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Meizu 21 Pro Phone Using PC | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/effective-remedies-for-windows-10-cast-to-device-malfunctions-solutions-inside/"><u>Effective Remedies for Windows 10 Cast To Device Malfunctions – Solutions Inside</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-from-concept-to-click-an-in-depth-look-at-gif-memes/"><u>In 2024, From Concept to Click An In-Depth Look at GIF Memes</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/the-art-of-video-transmission-from-fb-to-whatsapp/"><u>The Art of Video Transmission From FB to WhatsApp</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-game-within-reach-play-fc-manager-for-free-windows/"><u>The Game Within Reach: Play FC Manager for Free (Windows)</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-mastering-ram-management-in-minecraft/"><u>[New] 2024 Approved Mastering RAM Management in Minecraft</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-enhance-video-impact-two-tiktok-techniques-for-2024/"><u>[New] Enhance Video Impact Two TikTok Techniques for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-understanding-and-enabling-fbs-auto-video-functionality-for-2024/"><u>[New] Understanding and Enabling Fb's Auto-Video Functionality for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-boost-connectivity-discover-the-best-5-chrome-tools-for-facebook-videos-for-2024/"><u>[Updated] Boost Connectivity Discover the Best 5 Chrome Tools for Facebook Videos for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-leveraging-hdtv-for-fb-videos-playback/"><u>[Updated] In 2024, Leveraging HDTV for FB Videos Playback</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-top-8-private-video-downloaders-for-2024/"><u>[Updated] Top 8 Private Video Downloaders for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1725289101631-2024/"><u>2024 最佳免費直播工具 - 前五大選擇</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-in-picture-smoothing-techniques-for-better-photo-clarity/"><u>2024 Approved In-Picture Smoothing Techniques for Better Photo Clarity</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/fb-video-grabber-win-mac-and-mobile-for-2024/"><u>FB Video Grabber - Win, Mac & Mobile for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-avatar-asymmetry-artistry-sketching-distorted-images/"><u>In 2024, Avatar Asymmetry Artistry Sketching Distorted Images</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-earnings-expansion-on-glamour-channels/"><u>In 2024, Earnings Expansion on Glamour Channels</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-step-by-step-guide-how-to-watch-social-media-videos-on-your-apple-tv/"><u>In 2024, Step by Step Guide How to Watch Social Media Videos on Your Apple TV</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/resolving-unresponsive-windows-11-activation-codes/"><u>Resolving Unresponsive Windows 11 Activation Codes</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/step-by-step-guide-to-mastering-orion-kodi-insightful-analysis-and-full-configuration-steps/"><u>Step-by-Step Guide to Mastering Orion Kodi: Insightful Analysis & Full Configuration Steps</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/the-finest-ps1-emulators-for-seamless-gaming-experience-for-2024/"><u>The Finest PS1 Emulators for Seamless Gaming Experience for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/understanding-a-symbol-the-purpose-of-facebooks-blue-emoji/"><u>Understanding a Symbol The Purpose of Facebook's Blue Emoji</u></a></li>
 </ul></div>
 

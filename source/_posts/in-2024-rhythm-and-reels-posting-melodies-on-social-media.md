@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Rhythm & Reels  Posting Melodies on Social Media\""
-date: 2024-08-10T09:26:27.310Z
-updated: 2024-08-11T09:26:27.310Z
+date: 2024-10-23T17:56:27.972Z
+updated: 2024-10-27T17:40:01.020Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/59fadab74810371b89474ece0e1afaf00b25fe1d9
 
 # How to Add Music to Facebook Story?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -37,9 +34,6 @@ Everyone wants to make their social media accounts fun and interactive to attrac
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Part 1: How to Create a Music-only Facebook Story?
 
 Music-only stories are becoming a Facebook trend and a way to let people know the songs you are currently hooked to. Do you know how to add music-only stories? If not, here is how to do it:
@@ -60,12 +54,16 @@ After tapping on the song of your choice, you can edit it. You can change the mu
 
 Click done on the right corner to post the music story. Your story will be available for 24 hours for viewers to watch.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Edit FB Music](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker.jpg)
 
 Note: Currently, you can add music stories on Facebook mobile app only. On a desktop, you can only create a photo story or text story.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to Add Music to Facebook Photo/Video Story?
 
@@ -85,10 +83,14 @@ After clicking a picture or making a video, tap on the sticker icon. Select the 
 
 After tapping on the music sticker, click on the song you want to play with your story. When you are done editing the sticker and your story, click   **Done** on the top right corner to post it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![add music sticker  ](https://images.wondershare.com/filmora/article-images/add-music-with-facebook-music-sticker.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Add My Own Music to Facebook Story?
 
@@ -104,18 +106,12 @@ Note: You may need to set up the project aspect ratio accordingly for the Facebo
 
 Drag video to timeline, hover the cursor over the audio and video file until a + sign appears, which means add to the project.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/add-facebook-story-video-filmora.jpg)
 
 **Step 3: Edit the audio**
 
 Double click on the audio file within the panel given on the top of the Filmora screen. You will find a few options to edit audio, such as fade-in, fade-out, equalizer, volume, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/edit-facebook-story-music-filmora.jpg)
 
  **Step 4: Export edited file**
@@ -128,10 +124,14 @@ You can upload the edited file on your Facebook stories by clicking on create st
 
 _For more details about editing videos on Filmora, you can check [How to Edit Videos](https://tools.techidaily.com/wondershare/filmora/download/)._
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
 
@@ -152,12 +152,12 @@ A user can also select elements from the given options. You can add a poll, emoj
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## FAQs About Adding Music to Facebook Story
 
 1. **Can you add music to Facebook Story from a computer?**
@@ -174,13 +174,18 @@ Facebook story feature is one of the best options that one can use to gain visib
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -188,3 +193,17 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-masterclass-in-choosing-your-best-live-streamer/"><u>[New] In 2024, Masterclass in Choosing Your Best Live Streamer</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-ultimate-guide-to-calculate-your-youtube-views-and-money/"><u>[New] In 2024, Ultimate Guide to Calculate Your YouTube Views and Money</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-pushing-the-envelope-in-display-technology-detailed-examination-of-benq-bl2711u/"><u>[Updated] 2024 Approved Pushing the Envelope in Display Technology Detailed Examination of BenQ BL2711U</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-startups-secret-weapon-kit-must-have-items-that-set-you-apart/"><u>[Updated] In 2024, The Startup's Secret Weapon Kit Must-Have Items That Set You Apart</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-streamlining-multimedia-experiences-through-youtube-music-links/"><u>2024 Approved Streamlining Multimedia Experiences Through YouTube Music Links</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/correct-disconnected-instagram-stories/"><u>Correct Disconnected Instagram Stories</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/expert-techniques-for-live-streaming-your-gopro-to-social-channels/"><u>Expert Techniques for Live Streaming Your GoPro to Social Channels</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-how-to-setup-continuous-auto-video-in-fb/"><u>In 2024, How to Setup Continuous Auto-Video in Fb</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Infinix Hot 30 5G | Dr.fone</u></a></li>
+</ul></div>
+

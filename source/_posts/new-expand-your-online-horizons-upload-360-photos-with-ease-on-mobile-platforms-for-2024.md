@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Expand Your Online Horizons  Upload 360 Photos with Ease on Mobile Platforms for 2024\""
-date: 2024-08-10T09:25:34.672Z
-updated: 2024-08-11T09:25:34.672Z
+date: 2024-10-22T16:28:29.603Z
+updated: 2024-10-27T16:25:05.853Z
 tags:
   - ai video
   - ai facebook
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/e85743b34dfe1708fd7baeaabbf4be530a9d0acc9
 
 # How to Post 360 Photos on iOS/Android to Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -35,9 +31,6 @@ The ultimate burning program for all your needs!</a>
 
  Probably you have a tablet or phone that support Facebook live 360 video feature. Actually as per the recent announcement made by Facebook professionals regarding its updated applications, live 360 is compatible with all devices launched after iPad Pro. iPad Air, iPad Mini 2 or iPhone 4S models. Till now Facebook has not revealed any news related to compatibility of new features over Android devices and chances are that Android users need to wait so long to enjoy this feature on their device. However, they made a useful statement that Galaxy devices launched after Galaxy Note 3 and Galaxy S5 will support this feature.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Taking 360 Photos on iPhone and iPad With Built in Camera App
 
  Generally 360 degree camera is most preferable choice for developing high quality 360 degree images but in case if you don’t have one then Panorama feature of built in device cameras can make it possible. However, users cannot get focus from up and down but they can at least pan from right to left by simply swiping on their display. This feature only works for photos that mean you cannot develop 360 videos using Panorama.
@@ -47,13 +40,12 @@ The ultimate burning program for all your needs!</a>
  As soon as you have captured your desired shot, move to your Facebook account and browse photo library. Choose your recently captured panorama photo and then follow instructions provided on screen to update your video. You can also preview your content, now add desired caption and publish your content online. Soon your will start receiving interesting comments and reviews from audience. Users can also delete their 360 degree photos after few hours as per their need. Such types of videos are being commonly used for entertainment and marketing purpose throughout the world.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Taking 360 Photos on Android Smartphone with Google Street View
 
  It is important to capture 360 degree photos in Facebook compatible formats so professionals recommend using Google’s street view camera app for this purpose. It works fine over iOS as well as Android platform and let users enjoy unlimited 360 shoots. To develop 360 degree videos from this application:
@@ -64,18 +56,32 @@ The ultimate burning program for all your needs!</a>
 * These captured 360 videos can be uploaded on Facebook same as the regular posts. Simply go to your account, move to status update and select your image, add caption and update.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Viewing 360 Photos on Facebook
 
  As soon as you are done with the uploading process, next task is to visit your profile and check if your uploaded video is working fine or not. If you are working on a web browser then simply click on this video and drag it here and there to avail 360 degree view whereas those who are watching it on smartphone can simply move it around in all directions to enjoy 360 degree view.
 
  You will find a small radar type icon at bottom of screen; it provides information about your current pointing position on view. As it is your own profile so you can still make few changes to your uploads by adjusting preferred audience type or comments etc.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -83,11 +89,31 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-a-perfect-playtime-how-to-take-great-xbox-one-shots/"><u>[Updated] 2024 Approved A Perfect Playtime How to Take Great Xbox One Shots</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-elite-stealth-vids-downloader-guide-1-to-8/"><u>[Updated] 2024 Approved Elite Stealth Vids Downloader Guide - #1 to #8</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-achieve-excellence-in-fb-video-marketing-essential-free-kit-included/"><u>[Updated] In 2024, Achieve Excellence in FB Video Marketing - Essential FREE Kit Included</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-mp3-downloader-for-facebook-feeds/"><u>[Updated] In 2024, MP3 Downloader for Facebook Feeds</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unleash-music-without-spending-a-penny/"><u>[Updated] In 2024, Unleash Music, Without Spending a Penny</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-prime-online-converter-options-for-instant-gif-to-video-for-2024/"><u>[Updated] Prime Online Converter Options for Instant GIF to Video for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-essence-of-uavs-understanding-their-mechanics-and-use/"><u>[Updated] The Essence of UAVs Understanding Their Mechanics & Use</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unveiling-the-top-5-facebook-video-downloaders-today/"><u>[Updated] Unveiling the Top 5 Facebook Video Downloaders Today</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-facebook-vids-fast-track-to-mp4-conversion/"><u>2024 Approved Facebook Vids Fast Track to MP4 Conversion</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/broadcast-strategies-combining-facebook-and-tv-for-2024/"><u>Broadcast Strategies Combining Facebook and TV for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-strategies-for-secure-unmarked-photography-procurement/"><u>In 2024, Strategies for Secure, Unmarked Photography Procurement</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-nubia-red-magic-9-pro-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Nubia Red Magic 9 Pro FRP Without Computer</u></a></li>
+<li><a href="https://extra-support.techidaily.com/navigating-nearby-areas-for-an-immersive-roblox-experience-for-2024/"><u>Navigating Nearby Areas for an Immersive Roblox Experience for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/peephole-to-private-facebook-worlds/"><u>Peephole to Private Facebook Worlds</u></a></li>
+<li><a href="https://fox-within.techidaily.com/pro-version-horizon-ai-boilerplate-with-nextjs-and-figma-integration-advanced-payment-setups-with-stripe-and-supabase-complete-oauth-support-by-creative-tim13/"><u>PRO Version Horizon AI Boilerplate with NextJS & Figma Integration – Advanced Payment Setups with Stripe and Supabase, Complete OAuth Support by Creative Tim</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-tips-solving-sound-blaster-mic-issues/"><u>Troubleshooting Tips: Solving Sound Blaster Mic Issues</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/k-more-views-the-art-of-crafting-titles-and-tags-for-youtube/"><u>Unlock More Views The Art of Crafting Titles & Tags for YouTube</u></a></li>
+</ul></div>
+

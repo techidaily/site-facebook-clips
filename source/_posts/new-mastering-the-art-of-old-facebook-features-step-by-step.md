@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering the Art of Old Facebook Features  Step-by-Step\""
-date: 2024-10-17T23:04:02.078Z
-updated: 2024-10-22T00:47:16.012Z
+date: 2024-10-22T17:46:22.964Z
+updated: 2024-10-27T21:40:23.892Z
 tags:
   - ai video
   - ai facebook
@@ -56,10 +56,10 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -75,6 +75,19 @@ You can log in to Facebook on a desktop to proceed to watch your old stories. Wh
 Once you click on the story archive, all your **old stories** will appear in sequential order.
 
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
+
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
 
@@ -94,13 +107,6 @@ People make a **series of highlights** and name them accordingly. If the story i
 
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -118,10 +124,10 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
@@ -147,16 +153,16 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -174,22 +180,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-capturing-every-frame-a-deep-dive-into-apowersoft-for-pcs/"><u>[New] Capturing Every Frame A Deep Dive Into Apowersoft for PCs</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-effortless-hd-ready-turning-your-fb-videos-into-mp4-instantly-for-2024/"><u>[New] Effortless HD-Ready Turning Your FB Videos Into MP4 Instantly for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-engage-grow-and-rise-triple-threat-tactics-for-facebook-pages/"><u>[Updated] 2024 Approved Engage, Grow, and Rise Triple Threat Tactics for Facebook Pages</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-address-missing-watch-playback-symbol/"><u>[Updated] In 2024, Address Missing Watch Playback Symbol</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-digital-scribes-leading-screen-recorder-software/"><u>[Updated] In 2024, Digital Scribes Leading Screen Recorder Software</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-top-5-ios-tools-to-download-facebook-movies-and-clips/"><u>[Updated] In 2024, Top 5 iOS Tools to Download Facebook Movies & Clips</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/apple-vision-pros-brilliance-revealed-a-deep-dive-into-its-ten-surprising-features-insights-by-zdnet/"><u>Apple Vision Pro's Brilliance Revealed: A Deep Dive Into Its Ten Surprising Features | Insights by ZDNET</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/broadcasting-with-breeze-tips-for-fb-video-sharing-for-2024/"><u>Broadcasting with Breeze Tips for FB Video Sharing for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/chatcam-capturer-facebook-edition-for-2024/"><u>ChatCam Capturer, Facebook Edition for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/cracking-the-code-on-steams-locked-file-conundrum-a-comprehensive-fix/"><u>Cracking the Code on Steam’s Locked File Conundrum – A Comprehensive Fix</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-creating-captivating-slideshows-on-the-social-media-giant/"><u>In 2024, Creating Captivating Slideshows on the Social Media Giant</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-facebook-stories-downloader/"><u>In 2024, Facebook Stories Downloader</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-in-2024-easy-video-cutting-and-joining-software-for-starters-2023-update/"><u>New In 2024, Easy Video Cutting and Joining Software for Starters (2023 Update)</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-vivo-y100i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Vivo Y100i | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/spinning-tales-embracing-the-full-rotational-vision/"><u>Spinning Tales Embracing the Full Rotational Vision</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-comedic-journey-an-evaluation-of-goofy-adventures-for-2024/"><u>The Comedic Journey An Evaluation of 'Goofy Adventures' For 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/unveiling-the-artistic-marvel-an-exclusive-review-of-huions-kamvas-gt-191-tablet/"><u>Unveiling The Artistic Marvel - An Exclusive Review Of Huion's Kamvas GT-191 Tablet</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-navigating-social-networking-videos-your-ultimate-guide-for-appletv-users/"><u>[New] Navigating Social Networking Videos Your Ultimate Guide for AppleTV Users</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-seamless-integration-of-youtube-media-in-gslides/"><u>[Updated] 2024 Approved Seamless Integration of YouTube Media in GSlides</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-harnessing-altitude-live-streaming-with-dji-drones/"><u>[Updated] Harnessing Altitude Live-Streaming with DJI Drones</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-hero4-black-vs-hero4-silver/"><u>[Updated] Hero4 Black Vs Hero4 Silver</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-enabling-seamless-facebook-video-playbacks/"><u>[Updated] In 2024, Enabling Seamless Facebook Video Playbacks</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-the-newest-graphics-drivers-for-nvidia-rtx-2080-on-windows-1178/"><u>Download the Newest Graphics Drivers for NVIDIA RTX 2080 on Windows 11/7/8</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/easy-steps-on-how-to-create-a-new-apple-id-account-on-iphone-xs-max-by-drfone-ios/"><u>Easy Steps on How To Create a New Apple ID Account On iPhone XS Max</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/elevating-visual-experience-big-is-better/"><u>Elevating Visual Experience Big Is Better</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/enhance-fb-story-visibility-with-these-tips/"><u>Enhance FB Story Visibility with These Tips</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/exclusive-7-discreet-media-tools/"><u>Exclusive 7 Discreet Media Tools</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-unleash-your-creativity-3-simple-ways-to-record-video-games/"><u>New Unleash Your Creativity 3 Simple Ways to Record Video Games</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/recuperare-i-file-perduti-strategie-di-ripristino-in-esplora-file/"><u>Recuperare I File Perduti: Strategie Di Ripristino in Esplora File</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722971297554-samsung-m207n0fw-printer-secure-and-speedy-driver-downloads-available-here/"><u>Samsung M207n0FW Printer – Secure and Speedy Driver Downloads Available Here</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/shuttered-creations-sudden-delete-incidents/"><u>Shuttered Creations Sudden Delete Incidents</u></a></li>
 </ul></div>
 

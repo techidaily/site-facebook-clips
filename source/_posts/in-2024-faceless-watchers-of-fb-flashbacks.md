@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Faceless Watchers of Fb Flashbacks"
-date: 2024-08-03T06:24:55.297Z
-updated: 2024-08-04T06:24:55.297Z
+date: 2024-10-20T19:30:49.707Z
+updated: 2024-10-27T16:04:55.541Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/81e161f907419dfdc391568e85d3e05da23f1ff74
 
 # How to View Facebook Stories Anonymously
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -39,9 +36,6 @@ Just like you can upload something on your story for others to see, you can also
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
 ## A cross-platform for making videos anywhere for all creators
@@ -63,23 +57,17 @@ Just like you can upload something on your story for others to see, you can also
 
  \* Secure Download
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: How to View Someone's Facebook Story Anonymously? \[ 4 Ways\]
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Method 1: Turn on the Airplane Mode
 
 When you turn on the airplane mode of your device, your phone will no longer be connected to the internet. So, what happens is that when the Airplane Mode is enabled, and you check a story, Facebook will fail to register your account as one of the **Facebook story viewers.** This is a pretty easy technique. Here's how you need to apply this method.
@@ -89,6 +77,13 @@ When you turn on the airplane mode of your device, your phone will no longer be 
 **Step 2:** Now, turn on the airplane mode to go offline, and then open the home page again and click on any story you want to see. The story will begin to play.
 
 ![View Facebok Story anonymously via offline ](https://images.wondershare.com/filmora/article-images/view-facebook-story-anonymously-via-offline.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Once you are done, force close the Facebook application so that it doesn't run in the background when you disable the Airplane Mode. Because if you do that, your name can get registered. So, close the app completely. Please note that when the Airplane mode is on, some stories will not load. To watch them, you need to turn on and off the airplane mode again.
 
@@ -103,8 +98,12 @@ As the name suggests, rather than watching the entire story, you need to stop wa
 **Step 3:** Quickly swipe right or left and make sure the story doesn't end. This way, Facebook won't register you.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Method 3: Block Them
 
 This is another method to stop appearing as one of the viewers. This method will let you view the whole story; however, since it involves blocking the user, they will be removed from your friend list completely. So, try it if only you are fine with removing that person from your friends' list. Here's how to follow this method:
@@ -113,9 +112,6 @@ This is another method to stop appearing as one of the viewers. This method will
 
 **Step 2:** Once done, block the person. If you want, you can unblock them after 24 hours.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 4: Deactivate your Facebook Account to View Story Anonymously
 
 For the last resort, you can deactivate your account and reactivate it after a while so that your name doesn't appear on the viewer's list. Even though this is an extreme step to take, but it keeps you anonymous. So, here's how you can do this method:
@@ -130,13 +126,17 @@ For the last resort, you can deactivate your account and reactivate it after a w
 
 Once 24 hours is over, you can log in to reactive your account.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How Do I See Someone's Story on Facebook?
 
 There are three easy ways to see someone's story on Facebook. One way is to use the web browser of your pc or Mac, the second is exploring Facebook stories on Facebook Messenger, and the third is by using the Facebook mobile app. We will discuss these three methods below.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Method 1: View Facebook Stories through the Website Browser
 
 **Step 1:** Use any of the browsers on your computer and visit Facebook.Log in, and the home page will be displayed. On the top, you will see the stories.
@@ -151,9 +151,6 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 
 ![View Facebok Story via Messenger](https://images.wondershare.com/filmora/article-images/view-facebook-story-messenger.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 3: Open Facebook Mobile App to View Stories
 
 **Step 1:** Launch the Facebook mobile application. You will be directly taken to the home page. On top, you will see the story section.
@@ -161,6 +158,13 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 **Step 2:** Please click on any of the stories that you want to see.
 
 ![View Facebok Story on mobile](https://images.wondershare.com/filmora/article-images/view-facebook-story-mobile-app.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Check Facebook Story Views?
 
@@ -173,6 +177,13 @@ Facebook allows you to check who viewed your stories. This is known as **Faceboo
 ![View who have seen my Facebok Story  ](https://images.wondershare.com/filmora/article-images/check-who-viewed-facebook-story.jpg)
 
 Now, you can see the list of people's names who have seen your story. This step will remain the same for both computer and mobile app users.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: FAQs About Viewing Facebook Story
 
@@ -200,14 +211,6 @@ If you want to save someone's Facebook story, you can get the [Story Saver for a
 
 Yes, just like you can see who viewed your Facebook story, others can also check the same by clicking on the viewer option available on their story.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -216,11 +219,30 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-ultimate-manual-for-youtube-playlist-reordering/"><u>[New] 2024 Approved The Ultimate Manual for YouTube Playlist Reordering</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-basics-of-designing-your-own-facebook-reel-experience/"><u>[New] In 2024, The Basics of Designing Your Own Facebook Reel Experience</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-uncovering-old-facebook-stories-with-ease-for-2024/"><u>[New] Uncovering Old Facebook Stories with Ease for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-mastering-visual-storytelling-live-broadcasts-of-360-videos-on-facebook/"><u>[Updated] 2024 Approved Mastering Visual Storytelling Live Broadcasts of 360 Videos on Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-pcandroid-tutorial-successful-facebook-video-sharing/"><u>[Updated] 2024 Approved PC/Android Tutorial Successful Facebook Video Sharing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-dive-deep-into-the-world-of-facebook-story-creation-expert-advice-inside-for-2024/"><u>[Updated] Dive Deep Into the World of Facebook Story Creation Expert Advice Inside for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-shining-up-your-android-videos-effortlessly/"><u>[Updated] Shining Up Your Android Videos Effortlessly</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-smoothly-record-time-lapse-on-your-ipad-for-2024/"><u>[Updated] Smoothly Record Time-Lapse on Your iPad for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-breach-to-backup-restore-and-redeem-your-fb-status/"><u>2024 Approved Breach to Backup Restore and Redeem Your FB Status</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1728464752443-sd/"><u>錯誤修復：如何使用SD卡重置缺陷</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-apple-iphone-15-pro-max-find-my-friends-no-location-found-drfone-by-drfone-virtual-ios/"><u>How to Fix Apple iPhone 15 Pro Max Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-fb-snapshot-shows/"><u>In 2024, FB Snapshot Shows</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-livestream-leaders-guide-elevating-pre-recorded-videos-on-social-media/"><u>In 2024, Livestream Leaders' Guide Elevating Pre-Recorded Videos on Social Media</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-conversations-just-add-chatgpt-and-android/"><u>Mastering Conversations - Just Add ChatGPT & Android</u></a></li>
+<li><a href="https://windows11.techidaily.com/unfolding-windows-solutions-for-stubborn-folders-on-double-click/"><u>Unfolding Windows: Solutions for Stubborn Folders on Double-Click</u></a></li>
+</ul></div>
+

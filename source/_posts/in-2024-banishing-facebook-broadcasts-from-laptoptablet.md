@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Banishing Facebook Broadcasts From Laptop/Tablet"
-date: 2024-08-10T09:16:23.297Z
-updated: 2024-08-11T09:16:23.297Z
+date: 2024-10-22T21:48:08.602Z
+updated: 2024-10-27T19:08:29.905Z
 tags:
   - ai video
   - ai facebook
@@ -36,9 +36,6 @@ A Facebook story will last for 24 hours. Once the 24 hours timeline is over, you
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: How to Delete A Photo or Video from Facebook Story?
 
 So, you can remove your Facebook story either by opening your Facebook account on your desktop browser or through your mobile app.
@@ -49,9 +46,6 @@ Let's begin with the mobile Facebook application:
 
 **Step 2:** Now, click on Your Story and click on the three dots that you see on the top. You will see a list of options; please click on the delete photo option to remove the story.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ![delete Facebook Story from mobile](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-mobile.jpg)
 
 **Delete Facebook Story from Desktop**
@@ -68,6 +62,19 @@ Let's begin with the mobile Facebook application:
 
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Delete A Story from Facebook Story Archive?
 
 After your story vanishes from the Story section after 24 hours, they remain stored in the Story Achieve. But this feature has to stay enabled to store your stories in the Story Achieve. This way, you can control which stories you will like to save and which ones you will want to delete completely. To enable Story Archive, go to your Facebook profile and click on the three dots. You need to click on the settings option; after that, you need to select the gear icon. Once done, just toggle the save to archive option, and it will be enabled.
@@ -76,9 +83,6 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 **Step 1:** Visit your Facebook account and click on your profile. On your profile, you will see three dots. Please click on the three dots. Once done, you will see a list of options; please click on the archive option.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
 
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
@@ -88,17 +92,12 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 This is how you will remove the stories from Facebook archived.
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
 
 Facebook stories don't only appear on your Facebook home page; they also appear on your Facebook Messenger. And you can delete your stories by visiting Facebook Messenger. Let's find out how.
@@ -109,10 +108,14 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 
 **Step 3:** Now, you need to click on the three dots. Hit the Delete option, and another pop-up window will appear. You need to click on the delete option again.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Control Who Can View Your Facebook Stories?
 
@@ -120,9 +123,6 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 **Step 1:** Go to your Facebook home page and click on Your Story. Upload a story, but please click on the privacy option before clicking on the share option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
@@ -130,20 +130,28 @@ You can make your stories visible to your friends, customize the viewers, or kee
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 5: How to Hide Facebook Story from Specific People?
 
 Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
 
 **Step 1:** Launch your Facebook account, and then upload something on your story and set the privacy to Friends. After that, you need to click on the Hide Story From option.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
 
@@ -165,12 +173,28 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-enhance-facebook-visibility-uploading-panoramic-content-on-mobile/"><u>[New] 2024 Approved Enhance Facebook Visibility Uploading Panoramic Content on Mobile</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-step-by-step-harvesting-hundreds-of-tiktok-videos/"><u>[New] 2024 Approved Step-by-Step Harvesting Hundreds of TikTok Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-dive-into-the-world-of-youtube-on-facebook-video-content-for-2024/"><u>[New] Dive Into the World of YouTube on Facebook Video Content for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-ultimate-list-best-fb-videos-to-watch/"><u>[New] In 2024, The Ultimate List Best FB Videos To Watch</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-youtube-on-fb-maximizing-auto-play-efficiency/"><u>[New] In 2024, YouTube on FB Maximizing Auto-Play Efficiency</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-deciphering-the-maximum-duration-for-instagram-videos/"><u>[Updated] 2024 Approved Deciphering the Maximum Duration for Instagram Videos</u></a></li>
+<li><a href="https://win-help.techidaily.com/1728480571828-aomei/"><u>AOMEI産品使い方：詳しいレシピとマニュアル</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/conquer-youtube-with-creator-studio-a-comprehensive-guide/"><u>Conquer YouTube with Creator Studio A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/easier-than-ever-2023s-fire-browser-addons-for-capturing-your-fb-videos/"><u>Easier Than Ever 2023'S Fire-Browser Addons for Capturing Your FB Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-autoplay-facebook-videos/"><u>How to Autoplay Facebook Videos</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/hp-printer-offline-now-functioning/"><u>HP Printer Offline, Now Functioning</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-mastering-media-craft-debate-between-filmora-and-democracy-creator/"><u>In 2024, Mastering Media Craft Debate Between Filmora & Democracy Creator</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-profit-potential-unveiled-comparing-content-platforms-strategies/"><u>In 2024, Profit Potential Unveiled Comparing Content Platforms' Strategies</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/laptop-not-detecting-headphones-solved/"><u>Laptop Not Detecting Headphones [Solved]</u></a></li>
+</ul></div>
 

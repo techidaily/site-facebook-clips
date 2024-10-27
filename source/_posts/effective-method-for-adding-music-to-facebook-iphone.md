@@ -1,7 +1,7 @@
 ---
 title: "Effective Method for Adding Music to Facebook (iPhone)"
-date: 2024-08-10T09:18:31.388Z
-updated: 2024-08-11T09:18:31.388Z
+date: 2024-10-21T21:58:32.386Z
+updated: 2024-10-27T21:16:14.336Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/39537ef670f74abdd3937163bf686c62a000d8146
 
 # Rock Your Facebook Profile: Add, Pin, Play, & Manage Music (iPhone & Android)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -48,9 +45,6 @@ _You may also like: [How to add music to Facebook Story](https://tools.techidail
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: How to Add Music to Facebook Profile on iPhone and Android?
 
 Here’s something you should be aware of before learning **how to** **add a song to** your **Facebook profile.** This function is only available for Android, iPad, and iPhone Facebook applications. This means that you can’t add music to your Facebook profile on the web Facebook account. Instead, there are just a few simple steps that you need to follow to get started.
@@ -61,23 +55,14 @@ Here’s something you should be aware of before learning **how to** **add a son
 
 **Step 3:** Once you are there on your profile page, scroll down a bit, and you will see the Music tab. You need to tap on that.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Profile Music Option](https://images.wondershare.com/filmora/article-images/facebook-profile-music-option.jpg)
 
 **Step 4:** After you do that, you will be taken to the Song page. Click on the + icon and search for the song that you would like to be added to your profile. Once you find the song, click on the Add option, and the song will be added.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add Music  to Facebook Profile](https://images.wondershare.com/filmora/article-images/add-music-to-facebook-profile.jpg)
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
@@ -107,16 +92,40 @@ There’s another feature that Facebook allows you to use, and that’s pinning 
 
 **Step 2:** Go to your profile page and locate the Music tab.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![Facebook Profile Music Option](https://images.wondershare.com/filmora/article-images/facebook-profile-music-option.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3:** Now, click on the Music option. Each song will have three dots; click on that, and then you will see the option Pin to Profile. Click on that, and the song will be pinned to your profile.
 
 ![Pin music on Facebook Profile](https://images.wondershare.com/filmora/article-images/pin-music-on-facebook-profile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 To check whether the song is pinned to your profile or not, visit your Facebook profile, and you will see it right below your profile picture.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Play and Listen Songs You Have Added to Facebook Profile?
 
@@ -131,8 +140,12 @@ By adding fresh songs to your profile, you will make your profile look and sound
 ![Facebook Profile Music History](https://images.wondershare.com/filmora/article-images/facebook-profile-music-history-list.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: How to Remove Unwanted Music from Facebook Profile?
 
 Just like you can add songs to your profile, you can easily remove them as well. For example, you may be over the song and want to replace it with a new one. Here’s the step-by-step guide to doing that:
@@ -143,9 +156,6 @@ Just like you can add songs to your profile, you can easily remove them as well.
 
 **Step 3:** From the options, you need to click on the deleted song from the profile option. By doing this, the song will be permanently removed from your profile.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![delete Facebook Profile Music](https://images.wondershare.com/filmora/article-images/delete-music-track-from-facebook-profile.jpg)
 
 You can remove one song or multiple of them.
@@ -174,22 +184,24 @@ Now that you have learned **how to add a song to your Facebook profile** try it 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -198,5 +210,24 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-from-creator-to-curator-perfect-your-fb-video-sharing-skills/"><u>[New] 2024 Approved From Creator to Curator Perfect Your FB Video Sharing Skills</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-leading-heavy-duty-uavs-for-maximum-carry-capacity/"><u>[New] 2024 Approved Leading Heavy-Duty UAVs for Maximum Carry Capacity</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-discovering-the-ultimate-14-stardew-valley-upgrades/"><u>[Updated] 2024 Approved Discovering the Ultimate 14 Stardew Valley Upgrades</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-how-to-share-facebook-videos-to-whatsapp/"><u>[Updated] 2024 Approved How to Share Facebook Videos to WhatsApp?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-laughlinelab-picchuckleworkshop/"><u>[Updated] 2024 Approved LaughLineLab PicChuckleWorkshop</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-mastering-the-art-of-motion-creating-engaging-profitable-fb-ads/"><u>[Updated] 2024 Approved Mastering the Art of Motion Creating Engaging, Profitable FB Ads</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-miniature-film-script-sketch/"><u>[Updated] In 2024, Miniature Film Script Sketch</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-sparkling-ideas-crafting-creative-and-engaging-facebook-ads/"><u>[Updated] In 2024, Sparkling Ideas Crafting Creative and Engaging Facebook Ads</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-swiftly-overcome-video-send-errors-in-facebook-chat-for-iphones-android/"><u>[Updated] Swiftly Overcome Video Send Errors in Facebook Chat for iPhones, Android</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-infinix-smart-8-plus-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Infinix Smart 8 Plus Phone? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/easy-tutorial-on-connecting-printers-for-shared-usage-amongst-various-devices/"><u>Easy Tutorial on Connecting Printers for Shared Usage Amongst Various Devices</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-enhancing-your-live-viewing-experience-on-facebook/"><u>In 2024, Enhancing Your Live Viewing Experience on Facebook</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-realme-v30t-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Realme V30T</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-websites-for-rhythmic-alerts-unique-sounds/"><u>In 2024, Top Websites for Rhythmic Alerts Unique Sounds</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Motorola Razr 40 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/sync-facebook-media-for-larger-display-views/"><u>Sync Facebook Media for Larger Display Views</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/tips-for-a-full-screen-facebook-video-experience/"><u>Tips for a Full-Screen Facebook Video Experience</u></a></li>
+</ul></div>
 

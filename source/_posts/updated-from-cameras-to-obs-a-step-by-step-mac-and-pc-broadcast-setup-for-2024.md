@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Cameras to OBS  A Step-by-Step Mac & PC Broadcast Setup for 2024\""
-date: 2024-08-10T09:25:45.287Z
-updated: 2024-08-11T09:25:45.287Z
+date: 2024-10-22T22:30:00.570Z
+updated: 2024-10-27T17:18:27.881Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/91715213b833560df5357cf6515828851bc7618f2
 
 # How to live stream facebook from PC, Mac or Laptop with OBS
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -45,16 +42,10 @@ Step 1: Make your scenes perfectly ready before starting the actual streaming pr
 
 Step 2: Now you need to add sources to the scenes.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ sources ](https://images.wondershare.com/filmora/article-images/sources.jpg)
 
 Step 3: It is possible to include windows capture, audio input and webcam as per need.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ include](https://images.wondershare.com/filmora/article-images/include.jpg)
 
 Step 4: Prefer to use default settings for source and then press OK.
@@ -63,9 +54,6 @@ Step 4: Prefer to use default settings for source and then press OK.
 
 Step 5: Once you have done settings for all sources then they must be adjusted on screen in right order.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ![adjust ](https://images.wondershare.com/filmora/article-images/adjust.jpg)
 
 Step 6: You also need to arrange the capture size for your videos. Adjust the right video size.
@@ -80,35 +68,42 @@ Step 1: First of all you need to go to the settings.
 
 ![setting ](https://images.wondershare.com/filmora/article-images/setting.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 2: Now adjust the bit rate, it must be kept below 4000 Kbps and then choose your preferred recording format.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ![ bitrate ](https://images.wondershare.com/filmora/article-images/bitrate.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 3: Make settings for resolution as well as FPS. The desired maximum resolution level is 720p or 1280x720 whereas frame rate must be kept at 30 fps.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![resolution ](https://images.wondershare.com/filmora/article-images/resolution.jpg)
 
 Step 4: Now you need to visit the facebook page and then click on the video, go to publishing tools and then from top right corner hit +Live option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![ facebook](https://images.wondershare.com/filmora/article-images/facebook.jpg)
 
 Step 5: It is time to move to the ‘create live video’ page. You have to copy the stream key from the specified location. Prefer to keep this page open.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![create ](https://images.wondershare.com/filmora/article-images/create.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 6: Now come back to your OBS settings page and choose stream option. From list of services, prefer to choose Facebook Live option and then simply paste the stream key in the specified field on your screen.
 
@@ -122,9 +117,6 @@ Step 1: It is time to hit the button “Start Streaming”.
 
 Step 2: Now move back to your facebook page and then choose to preview.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![click preview ](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
 
 Step 3: It is time to add your title as per preferences, make selection for your targeted audience and once you have finished all settings and testing process then hit button “Go Live”.
@@ -132,18 +124,33 @@ Step 3: It is time to add your title as per preferences, make selection for your
 ![Click Go1 ](https://images.wondershare.com/filmora/article-images/click-go1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![Click Go2](https://images.wondershare.com/filmora/article-images/click-go2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 4: Once your procedure for live streaming is complete then you are free to end the live video anytime over facebook page. The video will be automatically added to your Live video library and you can find it their anytime in future.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ End Live Video](https://images.wondershare.com/filmora/article-images/end-live-video.jpg)
 
 Step 5: This is all about how to live stream your videos over facebook directly from your computer. Hope you will enjoy streaming a new impressive video soon!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Video tutorial
 
@@ -165,11 +172,27 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-step-by-step-tutorial-fb-video-and-apple-tv-combination/"><u>[New] 2024 Approved Step-By-Step Tutorial FB Video & Apple TV Combination</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-fix-facebook-story-not-uploading-problem/"><u>[New] In 2024, Fix Facebook Story Not Uploading Problem</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-go-big-or-go-home-full-screen-fb-videos/"><u>[New] In 2024, Go Big or Go Home Full-Screen FB Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-how-to-livestream-on-facebook-from-android-and-ios/"><u>[New] In 2024, How to Livestream on Facebook From Android and iOS?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-content-strategies-skyrocket-your-ranking/"><u>[New] In 2024, YouTube Content Strategies Skyrocket Your Ranking</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-blocking-the-buzz-no-more-fb-video-ads/"><u>[Updated] Blocking the Buzz No More FB Video Ads</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/3-simple-methods-for-color-correction-in-adobe-photoshop/"><u>3 Simple Methods for Color Correction in Adobe Photoshop</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/change-m4b-audio-format-to-mp4-for-free-using-movavis-online-tool/"><u>Change M4B Audio Format to MP4 for Free Using Movavi's Online Tool</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/effortlesssave-expert-perspective/"><u>EffortlessSave Expert Perspective</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-expert-advice-creating-and-uploading-vr-videos-to-boost-fb-visibility/"><u>In 2024, Expert Advice Creating & Uploading VR Videos to Boost FB Visibility</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-esl-english-as-second-language-for-vr/"><u>In 2024, The ESL (English as Second Language) for VR</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolved-issues-with-creating-a-crash-dump-in-wolfenstein-ii/"><u>Resolved: Issues with Creating a Crash Dump in Wolfenstein II</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-the-latest-in-pc-hardware-with-toms-expertise/"><u>Unveiling the Latest in PC Hardware with Tom's Expertise</u></a></li>
+</ul></div>
+
