@@ -1,7 +1,7 @@
 ---
 title: "[New] Elevate Your Video Presence with Swiftly Created Captions and Text on FB"
-date: 2024-10-26T20:05:50.270Z
-updated: 2024-10-27T22:53:10.543Z
+date: 2024-10-27T16:00:06.136Z
+updated: 2024-11-02T16:23:14.400Z
 tags:
   - ai video
   - ai facebook
@@ -64,13 +64,6 @@ It is also possible to delete Facebook video captions with ease. Click the trash
 
 Save all updates when you are satisfied with preview.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Edit Facebook Video Text/Subtitles with Wondershare Filmora
 
 It is convenient to create captions in Facebook with the automatic generate tool or uploading the .SRT file, but if you want your text/subtitle with more cool visual effects, like dialog balloons, headings, we recommend you to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can easily update intro, credit and captions as well as subtitles to your Facebook videos using Wondershare Filmora tool. If you want to make video for business, here comes [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/). It is a simple to use video editor to make short video on Facebook. You can make amazing Facebook videos. Download it now to have a try!
@@ -78,10 +71,16 @@ It is convenient to create captions in Facebook with the automatic generate tool
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Here are few simple to follow steps
@@ -96,6 +95,13 @@ First if all, you need to add your video file to Wondershare Filmora timeline. N
 
 ![filmora text interface 201704](https://images.wondershare.com/filmora/article-images/filmora-text-interface-201704.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Wondershare Filmora will provide you a wide range of templates for selection of text formats. You can pick any of these as per need.
 
 * **Add Titles:**When you are ready to add titles to your Facebook videos, then simply move to Text/Credit Tab on your software tool, here you will find more than 90 text templates. Choose any of these as per your need and finally drag it to title track available on timeline. Soon you will find a text thumbnail on screen with a letter T. Open text editor panel by double clicking on this text thumbnail and now you can start typing you’re your titles. Make selections for animation, color and font type.
@@ -107,28 +113,28 @@ Once you have finished the text based editing task then hit the Export option av
 
 ![output format](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -146,18 +152,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-10-proven-methods-for-boosting-fb-search-rankings/"><u>[New] 2024 Approved 10 Proven Methods for Boosting FB Search Rankings</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-essential-strategies-for-uninterrupted-facebook-broadcasts/"><u>[New] 2024 Approved Essential Strategies for Uninterrupted Facebook Broadcasts</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-facebook-video-downloader-round-up-1-5-edition-for-2024/"><u>[New] Facebook Video Downloader Round-Up #1-5 Edition for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-secrets-revealed-effective-facebook-video-publishing-techniques-for-2024/"><u>[New] Secrets Revealed Effective Facebook Video Publishing Techniques for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-clickbait-crafting-secrets-to-facebooks-favorites/"><u>[Updated] In 2024, Clickbait Crafting Secrets to Facebook's Favorites</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-fix-facebook-messenger-not-sending-videos-on-iphone-and-android/"><u>2024 Approved Fix “Facebook Messenger Not Sending Videos” On iPhone and Android</u></a></li>
-<li><a href="https://fox-info.techidaily.com/apk-essentials-start-playing-funimate-now/"><u>APK Essentials Start Playing Funimate Now</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ering-camera-fear-paving-the-path-to-youtube-success-for-2024/"><u>Conquering Camera Fear Paving the Path to YouTube Success for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-honor-x7b-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Honor X7b Phone?</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-top-5-oppo-reno-10-5g-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Oppo Reno 10 5G Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/the-pathway-to-pristine-recordings-removing-unwanted-noises-for-crystal-clear-sound-for-2024/"><u>The Pathway to Pristine Recordings Removing Unwanted Noises for Crystal-Clear Sound for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlock-your-honor-magic-5-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Honor Magic 5 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/unlocking-apple-iphone-15-pro-max-lock-screen-3-foolproof-methods-that-actually-work-drfone-by-drfone-ios/"><u>Unlocking Apple iPhone 15 Pro Max Lock Screen 3 Foolproof Methods that Actually Work | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-the-best-hd-video-screen-recorders/"><u>[New] In 2024, The Best HD Video Screen Recorders</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-secure-fb-links-8plus-comprehensive-no-cost-downloaders-for-23/"><u>[New] Secure FB Links 8+ Comprehensive, No-Cost Downloaders for '23</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-budget-friendly-sponsorship-blueprint-for-youtube-enthusiasts-for-2024/"><u>[Updated] Budget-Friendly Sponsorship Blueprint for YouTube Enthusiasts for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-expert-tips-on-producing-high-quality-facebook-video-for-2024/"><u>[Updated] Expert Tips on Producing High-Quality Facebook Video for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-effortless-extraction-of-facebook-hd-vids/"><u>In 2024, Effortless Extraction of Facebook HD Vids</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-unraveling-facebooks-latest-hits-a-rundown-of-top-vids/"><u>In 2024, Unraveling Facebook's Latest Hits A Rundown of Top Vids</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/r-the-art-of-recording-youtube-videos-without-spending/"><u>Master the Art of Recording YouTube Videos Without Spending</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-and-resolving-your-oculus-display-driver-challenges/"><u>Troubleshooting and Resolving Your Oculus Display Driver Challenges</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unveiling-a-top-tier-iphone-ability-you-might-have-missed-out-on-an-insiders-guide/"><u>Unveiling a Top-Tier iPhone Ability You Might Have Missed Out On - An Insider's Guide</u></a></li>
 </ul></div>
 

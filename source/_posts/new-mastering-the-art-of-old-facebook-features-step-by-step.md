@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering the Art of Old Facebook Features  Step-by-Step\""
-date: 2024-10-22T17:46:22.964Z
-updated: 2024-10-27T21:40:23.892Z
+date: 2024-10-31T16:41:54.027Z
+updated: 2024-11-02T17:40:20.903Z
 tags:
   - ai video
   - ai facebook
@@ -56,10 +56,10 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -75,19 +75,6 @@ You can log in to Facebook on a desktop to proceed to watch your old stories. Wh
 Once you click on the story archive, all your **old stories** will appear in sequential order.
 
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
-
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
 
@@ -107,6 +94,13 @@ People make a **series of highlights** and name them accordingly. If the story i
 
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -124,10 +118,10 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
@@ -153,16 +147,10 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -180,19 +168,21 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-navigating-social-networking-videos-your-ultimate-guide-for-appletv-users/"><u>[New] Navigating Social Networking Videos Your Ultimate Guide for AppleTV Users</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-seamless-integration-of-youtube-media-in-gslides/"><u>[Updated] 2024 Approved Seamless Integration of YouTube Media in GSlides</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-harnessing-altitude-live-streaming-with-dji-drones/"><u>[Updated] Harnessing Altitude Live-Streaming with DJI Drones</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-hero4-black-vs-hero4-silver/"><u>[Updated] Hero4 Black Vs Hero4 Silver</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-enabling-seamless-facebook-video-playbacks/"><u>[Updated] In 2024, Enabling Seamless Facebook Video Playbacks</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-the-newest-graphics-drivers-for-nvidia-rtx-2080-on-windows-1178/"><u>Download the Newest Graphics Drivers for NVIDIA RTX 2080 on Windows 11/7/8</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/easy-steps-on-how-to-create-a-new-apple-id-account-on-iphone-xs-max-by-drfone-ios/"><u>Easy Steps on How To Create a New Apple ID Account On iPhone XS Max</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/elevating-visual-experience-big-is-better/"><u>Elevating Visual Experience Big Is Better</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/enhance-fb-story-visibility-with-these-tips/"><u>Enhance FB Story Visibility with These Tips</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/exclusive-7-discreet-media-tools/"><u>Exclusive 7 Discreet Media Tools</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-unleash-your-creativity-3-simple-ways-to-record-video-games/"><u>New Unleash Your Creativity 3 Simple Ways to Record Video Games</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/recuperare-i-file-perduti-strategie-di-ripristino-in-esplora-file/"><u>Recuperare I File Perduti: Strategie Di Ripristino in Esplora File</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722971297554-samsung-m207n0fw-printer-secure-and-speedy-driver-downloads-available-here/"><u>Samsung M207n0FW Printer – Secure and Speedy Driver Downloads Available Here</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/shuttered-creations-sudden-delete-incidents/"><u>Shuttered Creations Sudden Delete Incidents</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-cutting-edge-extraction-the-top-10-sdk-powered-fb-video-downloads-on-android/"><u>[New] 2024 Approved Cutting-Edge Extraction The Top 10 SDK-Powered FB Video Downloads on Android</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-the-path-to-cross-media-popularity-via-television-and-fb-live/"><u>[New] 2024 Approved The Path to Cross-Media Popularity via Television and FB Live</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-from-frame-one-15-key-shot-types-for-film-beginners/"><u>[New] From Frame One 15 Key Shot Types for Film Beginners</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-high-ranking-nintendo-switch-brawlers-index-max-156/"><u>[New] High-Ranking Nintendo Switch Brawlers Index (Max 156)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-music-merger-for-engaging-fb-video-content-for-2024/"><u>[New] The Music Merger for Engaging FB Video Content for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-mastering-video-allure-securing-top-spots-with-the-vimeo-experts/"><u>[Updated] 2024 Approved Mastering Video Allure Securing Top Spots with the Vimeo Experts</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-the-insiders-guide-to-elevating-conference-calls-with-effects-and-masks/"><u>[Updated] In 2024, The Insider's Guide to Elevating Conference Calls with Effects and Masks</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-step-by-step-guide-for-updating-and-changing-social-video-covers/"><u>[Updated] Step-by-Step Guide for Updating and Changing Social Video Covers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-social-media-gurus-guide-to-exceptional-facebook-broadcasts-for-2024/"><u>[Updated] The Social Media Guru's Guide to Exceptional Facebook Broadcasts for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/crafting-the-podcast-intros-captivating-your-audience-from-the-start-for-2024/"><u>Crafting the Podcast Intros Captivating Your Audience From the Start for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/get-the-scoop-on-sonye-upcoming-marvel-the-afeela-automobile-price-predictions-release-timeline-and-more-insights/"><u>Get the Scoop on Sony'e Upcoming Marvel – The Afeela Automobile: Price Predictions, Release Timeline & More Insights 🚗</u></a></li>
+<li><a href="https://games-able.techidaily.com/guide-to-rectify-roblox-error-262/"><u>Guide to Rectify Roblox Error 262</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/harnessing-the-potential-of-precise-web-analytics-the-secret-behind-our-successful-cookiebot-integration/"><u>Harnessing the Potential of Precise Web Analytics: The Secret Behind Our Successful Cookiebot Integration</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-mastering-the-procedure-of-attaining-facebooks-blue-status-badge/"><u>In 2024, Mastering the Procedure of Attaining Facebook's Blue Status Badge</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-navigating-social-networking-videos-your-ultimate-guide-for-appletv-users/"><u>In 2024, Navigating Social Networking Videos Your Ultimate Guide for AppleTV Users</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-samsung-galaxy-f04-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Samsung Galaxy F04 FRP Bypass</u></a></li>
 </ul></div>
 
