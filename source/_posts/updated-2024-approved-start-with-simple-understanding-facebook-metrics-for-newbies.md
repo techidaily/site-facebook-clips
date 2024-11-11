@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Start with Simple  Understanding Facebook Metrics for Newbies\""
-date: 2024-10-20T21:44:59.470Z
-updated: 2024-10-21T17:23:51.460Z
+date: 2024-11-01T07:17:25.774Z
+updated: 2024-11-08T13:21:21.118Z
 tags:
   - ai video
   - ai facebook
@@ -41,13 +41,6 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Where to Find Facebook Insights
 
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
@@ -57,16 +50,10 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 ## Part 3: How to Use Facebook Insights for Beginners
 
 <!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Overview
@@ -97,16 +84,16 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Video Analytics
 
@@ -119,6 +106,13 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
  The Top Videos section shows you the top 5 videos posted by you with more than 3 seconds views. This helps you to analyse the type of video preferred by your audiences.
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. People Analytics
 
@@ -133,10 +127,10 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -148,10 +142,10 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -169,20 +163,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-masterful-tag-utilization-boosting-video-performance/"><u>[New] 2024 Approved Masterful Tag Utilization Boosting Video Performance</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-tech-tips-snagging-your-fb-status-video/"><u>[New] 2024 Approved Tech Tips Snagging Your FB Status Video</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-ignite-your-narratives-complimentary-fb-apps-for-everyday-users-for-2024/"><u>[New] Ignite Your Narratives Complimentary FB Apps for Everyday Users for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-maximizing-video-reach-sharing-youtube-content-via-facebook-network/"><u>[New] Maximizing Video Reach Sharing YouTube Content via Facebook Network</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-resolve-non-playing-facebook-video-issues-androidios/"><u>[Updated] In 2024, Resolve Non-Playing Facebook Video Issues (Android/iOS)</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-rank-the-best-tools-top-8-apps-to-increase-likes-on-fb/"><u>2024 Approved Rank the Best Tools Top 8 Apps to Increase Likes on FB</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/discovering-huggingchat-gratis-transparent-replacement-to-gpt/"><u>Discovering HuggingChat: Gratis, Transparent Replacement to GPT</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-clear-cuts-for-chilling-youtube-content-no-more-silent-lapses/"><u>In 2024, Clear Cuts for Chilling YouTube Content – No More Silent Lapses</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-detailed-guide-on-removing-apple-iphone-13-mini-activation-lock-without-previous-owner-by-drfone-ios/"><u>In 2024, Detailed Guide on Removing Apple iPhone 13 mini Activation Lock without Previous Owner?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-tecno-camon-20-pro-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Tecno Camon 20 Pro 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-premium-8-editors-compatible-with-linux/"><u>In 2024, Premium 8 Editors Compatible with Linux</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-thriving-in-the-digital-space-crafting-high-impact-fb-videos/"><u>In 2024, Thriving in the Digital Space Crafting High-Impact FB Videos</u></a></li>
-<li><a href="https://common-error.techidaily.com/the-ultimate-fix-for-slow-shutdowns-on-windows-11-devices/"><u>The Ultimate Fix for Slow Shutdowns on Windows 11 Devices</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/windows-11-optimizado-conversor-de-dvd-a-mp4-gratuito-y-eficiente-por-winx/"><u>Windows 11 Optimizado: Conversor De DVD a MP4 Gratuito Y Eficiente Por WinX</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-getting-comfortable-with-zoom-a-beginners-tutorial-for-2024/"><u>[New] Getting Comfortable with Zoom A Beginner’s Tutorial for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-navigating-instagrams-self-verification-maze/"><u>[New] In 2024, Navigating Instagram's Self-Verification Maze</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-step-by-step-fb-video-conversion-to-mp3-format/"><u>[New] In 2024, Step-by-Step FB Video Conversion to MP3 Format</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-instagram-story-width-height-run-time-for-2024/"><u>[New] Instagram Story Width, Height, Run Time for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-engaging-audiences-facebook-live-meets-tv/"><u>[Updated] 2024 Approved Engaging Audiences Facebook Live Meets TV</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-deciphering-the-art-of-reversed-visual-searches-online-fb-for-2024/"><u>[Updated] Deciphering the Art of Reversed Visual Searches Online (FB) for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-dive-deep-into-sims-4-gameplay-with-videography-for-2024/"><u>[Updated] Dive Deep Into Sims 4 Gameplay with Videography for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-enhance-your-fb-with-iphonesandroids-favorite-tunes/"><u>[Updated] Enhance Your FB with iPhones/Androids' Favorite Tunes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-incorinasmatic-mix-sharing-songs-in-social-spaces-for-2024/"><u>[Updated] Incorinasmatic Mix Sharing Songs in Social Spaces for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-deciphering-social-media-copyright-laws-including-fb/"><u>2024 Approved Deciphering Social Media Copyright Laws, Including FB</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-the-secret-to-using-facebooks-messenger-alone-without-a-facebook-profile/"><u>Discover the Secret to Using Facebook's Messenger Alone, Without a Facebook Profile</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/efficient-writing-techniques-for-impactful-ad-creation/"><u>Efficient Writing Techniques for Impactful Ad Creation</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-11-pro-max-online-here-are-6-easy-ways-by-drfone-ios/"><u>How to Unlock Apple iPhone 11 Pro Max Online? Here are 6 Easy Ways</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-immersive-storytelling-through-total-environmental-capture/"><u>In 2024, Immersive Storytelling Through Total Environmental Capture</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigating-the-world-of-laughter-how-to-create-memes-on-9gag-for-2024/"><u>Navigating the World of Laughter How to Create Memes on 9GAG for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-mkv-movies-on-motorola-moto-g14-is-it-possible-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Play MKV movies on Motorola Moto G14, is it possible?</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-12-pro-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 12 Pro Data From iOS iTunes | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/stop-ipadiphone-from-freezing-during-fb-playback/"><u>Stop iPad/iPhone From Freezing During FB Playback</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/streamlining-social-media-interactions-tiktok-to-fb/"><u>Streamlining Social Media Interactions TikTok to FB</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unmarked Eyes  Facebook Story Viewer\""
-date: 2024-10-29T17:41:36.890Z
-updated: 2024-11-02T16:44:19.088Z
+date: 2024-11-01T22:08:09.113Z
+updated: 2024-11-07T21:28:46.503Z
 tags:
   - ai video
   - ai facebook
@@ -59,6 +59,13 @@ Just like you can upload something on your story for others to see, you can also
 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: How to View Someone's Facebook Story Anonymously? \[ 4 Ways\]
 
 ### Method 1: Turn on the Airplane Mode
@@ -71,14 +78,20 @@ When you turn on the airplane mode of your device, your phone will no longer be 
 
 ![View Facebok Story anonymously via offline ](https://images.wondershare.com/filmora/article-images/view-facebook-story-anonymously-via-offline.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Once you are done, force close the Facebook application so that it doesn't run in the background when you disable the Airplane Mode. Because if you do that, your name can get registered. So, close the app completely. Please note that when the Airplane mode is on, some stories will not load. To watch them, you need to turn on and off the airplane mode again.
+
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: Half Swipe
 
@@ -90,13 +103,6 @@ As the name suggests, rather than watching the entire story, you need to stop wa
 
 **Step 3:** Quickly swipe right or left and make sure the story doesn't end. This way, Facebook won't register you.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 3: Block Them
 
 This is another method to stop appearing as one of the viewers. This method will let you view the whole story; however, since it involves blocking the user, they will be removed from your friend list completely. So, try it if only you are fine with removing that person from your friends' list. Here's how to follow this method:
@@ -104,13 +110,6 @@ This is another method to stop appearing as one of the viewers. This method will
 **Step 1:** Go to your Facebook account and log in, and then **c**lick on the story that you want to see.
 
 **Step 2:** Once done, block the person. If you want, you can unblock them after 24 hours.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 4: Deactivate your Facebook Account to View Story Anonymously
 
@@ -127,28 +126,28 @@ For the last resort, you can deactivate your account and reactivate it after a w
 Once 24 hours is over, you can log in to reactive your account.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How Do I See Someone's Story on Facebook?
 
 There are three easy ways to see someone's story on Facebook. One way is to use the web browser of your pc or Mac, the second is exploring Facebook stories on Facebook Messenger, and the third is by using the Facebook mobile app. We will discuss these three methods below.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 1: View Facebook Stories through the Website Browser
 
 **Step 1:** Use any of the browsers on your computer and visit Facebook.Log in, and the home page will be displayed. On the top, you will see the stories.
 
 **Step 2:** Click on any of the stories to view them.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: View Facebook Story Through Facebook Messenger
 
@@ -158,6 +157,13 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 
 ![View Facebok Story via Messenger](https://images.wondershare.com/filmora/article-images/view-facebook-story-messenger.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 3: Open Facebook Mobile App to View Stories
 
 **Step 1:** Launch the Facebook mobile application. You will be directly taken to the home page. On top, you will see the story section.
@@ -165,6 +171,13 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 **Step 2:** Please click on any of the stories that you want to see.
 
 ![View Facebok Story on mobile](https://images.wondershare.com/filmora/article-images/view-facebook-story-mobile-app.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Check Facebook Story Views?
 
@@ -206,13 +219,6 @@ Yes, just like you can see who viewed your Facebook story, others can also check
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -228,18 +234,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-premium-enterprise-sky-saver-guide/"><u>[New] Premium Enterprise Sky Saver Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-efficient-ways-to-download-and-store-youtube-like-tweet-videos/"><u>[Updated] In 2024, Efficient Ways to Download and Store YouTube-Like Tweet Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-breaking-down-how-to-find-your-latest-watched-fb-content/"><u>2024 Approved Breaking Down How to Find Your Latest Watched FB Content</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-dial-up-dislikes-flip-the-script-with-square-content-creation/"><u>2024 Approved Dial Up Dislikes? Flip the Script with Square Content Creation</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-from-snapshots-to-spectacular-exploring-polarrs-edits-deeply/"><u>2024 Approved From Snapshots to Spectacular Exploring Polarr's Edits Deeply</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-revolutionary-free-fb-story-magicians-for-extensions-and-mobile/"><u>2024 Approved Revolutionary Free FB Story Magicians for Extensions & Mobile</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/avatar-asymmetry-artistry-designing-your-animated-look-for-2024/"><u>Avatar Asymmetry Artistry Designing Your Animated Look for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/comparative-study-on-vlc-video-capture/"><u>Comparative Study on VLC Video Capture</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/discovering-facebooks-quintessential-updates-for-2024/"><u>Discovering Facebook's Quintessential Updates for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/effective-method-for-adding-music-to-facebook-iphone/"><u>Effective Method for Adding Music to Facebook (iPhone)</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Poco M6 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/simplified-purchasing-how-smartphones-revolutionize-the-way-you-buy-pre-owned-cars/"><u>Simplified Purchasing: How Smartphones Revolutionize the Way You Buy Pre-Owned Cars</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-shorts-description-everything-you-need-to-know-for-2024/"><u>YouTube Shorts Description Everything You Need to Know for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-boosting-sales-via-high-roi-animated-fb-ad-campaigns/"><u>[New] 2024 Approved Boosting Sales via High-ROI Animated FB Ad Campaigns</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-music-on-the-move-top-10-vids-dominating-fb-feed/"><u>[New] Music on the Move Top 10 Vids Dominating FB Feed</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-fb-profile-snap-intro-dimensions-file-type-duration/"><u>[Updated] FB Profile Snap Intro Dimensions, File Type, Duration</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-fb-slideshow-101-a-beginners-guide-for-2024/"><u>[Updated] FB Slideshow 101 A Beginner's Guide for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-roku-meets-social-media-watching-facebook-live-effortlessly/"><u>[Updated] In 2024, Roku Meets Social Media Watching Facebook Live Effortlessly</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-innovative-ideas-for-fb-slideshow-creations/"><u>[Updated] Innovative Ideas for FB Slideshow Creations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-key-platforms-ranking-the-best-6-sites-for-business-interaction-for-2024/"><u>[Updated] Key Platforms Ranking the Best 6 Sites for Business Interaction for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-free-top-10-subtitles-tools-srt-file-transformers/"><u>2024 Approved Free Top 10 Subtitles Tools SRT File Transformers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-essential-guide-to-fb-status-video-downloads/"><u>2024 Approved The Essential Guide to FB Status Video Downloads</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/fundamental-constructs-in-creating-effective-fb-ad-copy/"><u>Fundamental Constructs in Creating Effective FB Ad Copy</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-fusing-iphones-media-for-cohesive-outputs/"><u>In 2024, Fusing iPhones' Media for Cohesive Outputs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-gopro-quest-finding-the-perfect-model/"><u>In 2024, Gopro Quest Finding the Perfect Model</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/in-depth-reviews-at-toms-technology-corner-your-guide-to-hardware-and-software/"><u>In-Depth Reviews at Tom's Technology Corner: Your Guide to Hardware and Software</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/inverting-motion-on-snapchat-a-complete-breakdown-for-2024/"><u>Inverting Motion on Snapchat A Complete Breakdown for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-your-smart-tv-purchase-expert-advice-on-the-7-critical-aspects-to-review/"><u>Mastering Your Smart TV Purchase: Expert Advice on the 7 Critical Aspects to Review</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-premium-showdown-how-the-ipad-air-4-stacks-up-to-the-samsung-galaxy-tab-s7plus/"><u>The Premium Showdown: How the iPad Air 4 Stacks Up to the Samsung Galaxy Tab S7+</u></a></li>
 </ul></div>
 

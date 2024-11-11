@@ -1,7 +1,7 @@
 ---
 title: "Simplified Approach to Decoding Facebook Statistics"
-date: 2024-10-19T02:48:21.854Z
-updated: 2024-10-22T00:45:16.224Z
+date: 2024-11-06T20:02:11.752Z
+updated: 2024-11-08T11:31:40.173Z
 tags:
   - ai video
   - ai facebook
@@ -41,6 +41,13 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
 
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Where to Find Facebook Insights
 
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
@@ -78,21 +85,22 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Video Analytics
 
@@ -107,17 +115,10 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. People Analytics
@@ -132,27 +133,20 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
 
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
  Measuring the success of your Facebook page and posts is now easy with Facebook Insights. Keep a track of your posts and preferences of your audiences and run the campaigns successfully. Follow the above points to use the Facebook Insights without any confusion.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -169,20 +163,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-breaking-into-the-digital-age-mobile-streaming-on-facebook/"><u>[New] 2024 Approved Breaking Into the Digital Age Mobile Streaming on Facebook</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-boosting-roi-in-fb-ads-through-animation-techniques/"><u>[New] Boosting ROI in FB Ads Through Animation Techniques</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-turn-fb-hd-videos-into-high-quality-mp4-free-online-method-unveiled/"><u>[New] In 2024, Turn FB HD Videos Into High-Quality MP4 – Free Online Method Unveiled</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-understanding-fbs-rules-for-immediate-video-removal/"><u>[New] Understanding FB’s Rules for Immediate Video Removal</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unravel-the-mysteries-of-efficient-story-connectivity/"><u>[Updated] 2024 Approved Unravel the Mysteries of Efficient Story Connectivity</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-insta-videography-dimensions-for-the-ultimate-visual-impact/"><u>[Updated] Insta Videography Dimensions for the Ultimate Visual Impact</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-masterful-archive-of-twitter-animations-at-your-fingertips-for-2024/"><u>[Updated] Masterful Archive of Twitter Animations at Your Fingertips for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/banish-installation-problems-enjoy-playing-minecraft-on-windows-11-today/"><u>Banish Installation Problems: Enjoy Playing Minecraft on Windows 11 Today</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/fb-call-video-logging-essential-steps-in-4-ways-for-2024/"><u>FB Call Video Logging - Essential Steps in 4 Ways for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on OnePlus Ace 3 | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-extract-and-save-fb-videos-on-pcmac-anywhere/"><u>In 2024, Extract & Save FB Videos on PC/Mac, Anywhere</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-xiaomi-redmi-k70e-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Xiaomi Redmi K70E Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-step-by-step-for-turning-insta-videos-into-mp3s/"><u>In 2024, Step-by-Step for Turning Insta Videos Into MP3s</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-to-running-two-apps-simultaneeusly-on-a-macbook-air/"><u>The Ultimate Guide to Running Two Apps Simultaneeusly on a MacBook Air</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-vn-video-editor-app-review-is-it-worth-downloading-in-2024/"><u>Updated VN Video Editor App Review Is It Worth Downloading, In 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-pick-your-favorite-top-ios-apps-for-facebook-video-loading/"><u>[New] 2024 Approved Pick Your Favorite Top iOS Apps for Facebook Video Loading</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-from-ordinary-to-outstanding-unveiling-the-secrets-of-engaging-biographies/"><u>[New] In 2024, From Ordinary to Outstanding Unveiling the Secrets of Engaging Biographies</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-making-memorable-impressions-with-fb-slideshow-features/"><u>[New] Making Memorable Impressions with FB Slideshow Features</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unveiling-a-simple-yet-powerful-copywriting-model-for-ads/"><u>[New] Unveiling a Simple, Yet Powerful Copywriting Model for Ads</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-choose-your-vlog-aspect-on-fb-verticalhorizontal/"><u>[Updated] 2024 Approved Choose Your Vlog Aspect on FB Vertical/Horizontal</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-capturing-every-moment-in-motion-with-polaroids-new-release/"><u>[Updated] In 2024, Capturing Every Moment in Motion with Polaroid's New Release</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-xiaomi-11-a-new-era-of-high-fidelity-video-recording/"><u>[Updated] In 2024, Xiaomi 11 A New Era of High Fidelity Video Recording</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlocking-crypto-potential-the-ultimate-list-of-nft-engines/"><u>[Updated] Unlocking Crypto Potential The Ultimate List of NFT Engines</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unlocking-the-secrets-of-reversed-visual-exploration-online-facebook-for-2024/"><u>[Updated] Unlocking the Secrets of Reversed Visual Exploration Online (Facebook) for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-expert-mp4-to-fb-migration-tool/"><u>2024 Approved Expert MP4 To-FB Migration Tool</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/avoid-facebooks-targeted-video-promotions/"><u>Avoid Facebook's Targeted Video Promotions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/conversione-libera-di-file-mod-in-wmv-su-internet-con-moveavi-easyconvert/"><u>Conversione Libera Di File MOD in WMV Su Internet Con MOVEAVI - EasyConvert</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/explore-the-ultimate-list-of-free-youtube-channel-starters-for-2024/"><u>Explore the Ultimate List of Free YouTube Channel Starters for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-change-country-on-app-store-for-iphone-12-pro-max-with-7-methods-by-drfone-ios/"><u>How To Change Country on App Store for iPhone 12 Pro Max With 7 Methods</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-activation-lock-and-icloud-account-on-iphone-6-by-drfone-ios/"><u>In 2024, How to Unlock iCloud Activation Lock and iCloud Account On iPhone 6?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-superior-fb-video-player-reviews-10-to-1/"><u>In 2024, Superior FB Video Player Reviews #10 to #1</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-realme-c55-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from Realme C55</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshoot-your-lenovo-mouse-pad-on-windows-11-8-and-7-complete-fix-guide/"><u>Troubleshoot Your Lenovo Mouse Pad on Windows 11, 8 & 7 – Complete Fix Guide</u></a></li>
+<li><a href="https://driver-install.techidaily.com/ultimate-printer-software-epson-et-2650-usb/"><u>Ultimate Printer Software: Epson ET-2650 USB</u></a></li>
 </ul></div>
 
