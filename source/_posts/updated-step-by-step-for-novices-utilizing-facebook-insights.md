@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step for Novices  Utilizing Facebook Insights\""
-date: 2024-11-03T20:50:20.732Z
-updated: 2024-11-07T20:18:01.734Z
+date: 2024-11-10T00:59:42.742Z
+updated: 2024-11-10T21:40:17.175Z
 tags:
   - ai video
   - ai facebook
@@ -41,19 +41,6 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
 
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Where to Find Facebook Insights
 
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
@@ -62,13 +49,6 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
 
 ## Part 3: How to Use Facebook Insights for Beginners
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Overview
 
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
@@ -76,10 +56,10 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Page Likes
@@ -105,10 +85,17 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Post Promotion
@@ -126,6 +113,13 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
  The Top Videos section shows you the top 5 videos posted by you with more than 3 seconds views. This helps you to analyse the type of video preferred by your audiences.
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. People Analytics
 
@@ -145,20 +139,14 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -175,20 +163,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-cutting-edge-strategies-for-flawless-custom-shorts-coverage/"><u>[New] 2024 Approved Cutting-Edge Strategies for Flawless Custom Shorts Coverage</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-perfecting-npc-details-with-zoom-in-on-roblox/"><u>[New] 2024 Approved Perfecting NPC Details with Zoom In on Roblox</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-vidgrabber-mobilepc-for-fb-streams/"><u>[New] 2024 Approved VidGrabber Mobile/PC for Fb Streams</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-hot-takes-top-ten-video-hits-from-social-media-giants/"><u>[New] Hot Takes Top Ten Video Hits From Social Media Giants</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-linkedin-image-aspect-ratios-explained/"><u>[New] In 2024, LinkedIn Image Aspect Ratios Explained</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-facilitating-instant-sharing-tiktok-videos-on-facebook-for-2024/"><u>[Updated] Facilitating Instant Sharing TikTok Videos on Facebook for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-building-brand-loyalty-crafting-striking-fb-videos/"><u>[Updated] In 2024, Building Brand Loyalty Crafting Striking FB Videos</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-how-to-fix-obs-not-recording-audio/"><u>[Updated] In 2024, How to Fix OBS Not Recording Audio</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/how-to-captivate-audiences-with-fb-live-todays-way/"><u>How to Captivate Audiences with FB Live, Today's Way</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Vivo V27 | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-the-art-of-attracting-and-managing-brands-as-affiliates-on-youtube/"><u>In 2024, Mastering the Art of Attracting and Managing Brands as Affiliates on YouTube</u></a></li>
-<li><a href="https://fox-links.techidaily.com/mastering-drones-key-parts-for-peak-performance/"><u>Mastering Drones Key Parts for Peak Performance</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-elevate-your-videos-how-to-use-picture-in-picture-in-final-cut-pro-for-2024/"><u>New Elevate Your Videos How to Use Picture-in-Picture in Final Cut Pro for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/slowing-the-spree-of-lifes-speed-in-your-windowed-world/"><u>Slowing the Spree of Life’s Speed in Your Windowed World</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/streaming-facebook-made-easy-pcmaclaptop-tips-and-tricks-for-2024/"><u>Streaming Facebook Made Easy PC/Mac/Laptop Tips and Tricks for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-digital-dexterity-fine-tuning-funny-videos-for-facebook-and-insta-laughs/"><u>[New] 2024 Approved Digital Dexterity Fine-Tuning Funny Videos for Facebook and Insta Laughs</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-enhancing-photographic-expression-through-snapchat-edits/"><u>[New] 2024 Approved Enhancing Photographic Expression Through Snapchat Edits</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-resolve-fb-live-failure-video-not-posting/"><u>[New] 2024 Approved Resolve FB Live Failure Video Not Posting</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-dive-into-group-chats-joining-zoom-meetings-on-phone-for-2024/"><u>[New] Dive Into Group Chats Joining Zoom Meetings on Phone for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-exploringexcellentcameraspost-mycam-for-2024/"><u>[New] ExploringExcellentCamerasPost-MyCam for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-flipping-the-script-on-memes-with-kinemaster-for-2024/"><u>[New] Flipping the Script on Memes with KineMaster for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-the-dawn-of-a-new-era-key-fb-ad-trends-arriving/"><u>[Updated] 2024 Approved The Dawn of a New Era Key FB Ad Trends Arriving</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-charting-the-course-through-facebooks-most-watched-vids-for-2024/"><u>[Updated] Charting the Course Through Facebook's Most Watched Vids for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-fb-video-downloader-seamless-mp4-conversion/"><u>[Updated] In 2024, FB Video Downloader Seamless MP4 Conversion</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-optimal-mp4-to-fb-video-solution-for-2024/"><u>[Updated] Optimal MP4-to-FB Video Solution for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-oppo-a1-5g-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Oppo A1 5G System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-to-the-rescue-effective-strategies-for-troubleshooting-computer-issues/"><u>ChatGPT to the Rescue: Effective Strategies for Troubleshooting Computer Issues</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1726027737504-google-classroom/"><u>Google Classroom 動画問題 - 添付・提出・再生できない原因の特定と改善策</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-integrating-multimedia-elements-for-engaging-facebook-slideshows/"><u>In 2024, Integrating Multimedia Elements for Engaging Facebook Slideshows</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-complete-manual-for-modifying-cover-images/"><u>The Complete Manual for Modifying Cover Images</u></a></li>
 </ul></div>
 

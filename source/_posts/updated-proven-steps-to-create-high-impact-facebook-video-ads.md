@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Proven Steps to Create High-Impact Facebook Video Ads\""
-date: 2024-11-04T05:18:49.728Z
-updated: 2024-11-08T00:18:11.677Z
+date: 2024-11-03T21:26:13.834Z
+updated: 2024-11-10T20:09:17.825Z
 tags:
   - ai video
   - ai facebook
@@ -44,10 +44,16 @@ thumbnail: https://www.lifewire.com/thmb/wfNT36IciljH0ezohkFihnWQntE=/540x405/fi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Before Making Facebook Video Ads
@@ -70,6 +76,13 @@ thumbnail: https://www.lifewire.com/thmb/wfNT36IciljH0ezohkFihnWQntE=/540x405/fi
 
 ![facebook video audience retention ]( https://images.wondershare.com/filmora/article-images/facebook-video-audience-retention.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Facebook platform stay loaded with numbers if videos so people cannot interact equally with all of them. Thus, it is important to create a video that can force viewers to make quick decision about whether this particular video must be watched or not. In order to leave the best impression on viewer’s mind, every video ad must have two major characteristics: It should not have length more than 20 seconds, content must be capable enough to catch attention within first 2, 3 seconds. Here are few common mistakes for low rating of certain videos ads:
 
 * They have long annoying intro at the beginning.
@@ -83,10 +96,10 @@ thumbnail: https://www.lifewire.com/thmb/wfNT36IciljH0ezohkFihnWQntE=/540x405/fi
 ![Facebook Video ads thumbnail](https://images.wondershare.com/filmora/article-images/facebook-video-custom-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Note that most of the facebook users prefer to deactivate video autoplay options on their profile so they must be encouraged to play your video. The best trigger can be added with an eye catching thumbnail. Facebook platform allow users to create eye catching thumbnail from wide selection of images captured from video frames itself. You can also pick your own image to be uploaded as a thumbnail and to do this you have to follow the custom thumbnail area button. In order to create best impact, it is good to select thumbnail image with aspect ratio same as that of the video.
@@ -105,13 +118,6 @@ thumbnail: https://www.lifewire.com/thmb/wfNT36IciljH0ezohkFihnWQntE=/540x405/fi
 
 ![Facebook Video Third Lower Text](https://images.wondershare.com/filmora/article-images/facebook-video-third-lower-text.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Adding text on video ads is really a good idea because it helps to highlight the salient points with ease. When lower thirds are added to the videos then viewers can easily go ahead with your content and pick the major details. Although, this information is named as Lower Thirds but these messages can be placed at any portion of your video ad screen. The key is to work with your favourite video editing program that can add text impressively.
 
 #### 5. Include a Compelling Offer
@@ -121,10 +127,10 @@ thumbnail: https://www.lifewire.com/thmb/wfNT36IciljH0ezohkFihnWQntE=/540x405/fi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -142,20 +148,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2023s-leading-cost-free-fb-picture-and-video-developer-tools-for-2024/"><u>[New] 2023'S Leading, Cost-Free FB Picture and Video Developer Tools for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-how-to-expertly-archive-your-favorite-streamed-shows-hulu/"><u>[New] In 2024, How To Expertly Archive Your Favorite Streamed Shows (Hulu)</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-mastering-visual-identity-top-6-sources-for-youtube-icons-and-logos/"><u>[New] In 2024, Mastering Visual Identity Top 6 Sources for YouTube Icons & Logos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-address-webview-compatibility-for-fb-streaming/"><u>[Updated] 2024 Approved Address WebView Compatibility for FB Streaming</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-art-of-image-detection-opposite-on-facebook-networks/"><u>[Updated] 2024 Approved The Art of Image Detection Opposite on Facebook Networks</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-timeless-treasures-accessing-fbs-historic-stories/"><u>[Updated] In 2024, Timeless Treasures Accessing FB's Historic Stories</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-maximizing-hd-playback-on-social-media-fb/"><u>[Updated] Maximizing HD Playback on Social Media (FB)</u></a></li>
-<li><a href="https://article-posts.techidaily.com/35-hilarious-image-editing-software-for-smartphones-and-pcs/"><u>35 Hilarious Image Editing Software for Smartphones & PCs</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/guia-completa-para-convertir-aac-a-3gp-en-internet-sin-costes-con-la-herramienta-de-movavi-mejoras-eficiencia-tiempos-de-conversion/"><u>Guía Completa Para Convertir AAC a 3GP en Internet Sin Costes Con La Herramienta De Movavi: Mejoras, Eficiencia, Tiempos De Conversión</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-unleash-creative-potential-with-a-comprehensive-guide-to-ps-background-removal/"><u>In 2024, Unleash Creative Potential with a Comprehensive Guide to PS Background Removal</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/live-streaming-pro-manycam-advanced-video-editing-and-virtual-camera-solutions/"><u>Live Streaming Pro - ManyCam: Advanced Video Editing and Virtual Camera Solutions</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/pull-mp3-tracks-from-your-fb-video-watchlist/"><u>Pull MP3 Tracks From Your FB Video Watchlist</u></a></li>
-<li><a href="https://extra-information.techidaily.com/saving-on-cloud-space-expenses-detailed-analysis-and-tips/"><u>Saving on Cloud Space Expenses Detailed Analysis & Tips</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/sweeping-vistas-with-your-iphone-social-media-360-tips-for-2024/"><u>Sweeping Vistas with Your iPhone Social Media 360 Tips for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/techniques-for-concealing-your-ai-dialogues-intact/"><u>Techniques for Concealing Your AI Dialogues Intact</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-instant-upload-tiktok-vids-to-your-fb-page-easily-for-2024/"><u>[New] Instant Upload TikTok Vids to Your FB Page Easily for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-beat-the-hurdle-best-video-extractors-for-your-iphoneipad-from-fb-for-2024/"><u>[Updated] Beat the Hurdle Best Video Extractors for Your iPhone/iPad From FB for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-efficient-facebook-video-upload-on-computer-and-mobile-systems-for-2024/"><u>[Updated] Efficient Facebook Video Upload on Computer & Mobile Systems for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-enhance-youtube-creations-with-soundtrack-perfection-guide/"><u>[Updated] Enhance YouTube Creations with Soundtrack Perfection Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-elevate-engagement-escalate-ranks-on-fb-pages/"><u>2024 Approved Elevate Engagement, Escalate Ranks on FB Pages</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-vivo-v29e-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-pick-your-favorite-top-ios-apps-for-facebook-video-loading/"><u>In 2024, Pick Your Favorite Top iOS Apps for Facebook Video Loading</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/iphone-shot-success-adopt-these-10-key-photographic-rules/"><u>IPhone Shot Success Adopt These 10 Key Photographic Rules</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-5-non-root-required-clicking-automation-apps-on-android-devices/"><u>Top 5 Non-Root Required Clicking Automation Apps on Android Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-unveiling-the-power-of-dji-mavic-air-2-a-comprehensive-overview/"><u>Ultimate Guide: Unveiling the Power of DJI Mavic Air 2 - A Comprehensive Overview</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlocking-the-secrets-a-comprehensive-overview-of-snapchat-emojis/"><u>Unlocking the Secrets: A Comprehensive Overview of Snapchat Emojis</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
 </ul></div>
 

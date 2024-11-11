@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Start with Simple  Understanding Facebook Metrics for Newbies\""
-date: 2024-11-01T07:17:25.774Z
-updated: 2024-11-08T13:21:21.118Z
+date: 2024-11-06T04:14:19.110Z
+updated: 2024-11-10T16:13:55.451Z
 tags:
   - ai video
   - ai facebook
@@ -49,18 +49,18 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 
 ## Part 3: How to Use Facebook Insights for Beginners
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Overview
 
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
 
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Page Likes
 
@@ -84,16 +84,16 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Video Analytics
 
@@ -108,10 +108,17 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. People Analytics
@@ -127,10 +134,10 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -140,13 +147,6 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -163,24 +163,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-getting-comfortable-with-zoom-a-beginners-tutorial-for-2024/"><u>[New] Getting Comfortable with Zoom A Beginner’s Tutorial for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-navigating-instagrams-self-verification-maze/"><u>[New] In 2024, Navigating Instagram's Self-Verification Maze</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-step-by-step-fb-video-conversion-to-mp3-format/"><u>[New] In 2024, Step-by-Step FB Video Conversion to MP3 Format</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-instagram-story-width-height-run-time-for-2024/"><u>[New] Instagram Story Width, Height, Run Time for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-engaging-audiences-facebook-live-meets-tv/"><u>[Updated] 2024 Approved Engaging Audiences Facebook Live Meets TV</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-deciphering-the-art-of-reversed-visual-searches-online-fb-for-2024/"><u>[Updated] Deciphering the Art of Reversed Visual Searches Online (FB) for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-dive-deep-into-sims-4-gameplay-with-videography-for-2024/"><u>[Updated] Dive Deep Into Sims 4 Gameplay with Videography for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-enhance-your-fb-with-iphonesandroids-favorite-tunes/"><u>[Updated] Enhance Your FB with iPhones/Androids' Favorite Tunes</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-incorinasmatic-mix-sharing-songs-in-social-spaces-for-2024/"><u>[Updated] Incorinasmatic Mix Sharing Songs in Social Spaces for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-deciphering-social-media-copyright-laws-including-fb/"><u>2024 Approved Deciphering Social Media Copyright Laws, Including FB</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/discover-the-secret-to-using-facebooks-messenger-alone-without-a-facebook-profile/"><u>Discover the Secret to Using Facebook's Messenger Alone, Without a Facebook Profile</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/efficient-writing-techniques-for-impactful-ad-creation/"><u>Efficient Writing Techniques for Impactful Ad Creation</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-11-pro-max-online-here-are-6-easy-ways-by-drfone-ios/"><u>How to Unlock Apple iPhone 11 Pro Max Online? Here are 6 Easy Ways</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-immersive-storytelling-through-total-environmental-capture/"><u>In 2024, Immersive Storytelling Through Total Environmental Capture</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/navigating-the-world-of-laughter-how-to-create-memes-on-9gag-for-2024/"><u>Navigating the World of Laughter How to Create Memes on 9GAG for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/play-mkv-movies-on-motorola-moto-g14-is-it-possible-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Play MKV movies on Motorola Moto G14, is it possible?</u></a></li>
-<li><a href="https://techidaily.com/recover-apple-iphone-12-pro-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 12 Pro Data From iOS iTunes | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/stop-ipadiphone-from-freezing-during-fb-playback/"><u>Stop iPad/iPhone From Freezing During FB Playback</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/streamlining-social-media-interactions-tiktok-to-fb/"><u>Streamlining Social Media Interactions TikTok to FB</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-visualloger-12-professional/"><u>[New] 2024 Approved VisualLoger 12 Professional</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-innovative-techniques-for-captivating-fb-video-content/"><u>[New] Innovative Techniques for Captivating FB Video Content</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-essential-fb-movie-downloads-for-23-list-8/"><u>[Updated] 2024 Approved Essential FB Movie Downloads for '23 List #8</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-discovery-the-leading-five-in-fb-vids-worldwide-for-2024/"><u>[Updated] Discovery The Leading Five in FB Vids Worldwide for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-seeing-my-friends-video-and-pics-on-chat-apps/"><u>[Updated] In 2024, Seeing My Friends' Video and Pics on Chat Apps</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-future-of-virtual-showrooms/"><u>[Updated] The Future of Virtual Showrooms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-creator-toolkit-commanding-video-kingdoms/"><u>[Updated] The Ultimate Creator Toolkit Commanding Video Kingdoms</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-unlocking-composition-magic-with-blend-modes-techniques-for-2024/"><u>[Updated] Unlocking Composition Magic with Blend Modes Techniques for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-transform-your-chronicles-free-extensions-and-mobile-apps-galore/"><u>2024 Approved Transform Your Chronicles FREE Extensions & Mobile Apps Galore</u></a></li>
+<li><a href="https://fox-place.techidaily.com/beste-zugabezeit-loser-furs-xxclone-erweckt-ihr-portal-in-kompletten-steinrausch/"><u>BESTE ZUGABEZEIT-LÖSER FÜRS XXClone: ERWECKT IHR PORTAL IN KOMPLETTEN STEINRAUSCH!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/essential-framework-for-targeted-ad-messaging-on-fb/"><u>Essential Framework for Targeted Ad Messaging on FB</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/fast-track-guide-overcoming-amazon-primes-error/"><u>Fast Track Guide: Overcoming Amazon Prime's Error</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-earn-facebooks-trusted-prestigious-symbol-for-2024/"><u>How to Earn Facebook's Trusted, Prestigious Symbol for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Realme Narzo 60 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/seamless-conversion-guide-upgrading-your-dvd-collection-to-premium-mkv-quality/"><u>Seamless Conversion Guide: Upgrading Your DVD Collection to Premium MKV Quality</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/secret-social-scrolls-best-kept-facebook-memes/"><u>Secret Social Scrolls Best-Kept Facebook Memes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/streamlining-your-subtitle-workflow-with-leading-online-tools-for-2024/"><u>Streamlining Your Subtitle Workflow with Leading Online Tools for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-guide-for-steams-fatal-error-unable-to-communicate-with-client/"><u>Troubleshooting Guide for Steam’s 'Fatal Error': Unable to Communicate with Client</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/webclipper-facebook-videos-for-2024/"><u>WebClipper - Facebook Videos for 2024</u></a></li>
 </ul></div>
 
