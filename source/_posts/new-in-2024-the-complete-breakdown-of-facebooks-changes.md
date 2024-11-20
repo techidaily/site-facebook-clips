@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Complete Breakdown of Facebook's Changes"
-date: 2024-11-05T17:26:50.197Z
-updated: 2024-11-11T00:06:19.356Z
+date: 2024-11-14T18:06:52.504Z
+updated: 2024-11-19T20:15:12.381Z
 tags:
   - ai video
   - ai facebook
@@ -37,19 +37,6 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 
 **Events:** These encourage boosting engagement, get people talking, and provide helpful information and links for an upcoming event and ultimately planning and tracking who plans to attend. 650+ million users make use of Facebook Events and 100 million on an average every day to publicize the event!
 
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Common Facebook Terms which you should know
 
  If you haven’t joined Facebook until now and feel left out in the group of your friends when they discuss about liking and reacting to a post, updating status, hashtags and tagging then don’t worry! There are lots of terms and phrases which can be termed as ‘Language of Facebook’. These words were in dictionary earlier also but Facebook reinvented their purpose! Warning: They might seem confusing at first but once you enter this world, then these will become your prime words!
@@ -65,13 +52,6 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 **Tag:** It is like marking your friends who hold relevance to the pictures or status that you are uploading on your timeline. These then appears on the timeline of your friends and in newsfeed of other friends.
 
 **Notification:** It is like an update from Facebook of the events and occasions where someone has interacted with you. It might be through reacting on what you shared or by posting something on your wall etc.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Exploring Facebook
 
@@ -89,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 
 ![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### The Timeline
 
  The Timeline which represents your profile and is visible to your friends and public (subject to your privacy settings) contains inventory of everything which you have shared and which people has tagged you. You can set your profile picture by simply browsing through your picture library. Profile picture is the one which your friends will see when you will comment anything on Facebook. Coverphoto is a picture which can be seen by anybody when they visit your timeline. You can set your personal picture or wallpaper also to express your personality and interests. You can make your profile more informative by adding your school, college, workplace, relationship status and your location etc.
@@ -98,10 +85,10 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 ![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Facebook usage is diversified?
@@ -119,10 +106,16 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 * Play games and enhance your circle
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Does Facebook Sharing Work?
@@ -132,6 +125,13 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
  The privacy tools can be applied on few posts and information, the remaining information (such as your cover picture) is visible to everybody. Facebook is designed to be more open and social than traditional communication tools. You will learn more in this Facebook tutorial.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -148,24 +148,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-expand-your-online-horizons-upload-360-photos-with-ease-on-mobile-platforms/"><u>[New] 2024 Approved Expand Your Online Horizons Upload 360 Photos with Ease on Mobile Platforms</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-videography-guide-size-matters/"><u>[New] 2024 Approved Instagram Videography Guide - Size Matters</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-drive-success-a-comprehensive-list-of-the-best-fb-schedulers/"><u>[New] Drive Success A Comprehensive List of the Best FB Schedulers</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-how-to-edit-facebook-look-back-video-for-2024/"><u>[New] How to Edit Facebook Look Back Video for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-pioneering-video-player-apps-for-tiktok-and-vimeo/"><u>[Updated] 2024 Approved Pioneering Video Player Apps for TikTok & Vimeo</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-leading-selection-top-6-fb-lite-vids/"><u>[Updated] In 2024, Leading Selection #Top 6 FB Lite Vids</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-secrets-for-skillful-extraction-of-superior-quality-videos/"><u>[Updated] Secrets for Skillful Extraction of Superior Quality Videos</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-windows-11-a-step-by-step-upgrade-guide/"><u>2024 Approved Mastering Windows 11 A Step-by-Step Upgrade Guide</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-navigating-the-shifts-essential-insights-on-future-facebook-ads-24/"><u>2024 Approved Navigating the Shifts Essential Insights on Future Facebook Ads '24</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-perfecting-your-images-lightrooms-favorite-luts/"><u>2024 Approved Perfecting Your Images LightRoom's Favorite LUTs</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-legal-evolution-empowering-law-firms-with-digitization-and-process-automation/"><u>ABBYY Legal Evolution - Empowering Law Firms with Digitization & Process Automation</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/best-mp4-video-tag-editors-for-2024/"><u>Best MP4 Video Tag Editors for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/conversion-gratuite-de-fichier-mp4-en-3gp3g2-sur-internet-movavi/"><u>Conversion Gratuite De Fichier MP4 en 3GP/3G2 Sur Internet - Movavi</u></a></li>
-<li><a href="https://program-issues.techidaily.com/eliminate-pc-hiccups-in-wows-with-these-5-rapid-troubleshooting-steps/"><u>Eliminate PC Hiccups in WoWs with These 5 Rapid Troubleshooting Steps</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-xiaomi-13t-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Xiaomi 13T to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-fix-mobile-device-errors-fb-vids-not-loading/"><u>In 2024, Fix Mobile Device Errors FB Vids Not Loading</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-premium-tools-for-6-undetectable-viewings/"><u>In 2024, Premium Tools for 6 Undetectable Viewings</u></a></li>
-<li><a href="https://windows11.techidaily.com/post-cortana-era-windows-four-changes/"><u>Post-Cortana Era: Windows’ Four Changes</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/troubleshooting-guide-resolving-the-netwtw04sys-bsod-on-windows-10/"><u>Troubleshooting Guide: Resolving the Netwtw04.sys BSOD on Windows 10</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-dslr-broadcast-101-using-facebook-live-from-home-pcs/"><u>[New] 2024 Approved DSLR Broadcast 101 Using Facebook LIVE From Home PCs</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-enhance-your-tv-experience-mastering-fb-live-and-roku/"><u>[New] Enhance Your TV Experience Mastering FB Live and Roku</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2023s-budget-friendly-method-for-converting-fb-videos-to-mp4/"><u>[Updated] 2023'S Budget-Friendly Method for Converting FB Videos to MP4</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-convert-fb-videos-on-the-fly-mp4-style/"><u>[Updated] 2024 Approved Convert FB Videos on the Fly – MP4 Style</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-the-ultimate-strategy-map-for-skyrocketing-your-fb-page-status/"><u>[Updated] 2024 Approved The Ultimate Strategy Map for Skyrocketing Your FB Page Status</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-apex-fb-platforms-topping-the-10-list/"><u>[Updated] Apex FB Platforms Topping the 10 List</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-seamlessly-mix-melodies-in-social-media-posts/"><u>2024 Approved Seamlessly Mix Melodies in Social Media Posts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-ultimate-routine-for-accessing-and-playing-fb-videos-via-apple-tv/"><u>2024 Approved The Ultimate Routine for Accessing and Playing FB Videos via Apple TV</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/dng-a-jpeg-conversion-gratuite-en-ligne-movavi/"><u>DNG a JPEG Conversion Gratuite en Ligne - Movavi</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-silence-your-ps4-console-expert-tips-for-quieter-operation/"><u>How to Silence Your PS4 Console: Expert Tips for Quieter Operation</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-capture-slide-show-as-cinema-ready-media/"><u>In 2024, Capture Slide Show as Cinema-Ready Media</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-chromes-favorite-video-clippers-from-facebook/"><u>In 2024, Chromes' Favorite Video Clippers From Facebook</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-enhance-your-profile-with-free-imagery/"><u>In 2024, Enhance Your Profile with Free Imagery</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-how-to-record-audio-from-youtube/"><u>In 2024, How to Record Audio From YouTube</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-vn-video-editor-pc-review-a-quick-look/"><u>In 2024, VN Video Editor PC Review A Quick Look</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/innovative-techniques-for-implementing-ai-agents-with-agentgpt-through-a-web-interface/"><u>Innovative Techniques for Implementing AI Agents with AgentGPT Through a Web Interface</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/neural-networks-and-the-threat-of-data-reverse-engineering/"><u>Neural Networks and the Threat of Data Reverse-Engineering</u></a></li>
+<li><a href="https://win-able.techidaily.com/valheims-startup-struggles-in-2t4-and-how-to-resolve-them/"><u>Valheim's Startup Struggles in 2T4 and How to Resolve Them</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/yearly-recorder-real-time-social-media-events/"><u>Yearly Recorder Real-Time Social Media Events</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Cutting Down Curated Content  How to Delete FB Story (PC & Phone) for 2024\""
-date: 2024-11-07T21:03:50.081Z
-updated: 2024-11-10T23:38:35.541Z
+date: 2024-11-15T02:49:29.229Z
+updated: 2024-11-19T18:49:04.503Z
 tags:
   - ai video
   - ai facebook
@@ -62,13 +62,6 @@ Let's begin with the mobile Facebook application:
 
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Delete A Story from Facebook Story Archive?
 
 After your story vanishes from the Story section after 24 hours, they remain stored in the Story Achieve. But this feature has to stay enabled to store your stories in the Story Achieve. This way, you can control which stories you will like to save and which ones you will want to delete completely. To enable Story Archive, go to your Facebook profile and click on the three dots. You need to click on the settings option; after that, you need to select the gear icon. Once done, just toggle the save to archive option, and it will be enabled.
@@ -86,10 +79,10 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 This is how you will remove the stories from Facebook archived.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
@@ -105,10 +98,10 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Control Who Can View Your Facebook Stories?
@@ -124,10 +117,10 @@ You can make your stories visible to your friends, customize the viewers, or kee
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Hide Facebook Story from Specific People?
@@ -139,10 +132,10 @@ Facebook has made sharing stories easy because of the multiple features it offer
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
@@ -161,6 +154,13 @@ Facebook stories are a great way to let people know what you are up to. It's sho
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -176,17 +176,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-top-10-fb-videos-to-mp4-converter-toolkit/"><u>[New] In 2024, Top 10 FB Videos to MP4 Converter Toolkit</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-snappy-screen-recording-tool-for-pcs/"><u>[New] Snappy Screen Recording Tool for PCs</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-downloading-fb-content-the-ultimate-guide-top-5-list/"><u>[Updated] 2024 Approved Downloading FB Content The Ultimate Guide - TOP 5 List</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-blur-it-out-free-iphones-tips-for-crisp-image-edits/"><u>[Updated] Blur It Out Free iPhones Tips for Crisp Image Edits</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-dive-into-high-definition-fb-streaming-in-1080p-for-2024/"><u>[Updated] Dive Into High Definition FB Streaming in 1080P for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-honor-v-purse-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Honor V Purse | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-capturing-still-shots-from-video-using-photos-app/"><u>In 2024, Capturing Still Shots From Video Using Photos App</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-realme-11-pro-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Realme 11 Pro to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-vivo-y27s-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Vivo Y27s</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-integral-youtube-conduct-framework/"><u>In 2024, Integral YouTube Conduct Framework</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-unveiling-the-lg-bp350-a-detailed-performance-and-design-study/"><u>In 2024, Unveiling the LG BP350 A Detailed Performance & Design Study</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/streamline-your-media-convert-fb-videos-to-mp4-hd1080p-for-free-for-2024/"><u>Streamline Your Media - Convert FB Videos to MP4 HD/1080P for Free for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-entering-vr-top-10-must-try-mobile-gaming-hits/"><u>[New] 2024 Approved Entering VR Top 10 Must-Try Mobile Gaming Hits</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snapchat-boomerangs-demystified-your-comprehensive-guide-for-2024/"><u>[New] Snapchat Boomerangs Demystified Your Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-essential-handbook-of-personal-branding-mastering-facebook-biographies/"><u>[New] The Essential Handbook of Personal Branding - Mastering Facebook Biographies</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-3-step-approach-to-effective-copywriting-on-facebook-for-2024/"><u>[Updated] The 3-Step Approach to Effective Copywriting on Facebook for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-revenue-breakdown-a-deep-dive-into-podcast-finances/"><u>2024 Approved Revenue Breakdown A Deep Dive Into Podcast Finances</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/cinematic-craftsman-corner-qanda-hub-for-2024/"><u>Cinematic Craftsman Corner Q&A Hub for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/eternal-rest-from-all-fb-alerts-and-notifications/"><u>Eternal Rest From All FB Alerts and Notifications</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-unregistered-class-errors-in-windows-11-a-step-by-step-guide/"><u>Fixing Unregistered Class Errors in Windows 11: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-discovering-old-content-on-facebook-via-your-smartphonecomputer/"><u>In 2024, Discovering Old Content on Facebook via Your Smartphone/Computer</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-expert-tips-to-cut-through-false-social-endorsements/"><u>In 2024, Expert Tips to Cut Through False Social Endorsements</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-facebook-video-wonders-your-must-see-list/"><u>In 2024, Facebook Video Wonders - Your Must-See List</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-faceless-watchers-of-fb-flashbacks/"><u>In 2024, Faceless Watchers of Fb Flashbacks</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-mouse-and-keyboard-pace-on-windows-1011-7-tips/"><u>Mastering Mouse and Keyboard Pace on Windows 10/11 (#7 Tips)</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mp4-to-dvd-video-conversion-step-by-step-tutorial-for-high-quality-disc-burn/"><u>MP4 to DVD-Video Conversion: Step-by-Step Tutorial for High-Quality Disc Burn</u></a></li>
 </ul></div>
 
