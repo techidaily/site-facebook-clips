@@ -1,7 +1,7 @@
 ---
 title: "Taking Your Tweets Public on Facebook for 2024"
-date: 2024-11-13T22:00:55.327Z
-updated: 2024-11-19T19:54:41.320Z
+date: 2024-11-27T16:43:14.490Z
+updated: 2024-11-28T16:25:26.315Z
 tags:
   - ai video
   - ai facebook
@@ -30,10 +30,7 @@ thumbnail: https://www.lifewire.com/thmb/qx60cS4CmTRezctL0-71-tWrmCg=/400x300/fi
  In today's fast paced life, it's time-consuming to manage multiple accounts on different social media platforms manually. Fortunately, you can set your Twitter account and sync it with Facebook to kill two birds with a single stone. You can post Tweets to Facebook automatically as updates, sparing your personal intervention. Automatic posting of Tweets on Facebook ensures your friends on both platforms get your updates without the extra work.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Post Tweets to Facebook – Step by Step guide
@@ -47,10 +44,7 @@ thumbnail: https://www.lifewire.com/thmb/qx60cS4CmTRezctL0-71-tWrmCg=/400x300/fi
 ![post tweet on facebook 1](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Once you login to your Twitter account, tap on your profile picture on the top right corner of the screen, next to the ‘Tweet' tab.
@@ -58,19 +52,24 @@ thumbnail: https://www.lifewire.com/thmb/qx60cS4CmTRezctL0-71-tWrmCg=/400x300/fi
 
 ![post tweet on facebook 2](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Now, hit the ‘Connect to Facebook' option under Applications. You will be prompted with a popup to log in, in case you haven't logged in to Facebook on the same browser. Enter the details and log in.
 
 ![post tweet on facebook 3](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Upon being prompted for permission from Twitter to access your Facebook information, click ‘Continue as \[Facebook Profile/user name\]' to continue.
 
 ![post tweet on facebook 4](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Now you need to configure the ‘Select the privacy settings' to decide who is going to receive your Twitter updates on Facebook. When you post Tweets to Facebook, by default your friends will get to see them.
@@ -186,13 +185,6 @@ thumbnail: https://www.lifewire.com/thmb/qx60cS4CmTRezctL0-71-tWrmCg=/400x300/fi
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -208,19 +200,15 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2023-tech-scoop-efficiently-tracking-down-fb-vids/"><u>[New] 2023 Tech Scoop Efficiently Tracking Down FB Vids</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-leading-tools-for-extracting-fb-videos-top-5/"><u>[New] 2024 Approved Leading Tools for Extracting FB Videos - TOP 5</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-resolve-google-chrome-video-troubles-fb/"><u>[New] In 2024, Resolve Google Chrome Video Troubles (FB)</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-the-art-of-bio-storytelling-on-social-media-platforms-for-2024/"><u>[New] The Art of Bio Storytelling on Social Media Platforms for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-streamline-videography-an-in-depth-look-at-youtube-studio-editor/"><u>2024 Approved Streamline Videography An In-Depth Look at YouTube Studio Editor</u></a></li>
-<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-lava-blaze-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Lava Blaze Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-14-pro-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone 14 Pro without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/in-2024-how-to-translate-video-from-japanese-to-english-online/"><u>In 2024, How To Translate Video From Japanese to English Online?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/initiate-online-interactions-with-this-guide-to-facebook-registration-for-2024/"><u>Initiate Online Interactions with This Guide to Facebook Registration for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/tailoring-hashtags-for-impactful-fb-brand-presence-for-2024/"><u>Tailoring Hashtags for Impactful FB Brand Presence for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/ultimate-fb-media-downloader-plus-firefox-enhancements-for-2024/"><u>Ultimate FB Media Downloader + Firefox Enhancements for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/uncovering-methods-for-preserving-social-media-moments-status-videos-for-2024/"><u>Uncovering Methods for Preserving Social Media Moments - Status Videos for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-best-websites-for-turning-a-photo-into-a-cartoon-for-2024/"><u>Updated Best Websites for Turning a Photo Into a Cartoon for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-exploring-new-horizons-video-resources-for-dynamic-learning-spaces-for-2024/"><u>[Updated] Exploring New Horizons Video Resources for Dynamic Learning Spaces for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-how-can-i-stream-in-hd-1080p-on-facebook-for-2024/"><u>[Updated] How Can I Stream in HD 1080P on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-broadcast-bunkers-for-facebooks-2023/"><u>[Updated] In 2024, Broadcast Bunkers for Facebook's 2023</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unraveling-drone-use-in-the-now-and-next-frontier/"><u>[Updated] Unraveling Drone Use in the Now & Next Frontier</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/efficient-consumption-of-facebook-live-events-and-videos/"><u>Efficient Consumption of Facebook Live Events & Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-vivo-y100i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Vivo Y100i | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-infinix-hot-40-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Infinix Hot 40 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-elevating-the-profile-game-top-strategies-for-compelling-social-media-profiles/"><u>In 2024, Elevating the Profile Game Top Strategies for Compelling Social Media Profiles</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/storytelling-excellence-achieved-through-chatgpt-key-strategies-and-tips/"><u>Storytelling Excellence Achieved Through ChatGPT: Key Strategies and Tips</u></a></li>
 </ul></div>
 

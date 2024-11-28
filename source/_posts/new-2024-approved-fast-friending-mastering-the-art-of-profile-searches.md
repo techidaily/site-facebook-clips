@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Fast Friending  Mastering the Art of Profile Searches\""
-date: 2024-11-12T17:46:28.286Z
-updated: 2024-11-19T23:51:02.796Z
+date: 2024-11-26T20:17:10.563Z
+updated: 2024-11-28T20:03:38.277Z
 tags:
   - ai video
   - ai facebook
@@ -47,17 +47,7 @@ On the header tool icons, click on your name and you are directed to your Facebo
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Friends Finder Page
@@ -66,33 +56,21 @@ To reach the friend’s finder page, click on “find friends” from the friend
 
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 4: Friends Search
 
 On the top right of old friends search, you can find the “search for your friends” filters. To search your old friends by name, you have to enter their part or full names in the name field and look for them. To find your friends by their location, you may enter your friend’s hometown city’s name in the hometown field to search them by the place when they earlier lived in. To find your school friends or High school and university friends, you may enter the schools’ name and search for them. For searching your old colleagues, you may enter the company or employer’s name and find people who worked in the same organization.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 5: Check the results
 
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
-
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to search people using Search Is Back
 
@@ -102,15 +80,16 @@ On a browser open the [Search is Back site](https://searchisback.com/). You can 
 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Input your Interest
 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Add People as Friends
@@ -120,10 +99,7 @@ Once you have filled in all the filters in the page, you can hit Find People but
 ![search is back facebook](https://images.wondershare.com/filmora/article-images/search-is-back-interest.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note**: If there are no results on the redirected Facebook page, you must get back to the Search is Back page and change your search filters to start a new round of search.
@@ -159,20 +135,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-securing-social-streaming-download-strategies-unveiled/"><u>[New] 2024 Approved Securing Social Streaming Download Strategies Unveiled</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-how-to-get-your-fb-message-videos-flowing-again-on-mobile-devices/"><u>[New] In 2024, How to Get Your FB Message Videos Flowing Again on Mobile Devices</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-the-ultimate-list-6-great-linkinscape-video-downloaders/"><u>[New] In 2024, The Ultimate List 6 Great Linkinscape Video Downloaders</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-crack-the-code-of-content-discovery-on-facebook/"><u>[Updated] In 2024, Crack the Code of Content Discovery on Facebook</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-index-of-varied-photographic-and-videography-instruments/"><u>[Updated] Index of Varied Photographic and Videography Instruments</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-fix-slowly-loading-youtube-content-on-mobile/"><u>2024 Approved Fix Slowly Loading YouTube Content on Mobile</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-maximizing-social-media-roi-with-judicious-facebook-hash-usage/"><u>2024 Approved Maximizing Social Media ROI with Judicious Facebook Hash Usage</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-unlocking-the-power-of-facebook-slideshows-in-digital-marketing/"><u>2024 Approved Unlocking the Power of Facebook Slideshows in Digital Marketing</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/dawn-of-digital-symphony-chatgpts-role-in-sound-design/"><u>Dawn of Digital Symphony: ChatGPT's Role in Sound Design</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-a-compreehers-path-to-aspect-ratio-mastery-in-facebook-videos/"><u>In 2024, A Compreeher's Path to Aspect Ratio Mastery in Facebook Videos</u></a></li>
-<li><a href="https://win-dash.techidaily.com/mastering-arduino-the-ultimate-guide-to-installing-drivers-on-a-windows-computer/"><u>Mastering Arduino: The Ultimate Guide to Installing Drivers on a Windows Computer</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/sonys-2024-game-plan-unveiled-breaking-down-the-latest-releases-updates-and-insights/"><u>Sony's 2024 Game Plan Unveiled: Breaking Down the Latest Releases, Updates & Insights</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/top-5-tecno-camon-20-pro-5g-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Tecno Camon 20 Pro 5G Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/ultimate-free-fb-photovideo-maker/"><u>Ultimate Free FB Photo/Video Maker</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-breathe-life-into-lifeless-fb-posts-unveil-the-top-12-recovery-methods-in-23/"><u>[Updated] 2024 Approved Breathe Life Into Lifeless FB Posts - Unveil the Top 12 Recovery Methods in '23</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-facebooks-forgotten-treasures-how-to-rescue-conversations-and-videos/"><u>[Updated] 2024 Approved Facebook's Forgotten Treasures How to Rescue Conversations and Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-swift-modification-youtube-aspect-ratio-on-mac/"><u>[Updated] 2024 Approved Swift Modification YouTube Aspect Ratio on MAC</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-beatbox-recorder-a-compreeved-guide/"><u>[Updated] BeatBox Recorder A Compreeved Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-broadcasting-with-gopro-tips-for-facebookperiscope-integration-for-2024/"><u>[Updated] Broadcasting with GoPro Tips for Facebook/Periscope Integration for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-seamless-file-transition-youtube-to-mp4-high-definition-upgrade-included/"><u>[Updated] In 2024, Seamless File Transition YouTube to MP4, High-Definition Upgrade Included</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-leveraging-hashtags-to-enhance-fb-user-engagement/"><u>[Updated] Leveraging Hashtags to Enhance FB User Engagement</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-revolutionize-your-snaps-with-innovative-boomerang-tactics/"><u>[Updated] Revolutionize Your Snaps with Innovative Boomerang Tactics</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-enhance-engagement-with-squared-up-social-media-content/"><u>2024 Approved Enhance Engagement with Squared-Up Social Media Content</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-snippet-screenplay-guide/"><u>2024 Approved Snippet Screenplay Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fake Snapchat Location on Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/keep-up-with-friends-moments-best-live-stream-tools-revealed/"><u>Keep Up With Friends' Moments Best Live-Stream Tools Revealed</u></a></li>
+<li><a href="https://win11.techidaily.com/remedies-for-user-not-found-error-on-windows-devices/"><u>Remedies for User Not Found Error on Windows Devices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ore-kit-video-equipment-every-creator-needs-for-2024/"><u>The Core Kit Video Equipment Every Creator Needs for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unlock-local-treasures-browse-free-classified-options-on-oodle-now/"><u>Unlock Local Treasures: Browse Free Classified Options on Oodle Now</u></a></li>
+<li><a href="https://discover-great.techidaily.com/winx-media-hub-the-go-to-source-for-gratis-dvd-extractor-and-hi-res-video-transformation-utilities-official/"><u>WinX Media Hub – The Go-To Source for Gratis DVD Extractor & Hi-Res Video Transformation Utilities (Official)</u></a></li>
 </ul></div>
 

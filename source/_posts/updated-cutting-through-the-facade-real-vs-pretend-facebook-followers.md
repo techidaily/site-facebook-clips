@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Cutting Through the Facade  Real vs Pretend Facebook Followers\""
-date: 2024-11-15T00:37:49.751Z
-updated: 2024-11-19T22:47:24.961Z
+date: 2024-11-25T21:20:23.543Z
+updated: 2024-11-28T17:13:38.113Z
 tags:
   - ai video
   - ai facebook
@@ -32,6 +32,10 @@ If you want to edit FB video, [Filmora Business](https://tools.techidaily.com/wo
 * [**Part1: What are Fake Facebook followers**](#part1)
 * [**Part2: How to spot fake followers on Facebook for Influencer quickly**](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What are Fake Facebook followers?
 
 Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
@@ -41,10 +45,7 @@ No doubt, the Facebook page gains more likes through them, but not effective in 
 Businesses dealing with fake followers have staff to maintain these accounts to pass as regular accounts which is a big issue. Influencers often involve through engagement pods on each others’ content and get high ranks for the feeds by fooling the social algorithms. If you access these influencers as a brand in terms of quality, they have nothing substantial to offer you.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to spot fake followers on Facebook for Influencer quickly
@@ -57,13 +58,6 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 2: Calculate Engagement rate
 
 [Engagement rate](https://trackmaven.com/marketing-dictionary/engagement-rate/) is nothing but the average number of engagements received by influencer for each post divided by number of followers. When an influencer has below 1% engagement, it implies involvement of few fake followers in certain amount. So, it is prevalent to track the numbers and do the calculation, so that there is no chance of fake followers on Facebook that can ruin your business.
@@ -71,17 +65,11 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Check tendency chart
@@ -108,6 +96,10 @@ Knowing these aspects, you will be able to protect your brand page and garner ge
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -123,19 +115,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-must-collect-blog-for-business-8-trending-videos-on-facebook/"><u>[New] 2024 Approved Must-Collect Blog for Business! 8 Trending Videos on Facebook</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-taking-flight-in-content-creation-dji-drones-and-fb-live/"><u>[New] 2024 Approved Taking Flight in Content Creation DJI Drones & FB Live</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-innovative-strategies-for-flawless-screens-in-adobe-captivity/"><u>[New] In 2024, Innovative Strategies for Flawless Screens in Adobe Captivity</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-tricks-to-upgrade-streaming-quality-on-mobile-apps-like-facebook/"><u>[Updated] In 2024, Tricks to Upgrade Streaming Quality on Mobile Apps Like Facebook</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-journey-to-joyrides-top-6-essential-mc-house-plans-for-2024/"><u>[Updated] Journey to Joyrides Top 6 Essential MC House Plans for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-streamline-filming-borders-on-instagram-videos/"><u>[Updated] Streamline Filming Borders on Instagram Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-mastering-social-media-enhancing-your-facebook-page-position/"><u>2024 Approved Mastering Social Media Enhancing Your Facebook Page Position</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-personal-aerial-companions-gps-drones-that-never-stray/"><u>2024 Approved Personal Aerial Companions - GPS Drones that Never Stray</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/ace-your-vids-pace-with-these-snapchat-tips/"><u>Ace Your Vids' Pace with These Snapchat Tips</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/comprehensive-fullscreen-guide-in-premiere-pro/"><u>Comprehensive Fullscreen Guide in Premiere Pro</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-fix-the-relink-functionality-glitch-in-granblue-fantasy-on-pc/"><u>How to Fix the Relink Functionality Glitch in Granblue Fantasy on PC</u></a></li>
-<li><a href="https://techidaily.com/repair-multiple-office-and-pdf-documents-by-stellar-guide/"><u>Repair Multiple Office and PDF Documents</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/tips-for-snagging-quality-streams-on-facebook-for-2024/"><u>Tips for Snagging Quality Streams on Facebook for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/ultimate-panzoid-framework-assemblage-for-2024/"><u>Ultimate Panzoid Framework Assemblage for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-dollars-and-sense-profit-driven-techniques-for-fb-video-content/"><u>[New] 2024 Approved Dollars and Sense Profit-Driven Techniques for FB Video Content</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-how-to-post-360-photos-on-iosandroid-to-facebook/"><u>[New] 2024 Approved How to Post 360 Photos on iOS/Android to Facebook</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-unlock-tiktok-potential-pc-and-mac-video-sharing-guide/"><u>[New] 2024 Approved Unlock TikTok Potential PC & Mac Video Sharing Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-dive-deep-accessing-facebooks-story-vault/"><u>[New] In 2024, Dive Deep Accessing Facebook's Story Vault</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-supercharge-your-social-media-scrapping-the-best-5-chrome-plugins-for-2024/"><u>[New] Supercharge Your Social Media Scrapping The Best 5 Chrome Plugins for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-free-fb-hd-videos-step-by-step-for-2024/"><u>[Updated] Free FB HD Videos Step-by-Step for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-melodic-mastery-for-game-dominance-in-free-fire/"><u>[Updated] Melodic Mastery for Game Dominance in Free Fire</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/deploying-artifice-intelligence-agents-via-browser-using-agentgpt/"><u>Deploying Artifice Intelligence Agents via Browser Using AgentGPT</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/how-to-safely-exit-your-windows-pc-guide-for-windows-7-vista-and-8/"><u>How To Safely Exit Your Windows PC: Guide For Windows 7, Vista & 8</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/navigate-with-ease-into-ai-enhanced-bing-setup-guide/"><u>Navigate with Ease Into AI-Enhanced Bing: Setup Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-xiaomi-redmi-note-12-pro-5g-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Xiaomi Redmi Note 12 Pro 5G Phone Now with These Tips</u></a></li>
 </ul></div>
 

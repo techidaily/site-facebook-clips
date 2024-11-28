@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering the Art of Old Facebook Features  Step-by-Step\""
-date: 2024-11-17T18:44:27.309Z
-updated: 2024-11-19T18:48:36.709Z
+date: 2024-11-27T16:51:30.949Z
+updated: 2024-11-28T16:36:42.651Z
 tags:
   - ai video
   - ai facebook
@@ -37,6 +37,10 @@ Facebook has a complex interface, but it will be much easier to navigate it once
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to View Old Stories on iPhone/Android Facebook App?
 
 Facebook mobile application is one of the convenient ways of using it as it has a user-friendly interface. You can quickly post stories through the Facebook mobile app and interact with your friends. Here is how you can view old stories on a mobile app:
@@ -56,16 +60,7 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -81,19 +76,6 @@ You can log in to Facebook on a desktop to proceed to watch your old stories. Wh
 Once you click on the story archive, all your **old stories** will appear in sequential order.
 
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
 
@@ -114,10 +96,7 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -137,10 +116,7 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
@@ -165,6 +141,10 @@ Facebook is an excellent platform to interact with your audience, and the story 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -180,20 +160,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-posting-youtube-videos-to-your-facebook-feed/"><u>[New] 2024 Approved Posting YouTube Videos to Your Facebook Feed</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-exploring-the-mechanisms-of-noteworthy-youtube-discussions/"><u>[Updated] 2024 Approved Exploring the Mechanisms of Noteworthy YouTube Discussions</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-comprehensive-guide-to-multitasking-audience-interactions-via-fb-live/"><u>[Updated] Comprehensive Guide to Multitasking Audience Interactions via FB Live</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-extract-facebook-videos-for-mobile-and-desktop-easy-for-2024/"><u>[Updated] Extract Facebook Videos for Mobile & Desktop Easy for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-2023s-leading-facebook-film-extractors-top-picks/"><u>[Updated] In 2024, 2023'S Leading Facebook Film Extractors - Top Picks</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-perfect-your-social-media-history-looking-back-mastery-for-2024/"><u>[Updated] Perfect Your Social Media History Looking Back Mastery for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-seasons-finest-ice-artistry-2022-highlights/"><u>[Updated] Season's Finest Ice Artistry - 2022 Highlights</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-cure-for-the-vanished-watch-video-icon-2023-edition/"><u>2024 Approved Cure for the Vanished Watch Video Icon, 2023 Edition</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-revolutionizing-game-soundscapes-with-ps-console-tweaks/"><u>2024 Approved Revolutionizing Game Soundscapes with PS Console Tweaks</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/expert-free-fb-imagecinematic-creator-kit/"><u>Expert Free FB Image/Cinematic Creator Kit</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/headphonespeaker-purchase-tips-5-important-traits/"><u>Headphone/Speaker Purchase Tips: 5 Important Traits</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-honor-play-7t-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Honor Play 7T Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/in-2024-unveiling-tiktoks-pfp-conventions-and-meanings/"><u>In 2024, Unveiling TikTok's PFP Conventions and Meanings</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-motorola-razr-40-ultra-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Motorola Razr 40 Ultra? Here Is the Answer | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/creen-recorders-for-live-broadcasts-on-youtube/"><u>Top Screen Recorders for Live Broadcasts on YouTube</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-detailed-audit-unveiling-the-dji-inspire-1/"><u>[New] 2024 Approved Detailed Audit Unveiling the DJI Inspire 1</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-fb-videos-to-mp3s-free-online-convert-2023-for-2024/"><u>[New] FB Videos to MP3s - Free Online Convert 2023 for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-exploring-significance-and-usage-of-a-blue-emoji-on-messenger/"><u>[New] In 2024, Exploring Significance and Usage of a Blue Emoji on Messenger</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-ultimate-guide-to-tv-and-fb-live-synergy/"><u>[New] The Ultimate Guide to TV and FB Live Synergy</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-what-if-my-videos-removed-immediately-due-to-copyright-for-2024/"><u>[New] What If My Videos Removed Immediately Due to Copyright for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-perfecting-your-rl-game-captures/"><u>[Updated] In 2024, Perfecting Your RL Game Captures</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-simple-guide-youtube-to-mp3-on-mac/"><u>[Updated] In 2024, Simple Guide YouTube to MP3 on Mac,</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-podcasts-versus-youtube-the-ultimate-content-battle/"><u>[Updated] Podcasts Versus YouTube The Ultimate Content Battle</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-revealing-the-best-in-class-splitcams-videography-edge/"><u>[Updated] Revealing the Best in Class SplitCam's Videography Edge</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/avoiding-objections-to-autoplay-videos-on-fb-for-2024/"><u>Avoiding Objections to Autoplay Videos on FB for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/dynamic-wallpaper-integration-a-windows-11-essential-tutorial/"><u>Dynamic Wallpaper Integration: A Windows 11 Essential Tutorial</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-design-thinking-for-content-creators-crafting-impactful-facebook-reels/"><u>In 2024, Design Thinking for Content Creators Crafting Impactful Facebook Reels</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/instant-mp3-from-your-fb-videos-online-converter-for-2024/"><u>Instant MP3 From Your FB Videos - Online Converter for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/mastering-the-vr-lingo-core-terminology-guide/"><u>Mastering the VR Lingo Core Terminology Guide</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-from-noisy-to-pro-how-to-remove-background-noise-in-final-cut-pro-x-like-a-pro-for-2024/"><u>New From Noisy to Pro How to Remove Background Noise in Final Cut Pro X Like a Pro for 2024</u></a></li>
 </ul></div>
 
