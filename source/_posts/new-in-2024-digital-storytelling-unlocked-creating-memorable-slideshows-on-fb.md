@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Digital Storytelling Unlocked  Creating Memorable Slideshows on FB\""
-date: 2024-11-22T20:12:33.678Z
-updated: 2024-11-28T21:11:39.094Z
+date: 2024-12-04T18:23:34.035Z
+updated: 2024-12-08T02:58:43.616Z
 tags:
   - ai video
   - ai facebook
@@ -54,6 +54,10 @@ Download and launch Filmora, click New Project to create a new slideshow project
 
 ![Filmora 9 Project Settings to make facebook slideshow](https://images.wondershare.com/filmora/article-images/filmora9-project-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 2: Edit slideshow with music/transition/text
 
 Now, you can add the **built in music and sound effect** from **Audio** tab, or you can add your own music file to the media library and then drag-n-drop it to the audio track in the timeline. To play the slideshow smoother, we recommend you to add some transitions between the photos. With Filmora, you can add specific transition to selected clips or add transitions to selected clips randomly and even to all clips. Since Facebook video is played muted by default, it is recommended to [add title & text to the photo slideshow](https://tools.techidaily.com/wondershare/filmora/download/) as well.
@@ -61,7 +65,7 @@ Now, you can add the **built in music and sound effect** from **Audio** tab, or 
 ![ Filmora 9 Add Text](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Export video
@@ -73,10 +77,6 @@ For the detailed information about how to edit videos in Filmora, you can check 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to Use Facebook Slideshow Maker on Facebook Page Online
 
@@ -96,15 +96,19 @@ Open up Facebook to log in. Go to the homepage and click Share a photo or video.
 
 ![import iamges to slideshow editor](https://images.wondershare.com/filmora/filmorapro/facebook-slideshow-maker-choose-images.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 2: Edit aspect ratio
 
 You must choose the right aspect ratio for Facebook slideshow. You can select aspect ratio from 1:1, 16:9, 2:3\. If you want to use square video, just choose 1:1\. If you like landscape slideshow video, choose 16:9\. You can also use the first image aspect ratio to decide the rest aspect ratio.
 
 ![edit slideshow aspect ratioon facebook](https://images.wondershare.com/filmora/article-images/slideshow-maker-setting.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 3: Change image duration
 
@@ -124,14 +128,6 @@ Music plays an important in making slidedhow, so it is highly suggested to add m
 
 ![Add music to facebook slideshow](https://images.wondershare.com/filmora/filmora-business/add-music-facebook-slideshow.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 6: Test Facebook slideshow
 
 Now click Create Slideshow. You can enter message to explain this slideshow. Each slideshow can play from 0.5 to 5 seconds. You can edit the photos before you publishing. It is adviced to check your slideshow before publishing it. You can't edit it after it is published.
@@ -150,6 +146,10 @@ Here takes [DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-
 
 ![facebook slideshow](https://images.wondershare.com/howtos/images/add-facebook-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 2: Personalize your Facebook Slideshow
 
 In advanced mode, the transition effects will be randomized automatically when you import photos. You can change photo transitions as you like, just drag and drop your desired transition effect in the middle of two photos.
@@ -164,10 +164,6 @@ Go to Create Tab and in the Output formats drop-down list, select MP4 as the vid
 
 ![facebook slideshow maker](https://images.wondershare.com/howtos/images/output-photo-slideshow.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 4: Upload Video Slideshow to Facebook
 
 After logining to your Facebook account, you may notice that there is a Video Tab on your Facebook profile. Here you can upload created slideshows. Click Upload to open uploading page. Then click Browse button to choose desired video slideshow to upload. After upload the video to Facebook, you can also fill some necessary information about your Facebook video slideshow.
@@ -180,9 +176,17 @@ To share Facebook video with more people, get to the Facebook video you want to 
 
 ![facebook photo video maker](https://images.wondershare.com/howtos/images/embed-facebook-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: 5 Tips for Making Facebook Slideshow
 
 After you know how to make slideshow in 3 different ways, here we will let you know 5 tips for making a photo slideshow on Facebook. You can make slideshow now, but if you want to make high quality video slideshow, these tips are necessary and easy to follow and understand.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Make sure to use 3-10 images
 
@@ -194,25 +198,17 @@ It is suggested to use mov and mp4 video format. These 2 formats are compatible 
 
 ![Facebook slideshow format](https://images.wondershare.com/filmora/filmora-business/Facebook-slideshow-format.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Edit your Facebook slideshow
 
 The slideshow will be boring if you only add images to combine it. It is suggested to [add text/title to make your key message appear](https://tools.techidaily.com/wondershare/filmora/download/). Most importantly, you can add transitions to make slideshow look natural. If you are good at editing, you also can correct color or make color grading.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Don't add too many CTAs
 
 We know that you want to do more conversions and get more sales, but if you add CTA on each imgaes, it is a mistake. People will close your slideshow video. [You need to add CTAs wisely](https://blog.hubspot.com/customers/seven-principles-for-video-ctas).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Rememeber to make test
 
@@ -221,7 +217,7 @@ You won't know which version is better if you don't make A/B test. You can run 2
 ![test Facebook slideshow](https://images.wondershare.com/filmora/filmora-business/test-facebook-slideshow.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -229,6 +225,10 @@ You won't know which version is better if you don't make A/B test. You can run 2
 Above are three methods of making Facebook slideshow. Don't know which Facebook slideshow maker to choose? It is advised to use [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/) if you want to have more controls of your slideshow. You can use it to add free to use music and titles to make your slideshow stand out! Download it now to have a try!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -247,22 +247,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-boosting-your-browser-lightning-speed-profile-hunts/"><u>[New] Boosting Your Browser Lightning Speed Profile Hunts</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-mastering-obs-the-ultimate-tutorial-for-live-broadcasts-for-2024/"><u>[New] Mastering OBS The Ultimate Tutorial for Live Broadcasts for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-direct-playback-of-fb-videos-on-home-entertainment-systems/"><u>[Updated] 2024 Approved Direct Playback of FB Videos on Home Entertainment Systems</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-interactive-insights-archive/"><u>[Updated] 2024 Approved Interactive Insights Archive</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-facebooks-easy-path-uploading-videos-via-pc-and-android-devices/"><u>[Updated] Facebook's Easy Path Uploading Videos via PC and Android Devices</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-growing-presence-in-video-platforms-via-short-films-for-2024/"><u>[Updated] Growing Presence in Video Platforms via Short Films for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-immortal-gameplay-highlights-of-android-samsungs/"><u>[Updated] Immortal Gameplay Highlights of Android Samsungs</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-mend-facebook-story-playback-pauses/"><u>[Updated] Mend Facebook Story Playback Pauses</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-your-ultimate-ps4-screen-recorder-inside-the-obs-studio-guide/"><u>[Updated] Your Ultimate PS4 Screen Recorder Inside the OBS Studio Guide</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-is-facebook-better-for-vertical-videos/"><u>2024 Approved Is Facebook Better for Vertical Videos?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-your-own-beat-no-cost-fb-version/"><u>2024 Approved Your Own Beat, No Cost - FB Version</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Vivo Y100i? | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/expert-tips-for-converting-facebook-hd-video-quality-to-mp4-online/"><u>Expert Tips for Converting Facebook HD Video Quality to MP4 Online</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/gpt-4-at-your-fingertips-but-plus-continues-to-offer-unmatched-services/"><u>GPT-4 at Your Fingertips; But Plus Continues To Offer Unmatched Services.</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Vivo S17t? | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/mastering-speaker-configuration-in-windows-10-when-facing-an-unknown-status/"><u>Mastering Speaker Configuration in Windows 10 when Facing an Unknown Status</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/unboxing-the-new-macbook-pro-m3-key-features-cost-breakdown-and-launch-details/"><u>Unboxing the New MacBook Pro (M3): Key Features, Cost Breakdown & Launch Details</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-free-end-credits-maker-the-1-video-closers-guide/"><u>[New] 2024 Approved Free End Credits Maker - The #1 Video Closers Guide!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-mastery-in-muting-facebook-videos-mobilelaptop/"><u>[New] In 2024, Mastery in Muting Facebook Videos (Mobile/Laptop)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-digital-deck-changes-predicting-the-future-of-fb-ads/"><u>[New] In 2024, The Digital Deck Changes Predicting the Future of FB Ads</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-breaking-barriers-with-excellent-job-interview-techniques/"><u>[Updated] 2024 Approved Breaking Barriers with Excellent Job Interview Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-choose-your-view-facebook-video-aspect-ratio-for-2024/"><u>[Updated] Choose Your View Facebook Video Aspect Ratio for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-effortless-fb-stream-setup-using-obs-on-laptops-mac-and-pc-for-2024/"><u>[Updated] Effortless FB Stream Setup Using OBS on Laptops, Mac & PC for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-adding-soundtracks-to-shareable-fb-moments/"><u>2024 Approved Adding Soundtracks to Shareable FB Moments</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-efficient-fb-link-extraction-top-8-tools-for-no-cost-online-use/"><u>2024 Approved Efficient FB Link Extraction Top 8 Tools for No-Cost, Online Use</u></a></li>
+<li><a href="https://article-tips.techidaily.com/breathtaking-stunts-and-jumps-2022-fig-skates/"><u>Breathtaking Stunts and Jumps - 2022 Fig Skates</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/conversor-de-videos-online-transforma-tu-contenido-con-facilidad-en-formatos-como-mp4-mov-avi-y-otros-mas/"><u>Conversor De Vídeos Online: Transforma Tu Contenido Con Facilidad en Formatos Como MP4, MOV, AVI Y Otros Más</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-show-wi-fi-password-on-vivo-y27-4g-by-drfone-android/"><u>How to Show Wi-Fi Password on Vivo Y27 4G</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-poco-x6-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Poco X6 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-best-ways-to-bypass-icloud-activation-lock-on-iphone-6s-plusipadipod-by-drfone-ios/"><u>In 2024, Best Ways to Bypass iCloud Activation Lock on iPhone 6s Plus/iPad/iPod</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-innovative-approaches-to-social-media-video-making/"><u>In 2024, Innovative Approaches to Social Media Video Making</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/understanding-ios-175s-remarkable-photo-recovery-feature-insights-from-apple/"><u>Understanding iOS 17.5'S Remarkable Photo Recovery Feature: Insights From Apple</u></a></li>
 </ul></div>
 

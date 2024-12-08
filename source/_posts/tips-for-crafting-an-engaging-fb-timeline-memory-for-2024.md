@@ -1,7 +1,7 @@
 ---
 title: "Tips for Crafting an Engaging FB Timeline Memory for 2024"
-date: 2024-11-25T21:00:01.473Z
-updated: 2024-11-28T18:10:10.126Z
+date: 2024-12-06T20:23:02.791Z
+updated: 2024-12-07T22:49:44.598Z
 tags:
   - ai video
   - ai facebook
@@ -40,7 +40,7 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Why Choose [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to edit Facebook Look back video?
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 * Burn Look Back video to a DVD as a special gift.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Easily Edit Facebook Look Back Video with Filmora
@@ -63,6 +63,10 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
  To edit the Look Back video, you should first download it. Then click "Import" to add it to the video editor, or drag and drop files to the User's Album. It will be displayed in thumbnail in the album and you can preview it on the right viewing window. Then place the Look Back video on the timeline.
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2. Add texts to the Look Back video
 
@@ -78,21 +82,17 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
 
@@ -105,11 +105,11 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
 
@@ -126,24 +126,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-expert-4-movie-collection-fb/"><u>[New] 2024 Approved Expert 4 Movie Collection FB</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-instantly-access-fb-videos-on-your-apple-entertainment-center/"><u>[New] 2024 Approved Instantly Access FB Videos on Your Apple Entertainment Center</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-analysis-of-fb-video-proportions/"><u>[New] Analysis of FB Video Proportions</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-enhancing-fb-video-clarity-to-1080p-standard/"><u>[New] Enhancing FB Video Clarity to 1080P Standard</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-warping-letters-in-photographyvideo/"><u>[New] Warping Letters in Photography/Video</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-vivid-visual-storytelling-the-fade-technique/"><u>[Updated] 2024 Approved Vivid Visual Storytelling The Fade Technique</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-breaking-barriers-twitter-to-facebook-posting-process/"><u>[Updated] Breaking Barriers Twitter-to-Facebook Posting Process</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-decoding-the-top-5-transformative-social-updates-for-2024/"><u>[Updated] Decoding the Top 5 Transformative Social Updates for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-secure-social-screen-avoid-facebook-vids/"><u>[Updated] Secure Social Screen Avoid Facebook Vids</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-route-to-collecting-pictorial-frame-downloads/"><u>[Updated] The Route to Collecting Pictorial Frame Downloads</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-unveiling-zdsofts-video-magic-for-2024/"><u>[Updated] Unveiling ZDSoft's Video Magic for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-leverage-youtubes-potential-through-strategic-backlinking/"><u>2024 Approved Leverage YouTube's Potential Through Strategic Backlinking</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-social-media-gurus-guide-to-exceptional-facebook-broadcasts/"><u>2024 Approved The Social Media Guru's Guide to Exceptional Facebook Broadcasts</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-unlocking-the-art-of-captions-a-short-guide-to-facebook-videos/"><u>2024 Approved Unlocking the Art of Captions A Short Guide to Facebook Videos</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-asus-rog-phone-8-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Asus ROG Phone 8 to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-captivating-content-the-essential-six-video-formats/"><u>In 2024, Captivating Content The Essential Six Video Formats</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-motorola-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Motorola Device SIM</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/understanding-your-rights-can-you-be-terminated-for-using-ai/"><u>Understanding Your Rights: Can You Be Terminated for Using AI?</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/webcam-innovation-cutting-edge-live-video-technology-for-2024/"><u>Webcam Innovation Cutting-Edge Live Video Technology for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-prime-fb-video-snatcher-and-upgrades-for-firefox/"><u>[New] 2024 Approved Prime FB Video Snatcher & Upgrades for FireFox</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-tech-tips-snagging-your-fb-status-video/"><u>[New] 2024 Approved Tech Tips Snagging Your FB Status Video</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-happy-haven-20-top-prison-jail-gifs-and-photos-for-an-optimistic-social-media-experience/"><u>[New] In 2024, Happy Haven 20 Top Prison Jail GIFs & Photos for an Optimistic Social Media Experience</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-resolve-non-playing-facebook-video-issues-androidios/"><u>[Updated] In 2024, Resolve Non-Playing Facebook Video Issues (Android/iOS)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-starting-with-a-bang-building-a-youtube-presence/"><u>[Updated] Starting with a Bang Building a YouTube Presence</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unraveling-image-mysteries-the-triple-tactic-fb-backward-search/"><u>[Updated] Unraveling Image Mysteries The Triple-Tactic FB Backward Search</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-rank-the-best-tools-top-8-apps-to-increase-likes-on-fb/"><u>2024 Approved Rank the Best Tools Top 8 Apps to Increase Likes on FB</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-unlock-50-exclusive-youtube-banner-free-gifts/"><u>2024 Approved Unlock 50 Exclusive YouTube Banner Free Gifts</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-clear-cuts-for-chilling-youtube-content-no-more-silent-lapses/"><u>In 2024, Clear Cuts for Chilling YouTube Content – No More Silent Lapses</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How does the stardust trade cost In pokemon go On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-pick-the-ideal-lens-for-immersive-4k-filming/"><u>In 2024, How to Pick the Ideal Lens for Immersive 4K Filming</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-thriving-in-the-digital-space-crafting-high-impact-fb-videos/"><u>In 2024, Thriving in the Digital Space Crafting High-Impact FB Videos</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/quick-fixes-for-when-anydvd-hd-fails-to-read-discs-comprehensive-solutions-and-tips/"><u>Quick Fixes for When AnyDVD (HD) Fails to Read Discs: Comprehensive Solutions and Tips</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-ultimate-glossary-of-youtube-shorts-terms-for-2024/"><u>The Ultimate Glossary of YouTube Shorts Terms for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Realme Narzo 60x 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/uncover-collective-media-on-messenger-networks/"><u>Uncover Collective Media on Messenger Networks</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-the-ultimate-guide-to-4k-proxy-video-editing-top-apps/"><u>Updated 2024 Approved The Ultimate Guide to 4K Proxy Video Editing Top Apps</u></a></li>
+<li><a href="https://discover-best.techidaily.com/windows-10x-troubleshooting-fixes-and-solutions-for-common-issues/"><u>Windows 10X Troubleshooting: Fixes and Solutions for Common Issues</u></a></li>
 </ul></div>
 
