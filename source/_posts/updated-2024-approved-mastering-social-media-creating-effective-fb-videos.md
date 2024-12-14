@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Social Media  Creating Effective FB Videos\""
-date: 2024-09-20T19:50:09.444Z
-updated: 2024-09-23T00:08:52.923Z
+date: 2024-12-08T00:55:28.729Z
+updated: 2024-12-13T16:37:23.578Z
 tags:
   - ai video
   - ai facebook
@@ -44,6 +44,10 @@ After launching Filmora, click the “Import” button in the main menu, choose 
 
 ![import video to filmora9 to make facebook video](https://images.wondershare.com/filmora/article-images/filmora9-import-media.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 After previewing, drag your files to the timeline. Put the files in the order you want them to appear in the final video, and your base sequence is now ready.
 
 ### Step 2: Personalize Facebook video
@@ -77,11 +81,19 @@ Filmora has more than 40 tracks built-in, and you can use them without worrying 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Export and Share
 
 When the video making process is complete, all you need to do is to export and publish it on Facebook. In the export window, there are several options on the left panel. You can save it to your smartphone or in .mp4 format and upload to Facebook later. What’s more, you can share your video to YouTube, Vimeo or burn it to the DVD collection.
 
 ![filmora export output](https://images.wondershare.com/filmora/article-images/export-output.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To upload your video to Facebook, you need to know the video formats that are supported by Facebook, and choose the related video format. More than .mp4, [Facebook also supports various video formats](https://www.facebook.com/help/218673814818907?helpref=uf%5Fpermalink), including 3g2, 3gp, asf, div and more.
 
@@ -167,6 +179,10 @@ Filmora has more than 40 tracks built-in, and you can use them without worrying 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Export and Share
 
 When the video making process is complete, all you need to do is to export and publish it on Facebook. In the export window, there are several options on the left panel. You can save it to your smartphone or in .mp4 format and upload to Facebook later. What’s more, you can share your video to YouTube, Vimeo or burn it to the DVD collection.
@@ -218,13 +234,6 @@ With this video maker for Facebook, you can edit your own elements together quic
 
 In this article, we will illustrate the detailed steps for creating a Facebook video step by step.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 1: Import your video or photo files
 
 After launching Filmora, click the “Import” button in the main menu, choose the files you have and click “Open” to import them into Filmora's Media Library. For your convenience, you can also directly drag and drop the files to the Media Library. Filmora allows you to preview your video footage at the right Preview window and snap a shot with the Camera icon without quality loss.
@@ -232,26 +241,10 @@ After launching Filmora, click the “Import” button in the main menu, choose 
 ![import video to filmora9 to make facebook video](https://images.wondershare.com/filmora/article-images/filmora9-import-media.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After previewing, drag your files to the timeline. Put the files in the order you want them to appear in the final video, and your base sequence is now ready.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 2: Personalize Facebook video
 
@@ -279,23 +272,24 @@ Filmora has more than 40 tracks built-in, and you can use them without worrying 
 
 ![add text to facebook video](https://images.wondershare.com/filmora/guide/add-title-effects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Transition effects are widely used in video editing software, they are normally used when one slide/clip replaces another one. It will make your Facebook video good looking and impressive.
 * There are over 300 filters, overlays and elements embedded in Filmora that you can use for your Facebook video. What’s more, you can go to the [Filmstock (Effects Store)](https://tools.techidaily.com/wondershare/filmora/download/) to get specially designed Effects Sets, such as Beauty Set, Fashion Set, Fitness Set, Business Set, Food Set, Travel Set, Education Set and Holiday Set. What’s more, you can get some free Effects Packs just via sharing with your friends on Facebook. Let’s take a glimpse about the beauty set first.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Export and Share
 
 When the video making process is complete, all you need to do is to export and publish it on Facebook. In the export window, there are several options on the left panel. You can save it to your smartphone or in .mp4 format and upload to Facebook later. What’s more, you can share your video to YouTube, Vimeo or burn it to the DVD collection.
 
 ![filmora export output](https://images.wondershare.com/filmora/article-images/export-output.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To upload your video to Facebook, you need to know the video formats that are supported by Facebook, and choose the related video format. More than .mp4, [Facebook also supports various video formats](https://www.facebook.com/help/218673814818907?helpref=uf%5Fpermalink), including 3g2, 3gp, asf, div and more.
 
@@ -319,13 +313,6 @@ Usually, long video needs more patience of viwers. It is not advised to make lon
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -344,6 +331,10 @@ With this video maker for Facebook, you can edit your own elements together quic
 * [**Part 2: 3 Tips for making videos for Facebook**](#part2)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: How to Make Videos for Facebook with Filmora
 
@@ -366,6 +357,10 @@ Filmora is an easy-to-use yet powerful video editor, which allows you to do some
 * You can crop, trim, cut, split and merge your video in a few clicks. Watch the video below to get detailed information.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Tilt Shift, Face off, Mosaic, Jump Cut and more functions in Power Tool for you to try out.
 * Edit your audio file with Audio Mixer and Audio Equalizer and make the audio fade in and fade out easily
@@ -407,6 +402,10 @@ User's attention get away quickly, so [it is important to gran their attention a
 ### 2\. Know your objective
 
 You need to know your goals no matter what you need to do. One video only needs one objective. Viwers will get lost if you want to have more stuff in your one video. The best part of goal is you can find your first idea when you don't know what to do. For creating Facebook vido, you need to be specific if you decide to make product video, which means the only goal is to shooting your product.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Make it short
 
@@ -441,5 +440,22 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-the-complete-checklist-for-recording-fb-chats-and-meets/"><u>[New] The Complete Checklist for Recording FB Chats and Meets</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-ultimate-guide-to-winning-with-facebook-videos-for-2024/"><u>[New] The Ultimate Guide to Winning with Facebook Videos for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-your-go-to-list-for-effortless-downloads-of-fb-stories-for-2024/"><u>[New] Your Go-To List for Effortless Downloads of FB Stories for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-essential-software-for-live-video-recording/"><u>[Updated] 2024 Approved Essential Software for Live Video Recording</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-art-of-sharing-online-videos-from-youtube-to-facebook-for-2024/"><u>[Updated] The Art of Sharing Online Videos From YouTube to Facebook for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-jailbreaks-gone-silent-unveiling-7-reasons-why-theyre-no-longer-viable/"><u>ChatGPT Jailbreaks Gone Silent: Unveiling 7 Reasons Why They're No Longer Viable</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/core-framework-principles-for-engaging-online-promotions-for-2024/"><u>Core Framework Principles for Engaging Online Promotions for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-poco-c65-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on Poco C65</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-any-vivo-t2x-5g-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Vivo T2x 5G Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-transform-your-fb-advertising-simplify-with-a-free-toolkit/"><u>In 2024, Transform Your FB Advertising Simplify with a Free Toolkit</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/install-guide-compatible-logitech-driving-force-gt-controller-on-windows-operating-systems-7-11/"><u>Install Guide: Compatible Logitech Driving Force GT Controller on Windows Operating Systems (7-11)</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/introduction-to-langchain-a-simple-guide/"><u>Introduction to LangChain: A Simple Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/learn-to-prevent-persistent-commercials-in-digital-platforms-for-2024/"><u>Learn to Prevent Persistent Commercials in Digital Platforms for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/revolutionary-asus-thor-series-the-mighty-hammer-shaped-mjolnir-uninterruptible-power-supply/"><u>Revolutionary Asus Thor Series: The Mighty Hammer-Shaped Mjolnir Uninterruptible Power Supply</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/strategic-insights-on-integrating-chatgpt-into-psychological-support-services/"><u>Strategic Insights on Integrating ChatGPT Into Psychological Support Services</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Facebook's Top Additions for Savvy Users Unveiled\""
-date: 2024-09-19T06:44:22.974Z
-updated: 2024-09-23T04:08:28.996Z
+date: 2024-12-12T01:19:01.057Z
+updated: 2024-12-14T02:37:02.380Z
 tags:
   - ai video
   - ai facebook
@@ -82,6 +82,10 @@ Follow @Shanoon Cox
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
@@ -91,6 +95,10 @@ Follow @Shanoon Cox
  If you want to download this recently updated Facebook 360 app for your Gear VR then simply open Oculus app on your device and initiate search for Facebook 360 app. You can also visit official site of Oculus to get started.
 
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Messenger Day – The Snapchat Way
 
@@ -145,6 +153,10 @@ Follow @Shanoon Cox
 
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Messenger Day – The Snapchat Way
 
  This app was also launched in the month of March and surprisingly it appeared like biggest competitor against Instagram Stories and Snapchat. However, few features like stickers, filters and posts disappearing within 24 hours etc are also same as that of other competing platforms.
@@ -154,10 +166,7 @@ Follow @Shanoon Cox
  One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Facebook Live
@@ -165,13 +174,6 @@ Follow @Shanoon Cox
  Earlier, Facebook users were utilizing Facebook Live API to live stream on Facebook from their smartphone or tablet. But now it is possible to start broadcasting directly from your Laptop or Personal desktop computer using Facebook Live Feature. Further, Admins can also tag others as Live Contributors during streaming process on pages. You can also add comments to live broadcasts which were not possible earlier. So it is right time to explore the new Facebook Live feature on your device, you will easily find it on top of the news feeds.
 
  Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Advertising Capabilities
 
@@ -182,18 +184,15 @@ Follow @Shanoon Cox
 
 [How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Group Videos
 
  Last but not the least, Group video chat is the best solution to all crazy messenger users who wants to stay connected with all their friends on the go. The amazing news is that you can add about 50 users to one video group chat. Further, it will also help you to put fun filters to keep your chats interactive and full of laughter. In case if you find those Facebook chat heads annoying on your device screen then you can now easily remove them from profile settings. In simple words, Facebook has lots of things wrapped inside its platform for you all; get ready to have the real fun.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -209,6 +208,10 @@ Follow @Shanoon Cox
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
@@ -220,10 +223,7 @@ Follow @Shanoon Cox
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Messenger Day – The Snapchat Way
@@ -249,18 +249,15 @@ Follow @Shanoon Cox
 
 [How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Group Videos
 
  Last but not the least, Group video chat is the best solution to all crazy messenger users who wants to stay connected with all their friends on the go. The amazing news is that you can add about 50 users to one video group chat. Further, it will also help you to put fun filters to keep your chats interactive and full of laughter. In case if you find those Facebook chat heads annoying on your device screen then you can now easily remove them from profile settings. In simple words, Facebook has lots of things wrapped inside its platform for you all; get ready to have the real fun.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -287,5 +284,18 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-av-and-acoustic-creatives-top-5-online-leaders-roundup/"><u>[New] Av & Acoustic Creatives Top 5 Online Leaders' Roundup</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-maximizing-reach-tweeting-on-facebook/"><u>[New] In 2024, Maximizing Reach Tweeting on Facebook</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/everaging-youtube-top-5-digital-strategies-for-brand-success/"><u>[New] Leveraging YouTube Top 5 Digital Strategies for Brand Success</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-reign-supreme-on-facebook-mastering-keyword-seo-techniques-for-2024/"><u>[New] Reign Supreme on Facebook Mastering Keyword SEO Techniques for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unveiling-prime-5-chrome-tools-for-facebook-vids-for-2024/"><u>[New] Unveiling Prime 5 Chrome Tools for Facebook Vids for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-amp-up-your-sessions-with-essential-tips-from-zooms-changer-suite/"><u>[Updated] 2024 Approved Amp Up Your Sessions with Essential Tips From Zoom's Changer Suite</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-extract-and-save-fb-videos-on-pcmac-anywhere/"><u>[Updated] In 2024, Extract & Save FB Videos on PC/Mac, Anywhere</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-fb-sounds-unlimited-grab-and-go/"><u>In 2024, FB Sounds Unlimited Grab & Go</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/1728482126428-pdf/"><u>PDFファイル紛失・回復手順ガイド:原因分析と再生のコツ</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/snapchat-integration-for-twitters-visual-content-for-2024/"><u>Snapchat Integration for Twitter's Visual Content for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triumph-in-global-business-with-language-skills/"><u>Triumph in Global Business With Language Skills</u></a></li>
+</ul></div>
 

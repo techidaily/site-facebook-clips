@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Essential Tutorial for FB Video Production\""
-date: 2024-11-16T22:37:38.740Z
-updated: 2024-11-19T21:22:03.572Z
+date: 2024-12-07T02:39:47.490Z
+updated: 2024-12-14T03:06:44.911Z
 tags:
   - ai video
   - ai facebook
@@ -45,20 +45,10 @@ After launching Filmora, click the “Import” button in the main menu, choose 
 ![import video to filmora9 to make facebook video](https://images.wondershare.com/filmora/article-images/filmora9-import-media.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After previewing, drag your files to the timeline. Put the files in the order you want them to appear in the final video, and your base sequence is now ready.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 2: Personalize Facebook video
 
@@ -81,10 +71,7 @@ Aside from the powerful editing features, there are more than 300 effects availa
 ![filmora9 add filters to facebook video](https://images.wondershare.com/filmora/guide/filters-9-win.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Filmora has more than 40 tracks built-in, and you can use them without worrying about the copyright concerns. What’s more, you can [add your own music track](https://tools.techidaily.com/wondershare/filmora/download/) and record your own voiceover to the video. To add the track to your Facebook video, just drag it to the timeline, and it will be placed in the sound track in the timeline. You can also [download royalty free background music](https://tools.techidaily.com/wondershare/filmora/download/) to use it for Facebook videos.
@@ -92,6 +79,10 @@ Filmora has more than 40 tracks built-in, and you can use them without worrying 
 * Filmora provides various preset text and titles for your Facebook video. You can add an Opener title and End Credits, which is very convenient. Also, you can add Lower 3rds and subtitles. Just place the Playhead to the position where a title is needed, and then drag the desired title to the timeline and edit the title in the preview window.
 
 ![add text to facebook video](https://images.wondershare.com/filmora/guide/add-title-effects.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Transition effects are widely used in video editing software, they are normally used when one slide/clip replaces another one. It will make your Facebook video good looking and impressive.
 * There are over 300 filters, overlays and elements embedded in Filmora that you can use for your Facebook video. What’s more, you can go to the [Filmstock (Effects Store)](https://tools.techidaily.com/wondershare/filmora/download/) to get specially designed Effects Sets, such as Beauty Set, Fashion Set, Fitness Set, Business Set, Food Set, Travel Set, Education Set and Holiday Set. What’s more, you can get some free Effects Packs just via sharing with your friends on Facebook. Let’s take a glimpse about the beauty set first.
@@ -104,33 +95,27 @@ When the video making process is complete, all you need to do is to export and p
 
 ![filmora export output](https://images.wondershare.com/filmora/article-images/export-output.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To upload your video to Facebook, you need to know the video formats that are supported by Facebook, and choose the related video format. More than .mp4, [Facebook also supports various video formats](https://www.facebook.com/help/218673814818907?helpref=uf%5Fpermalink), including 3g2, 3gp, asf, div and more.
 
 If you want to save it to your computer, You can rename the video, change the location where you save it. Also, you can check the output size before conversion and adjust output quality by clicking Settings button. By default, the exported video is in Better level. In order to get the best quality, it is suggested to adjust the output settings as the same or similar as the original video.
 
 ## Part 2: 3 Tips for making videos for Facebook
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. User's attention is important
 
 User's attention get away quickly, so [it is important to gran their attention at the first 3 seconds](https://www.huffpost.com/entry/as-attention-spans-get-shorter-content-gets-shorter%5Fb%5F5a57ae42e4b00a8c909f7f1e). You can collect some beautiful photos and video to be your video introduction as people tend to get captured by beauty. Besides, you can also use some astonishing stuff to make raise the interest of viwers. All in all, in the age of lossing patient, you need to try your best to hook viwers.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Know your objective
 
 You need to know your goals no matter what you need to do. One video only needs one objective. Viwers will get lost if you want to have more stuff in your one video. The best part of goal is you can find your first idea when you don't know what to do. For creating Facebook vido, you need to be specific if you decide to make product video, which means the only goal is to shooting your product.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Make it short
 
@@ -139,6 +124,10 @@ Usually, long video needs more patience of viwers. It is not advised to make lon
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -155,19 +144,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-go-full-screen-with-ease-masterful-mac-scaling-methods-for-insta-posts/"><u>[New] 2024 Approved Go Full Screen with Ease Masterful Mac Scaling Methods for Insta Posts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-how-to-post-twitter-videos-on-snapchat/"><u>[New] How to Post Twitter Videos on Snapchat?</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-a-practical-approach-to-hymnal-phone-tones/"><u>[Updated] A Practical Approach to Hymnal Phone Tones</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-guide-to-premium-free-online-screen-recorders-for-2024/"><u>[Updated] Guide to Premium Free Online Screen Recorders for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-clandestine-fb-live-observer/"><u>2024 Approved Clandestine FB Live Observer</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-expand-your-online-horizons-upload-360-photos-with-ease-on-mobile-platforms/"><u>2024 Approved Expand Your Online Horizons Upload 360 Photos with Ease on Mobile Platforms</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-social-signals-and-their-role-in-youtube-popularity/"><u>2024 Approved Social Signals and Their Role in YouTube Popularity</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/breaking-into-the-digital-age-mobile-streaming-on-facebook-for-2024/"><u>Breaking Into the Digital Age Mobile Streaming on Facebook for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/delving-into-backward-image-analysis-techniques-for-fb-users-for-2024/"><u>Delving Into Backward Image Analysis Techniques for FB Users for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/dynamic-lighting-elevating-video-aesthetics-for-2024/"><u>Dynamic Lighting Elevating Video Aesthetics for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/enriched-video-presentation-implementing-lc-and-bb-on-social-platforms-for-2024/"><u>Enriched Video Presentation Implementing LC and BB on Social Platforms for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/exploring-potential-threats-in-the-use-of-chatgpt/"><u>Exploring Potential Threats in the Use of ChatGPT</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/how-iphoneandroid-users-add-soundtracks-to-their-profile-for-2024/"><u>How iPhone/Android Users Add Soundtracks to Their Profile for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-fix-apple-id-verification-code-not-working-on-iphone-xr-by-drfone-ios/"><u>How To Fix Apple ID Verification Code Not Working On iPhone XR</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-connecting-tv-audiences-to-facebook-live-shows/"><u>[New] 2024 Approved Connecting TV Audiences to Facebook Live Shows</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-harnessing-tools-for-fb-content-extraction/"><u>[New] 2024 Approved Harnessing Tools for FB Content Extraction</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-insightful-approaches-to-recognizing-genuine-facebook-advocates/"><u>[New] 2024 Approved Insightful Approaches to Recognizing Genuine Facebook Advocates</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-reviving-cut-off-livestreams-solving-facebook-streaming-hiccups/"><u>[New] Reviving Cut-Off Livestreams Solving Facebook Streaming Hiccups</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-top-vlog-concepts-for-daily-engagement/"><u>[New] Top Vlog Concepts for Daily Engagement</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-crafting-visibility-on-youtube-the-ultimate-guide-to-featured-channel-placement/"><u>[Updated] In 2024, Crafting Visibility on YouTube The Ultimate Guide to Featured Channel Placement</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exclusive-listing-high-quality-free-streamers-for-webm-files/"><u>2024 Approved Exclusive Listing High-Quality, Free Streamers for WebM Files</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Tecno Spark 20 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/a-comprehensive-guide-to-mac-audio-recording-with-audacity-for-2024/"><u>A Comprehensive Guide to Mac Audio Recording with Audacity for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/chat-to-tune-downloader-for-fb/"><u>Chat to Tune Downloader for FB</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-motorola-moto-g73-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Motorola Moto G73 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/leading-transformation-software-spectrashift-series/"><u>Leading Transformation Software SpectraShift Series</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-14-plus-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 14 Plus Data From iOS iTunes | Dr.fone</u></a></li>
 </ul></div>
 

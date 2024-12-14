@@ -1,7 +1,7 @@
 ---
 title: "Taking Your Tweets Public on Facebook for 2024"
-date: 2024-12-06T21:49:29.753Z
-updated: 2024-12-08T02:20:00.866Z
+date: 2024-12-06T17:07:09.208Z
+updated: 2024-12-13T21:46:30.472Z
 tags:
   - ai video
   - ai facebook
@@ -25,13 +25,13 @@ thumbnail: https://www.lifewire.com/thmb/qx60cS4CmTRezctL0-71-tWrmCg=/400x300/fi
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why share Twitter posts to Facebook?
 
  In today's fast paced life, it's time-consuming to manage multiple accounts on different social media platforms manually. Fortunately, you can set your Twitter account and sync it with Facebook to kill two birds with a single stone. You can post Tweets to Facebook automatically as updates, sparing your personal intervention. Automatic posting of Tweets on Facebook ensures your friends on both platforms get your updates without the extra work.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Post Tweets to Facebook – Step by Step guide
 
@@ -43,33 +43,33 @@ thumbnail: https://www.lifewire.com/thmb/qx60cS4CmTRezctL0-71-tWrmCg=/400x300/fi
 
 ![post tweet on facebook 1](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Once you login to your Twitter account, tap on your profile picture on the top right corner of the screen, next to the ‘Tweet' tab.
 2. Now, from the dropdown list shown to you, click ‘Settings and privacy' and then open the ‘Apps' tab from the left panel.
 
 ![post tweet on facebook 2](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Now, hit the ‘Connect to Facebook' option under Applications. You will be prompted with a popup to log in, in case you haven't logged in to Facebook on the same browser. Enter the details and log in.
 
 ![post tweet on facebook 3](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Upon being prompted for permission from Twitter to access your Facebook information, click ‘Continue as \[Facebook Profile/user name\]' to continue.
 
 ![post tweet on facebook 4](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Now you need to configure the ‘Select the privacy settings' to decide who is going to receive your Twitter updates on Facebook. When you post Tweets to Facebook, by default your friends will get to see them.
 2. Now, you need to tap ‘OK' and finish the process. The Tweets and Retweets will be posted to your Facebook with your Twitter username, though the replies for the Tweets won't be posted in Facebook.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Tools for managing your social media accounts
 
@@ -176,7 +176,7 @@ thumbnail: https://www.lifewire.com/thmb/qx60cS4CmTRezctL0-71-tWrmCg=/400x300/fi
 * Enterprise - $1500/month/10 users/50 profiles
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Wrapping Up
@@ -200,21 +200,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-covert-consumer-of-virtual-diaries/"><u>[New] In 2024, Covert Consumer of Virtual Diaries</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-snappy-narratives-on-the-social-scene/"><u>[New] In 2024, Snappy Narratives on the Social Scene</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-ioss-best-selection-of-premium-psp-emulators/"><u>[New] IOS's Best Selection of Premium PSP Emulators</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-2023-facebook-hack-get-your-account-back/"><u>[Updated] 2024 Approved 2023 | Facebook Hack? Get Your Account Back</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-the-ultimate-handbook-to-producing-viral-facebook-reels/"><u>[Updated] 2024 Approved The Ultimate Handbook to Producing Viral Facebook Reels</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-digital-dive-capturing-the-days-lifelike-snapshots-on-fb-for-2024/"><u>[Updated] Digital Dive Capturing the Day's Lifelike Snapshots on FB for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-illustrators-dream-top-8-ipados-drawers-for-2024/"><u>[Updated] Illustrator's Dream Top 8 iPadOS Drawers for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-achieve-higher-interactions-mastering-the-art-of-square-videos/"><u>[Updated] In 2024, Achieve Higher Interactions Mastering the Art of Square Videos</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-from-bland-to-breathtaking-craft-captivating-content-on-tiktok-quickly/"><u>2024 Approved From Bland to Breathtaking Craft Captivating Content on TikTok Quickly</u></a></li>
-<li><a href="https://video-capture.techidaily.com/identifying-the-storage-location-of-vlcs-video-capture-sessions-a-detailed-guide/"><u>Identifying the Storage Location of VLC's Video Capture Sessions: A Detailed Guide.</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/mastering-profit-strategies-for-vimeo-content-creators/"><u>Mastering Profit Strategies for Vimeo Content Creators</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/revolutionary-approaches-to-share-fb-videos-on-whatsapp/"><u>Revolutionary Approaches to Share FB Videos on WhatsApp</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211244641-9781451643725-songs-of-the-arcturians/"><u>Songs of the Arcturians | Free Book</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ultimate-tutorial-on-connecting-apple-devices-display-content-on-tv-using-airplay/"><u>Ultimate Tutorial on Connecting Apple Devices - Display Content on TV Using AirPlay</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-discovering-the-top-six-no-cost-daw-programs-for-novice-producers/"><u>Updated 2024 Approved Discovering the Top Six No-Cost DAW Programs for Novice Producers</u></a></li>
-<li><a href="https://windows11.techidaily.com/windows-security-10-leading-software-sites/"><u>Window's Security: 10 Leading Software Sites</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-discover-the-art-of-following-facebook-live-events/"><u>[New] 2024 Approved Discover the Art of Following Facebook Live Events</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-unlocking-facebook-stories-a-curated-list-of-download-methods/"><u>[New] 2024 Approved Unlocking Facebook Stories A Curated List of Download Methods</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-delving-into-ffmpeg-unaltered-audio-extraction/"><u>[New] Delving Into FFmpeg Unaltered Audio Extraction</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-flow-and-flourish-with-these-elite-yogis-online/"><u>[New] Flow & Flourish with These Elite Yogis Online</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-the-ultimate-newbies-roadmap-building-a-channel-making-cash/"><u>[New] In 2024, The Ultimate Newbie's Roadmap Building a Channel, Making Cash</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unveiling-canvas-power-10-pro-editor-techniques/"><u>[New] Unveiling Canva's Power 10 Pro Editor Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-turn-social-media-audio-into-mp3/"><u>[Updated] In 2024, Turn Social Media Audio Into MP3</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-top-5-methods-capturing-facebook-stories-on-devices-for-2024/"><u>[Updated] Top 5 Methods Capturing Facebook Stories on Devices for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-macbook-models-air-vs-pro-key-distinctions-explained/"><u>Comparing MacBook Models: Air Vs. Pro – Key Distinctions Explained</u></a></li>
+<li><a href="https://win-hot.techidaily.com/discover-the-reasons-behind-your-tech-issues-with-expert-advice-from-yl-software/"><u>Discover the Reasons Behind Your Tech Issues with Expert Advice From YL Software</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/from-mailboxes-to-motion-pictures-a-closer-look-at-netflixs-former-dvd-rental-system/"><u>From Mailboxes to Motion Pictures: A Closer Look at Netflix's Former DVD Rental System</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/guiding-users-on-completely-audible-fb-videos-for-2024/"><u>Guiding Users on Completely Audible FB Videos for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-trouble-with-apple-iphone-14-swipe-up-try-these-11-solutions-by-drfone-ios/"><u>In 2024, Trouble with Apple iPhone 14 Swipe-Up? Try These 11 Solutions</u></a></li>
 </ul></div>
 

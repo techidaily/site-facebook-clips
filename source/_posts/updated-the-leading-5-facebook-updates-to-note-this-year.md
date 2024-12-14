@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Leading 5 Facebook Updates to Note This Year"
-date: 2024-11-15T23:57:45.639Z
-updated: 2024-11-19T16:06:36.354Z
+date: 2024-12-07T18:59:00.371Z
+updated: 2024-12-13T16:09:36.452Z
 tags:
   - ai video
   - ai facebook
@@ -29,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/fb9800d0908e1be810fcc7b3cec05fac87c5747d2
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
@@ -39,13 +43,6 @@ thumbnail: https://thmb.techidaily.com/fb9800d0908e1be810fcc7b3cec05fac87c5747d2
 
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Messenger Day – The Snapchat Way
 
  This app was also launched in the month of March and surprisingly it appeared like biggest competitor against Instagram Stories and Snapchat. However, few features like stickers, filters and posts disappearing within 24 hours etc are also same as that of other competing platforms.
@@ -55,10 +52,7 @@ thumbnail: https://thmb.techidaily.com/fb9800d0908e1be810fcc7b3cec05fac87c5747d2
  One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Facebook Live
@@ -68,10 +62,7 @@ thumbnail: https://thmb.techidaily.com/fb9800d0908e1be810fcc7b3cec05fac87c5747d2
  Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Advertising Capabilities
@@ -83,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/fb9800d0908e1be810fcc7b3cec05fac87c5747d2
 
 [How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Group Videos
 
  Last but not the least, Group video chat is the best solution to all crazy messenger users who wants to stay connected with all their friends on the go. The amazing news is that you can add about 50 users to one video group chat. Further, it will also help you to put fun filters to keep your chats interactive and full of laughter. In case if you find those Facebook chat heads annoying on your device screen then you can now easily remove them from profile settings. In simple words, Facebook has lots of things wrapped inside its platform for you all; get ready to have the real fun.
@@ -90,16 +85,7 @@ thumbnail: https://thmb.techidaily.com/fb9800d0908e1be810fcc7b3cec05fac87c5747d2
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -117,17 +103,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-direct-tweet-transfers-to-facebook-feed-for-2024/"><u>[New] Direct Tweet Transfers to Facebook Feed for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-weaving-tech-guide-mastering-screen-recording-on-loom/"><u>[New] In 2024, Weaving Tech Guide Mastering Screen Recording on Loom</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-navigating-trends-essential-hashtags-for-todays-influencers/"><u>[New] Navigating Trends Essential Hashtags for Today's Influencers</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-unlock-fb-status-videos-downloading-made-easy-for-2024/"><u>[New] Unlock FB Status Videos Downloading Made Easy for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-unveiling-the-best-practices-for-crafting-viral-instagram-reels-for-2024/"><u>[New] Unveiling the Best Practices for Crafting Viral Instagram Reels for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-propel-your-social-impact-with-strategic-facebook-video-ads/"><u>[Updated] 2024 Approved Propel Your Social Impact with Strategic Facebook Video Ads</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-simplified-guide-to-iphone-screen-adjustment-for-2024/"><u>[Updated] Simplified Guide to iPhone Screen Adjustment for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-oppo-find-x6-pro-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Oppo Find X6 Pro to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/expand-your-reach-top-tactics-to-amplify-fb-clout/"><u>Expand Your Reach Top Tactics to Amplify FB Clout</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/hide-and-view-fb-snapshot-tool/"><u>Hide-and-View FB Snapshot Tool</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-surprising-evolution-of-apples-flop-product-now-shining-as-a-premium-contender-zdnet/"><u>The Surprising Evolution of Apple's Flop Product, Now Shining as a Premium Contender | ZDNet</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/trier-un-fichier-ts-au-format-vob-sur-votre-ordinateur-gratuitement-avec-movavi/"><u>Trier Un Fichier Ts Au Format Vob Sur Votre Ordinateur Gratuitement Avec Movavi</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-discovering-the-most-engaging-facebook-vids/"><u>[New] 2024 Approved Discovering the Most Engaging Facebook Vids</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-how-to-add-link-to-facebook-story-for-free/"><u>[New] 2024 Approved How to Add Link to Facebook Story for Free?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-engaging-in-larger-than-life-fb-videos/"><u>[Updated] Engaging in Larger-Than-Life FB Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-are-you-prepared-for-the-changed-facebook-algorithm/"><u>[Updated] In 2024, Are You Prepared for the Changed Facebook Algorithm?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-perfecting-your-snap-zoom-levels-unveiled-in-insta-stories-for-2024/"><u>[Updated] Perfecting Your Snap Zoom Levels Unveiled in Insta Stories for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-professional-mobile-photography-strategies/"><u>2024 Approved Professional Mobile Photography Strategies</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-tips-for-correcting-the-binkw32dll-file-not-present-mistake-in-windows/"><u>Expert Tips for Correcting the binkw32.dll File Not Present Mistake in Windows</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-latest-version-of-sapphire-gpu-drivers-for-windows-pcs/"><u>Get the Latest Version of Sapphire GPU Drivers for Windows PCs</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-realme-gt-3-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Realme GT 3 to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-limitations-of-ai-chatbots-8-essential-facts-for-content-creators/"><u>The Limitations of AI Chatbots: 8 Essential Facts for Content Creators</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-to-7-innovative-calendar-apps-for-todays-hectic-homes/"><u>The Ultimate Guide to 7 Innovative Calendar Apps for Today’s Hectic Homes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-secrets-of-croatias-language-with-our-113-essential-expressions-list/"><u>Unlock the Secrets of Croatia's Language with Our 113 Essential Expressions List</u></a></li>
 </ul></div>
 

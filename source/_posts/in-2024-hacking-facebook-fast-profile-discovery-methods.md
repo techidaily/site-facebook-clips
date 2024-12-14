@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Hacking Facebook  Fast Profile Discovery Methods\""
-date: 2024-11-30T22:40:16.304Z
-updated: 2024-12-07T21:08:45.600Z
+date: 2024-12-09T18:22:10.841Z
+updated: 2024-12-13T16:27:12.724Z
 tags:
   - ai video
   - ai facebook
@@ -35,20 +35,32 @@ Here are two ways to search people on Facebook. The second option also helps you
 * [**Part 2: How to search people using Search Is Back**](#part2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to search people on Facebook
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 1: Log in to Facebook
 
 Open Facebook on your computer – Firstly, open a web browser and get to the Facebook website. You can find the log in fields on the top right corner of the page. Input your user ID and password and hit the login button at the side to proceed further.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 2: Check your list of Friends on Facebook
 
 On the header tool icons, click on your name and you are directed to your Facebook wall or timeline. Just below your cover image, click the friend’s tab, to reach the Friends page that shows all your friends on Facebook.
 
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 3: Friends Finder Page
 
@@ -57,11 +69,7 @@ To reach the friend’s finder page, click on “find friends” from the friend
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 4: Friends Search
@@ -74,27 +82,19 @@ On the left panel, you can find several names matching your search filter. You j
 
 ## Part 2: How to search people using Search Is Back
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Open and Select
 
 On a browser open the [Search is Back site](https://searchisback.com/). You can find four tabs at the top of the page. Click on the first tab, “Find People” and a page appears to select your picks from the available options.
 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Input your Interest
 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Add People as Friends
 
@@ -135,17 +135,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-livestream-leaders-guide-elevating-pre-recorded-videos-on-social-media/"><u>[New] 2024 Approved Livestream Leaders' Guide Elevating Pre-Recorded Videos on Social Media</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-livestream-recorder-for-messenger/"><u>[New] 2024 Approved LiveStream Recorder for Messenger</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-masterful-marketing-top-strategies-to-thrive-in-fb-video-space/"><u>[New] Masterful Marketing Top Strategies to Thrive in FB Video Space</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-whats-new-on-facebook-an-updated-look/"><u>[Updated] 2024 Approved What's New on Facebook - An Updated Look</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-disabling-youtube-shorts-for-good-a-simple-approach/"><u>[Updated] In 2024, Disabling YouTube Shorts for Good A Simple Approach</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-laptop-and-mobile-commencing-a-google-meet-session/"><u>[Updated] In 2024, Laptop & Mobile Commencing a Google Meet Session</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-premier-media-mover-mp4-to-fb/"><u>[Updated] In 2024, Premier Media Mover MP4-to-FB</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-poco-x5-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Poco X5 Phone? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-xiaomi-redmi-13c-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Xiaomi Redmi 13C Screen | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/leveraging-icloud-for-seamless-collaboration-on-apple-pages-documents-tips-and-techniques-guide/"><u>Leveraging iCloud for Seamless Collaboration on Apple Pages Documents: Tips & Techniques Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/revitalize-vintage-images-using-winxvideo-artificial-intelligence-technology/"><u>Revitalize Vintage Images Using Winxvideo Artificial Intelligence Technology</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/tackling-service-interruptions-in-chatgpt-plugin-relationships/"><u>Tackling Service Interruptions in ChatGPT-Plugin Relationships</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-facebook-evolution-what-you-need-to-know/"><u>[New] 2024 Approved Facebook Evolution What You Need to Know</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-space-to-nature-yts-guide-for-dynamic-green-screen-filmmaking/"><u>[New] 2024 Approved From Space to Nature YT's Guide for Dynamic Green Screen Filmmaking</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-expertly-select-the-fastest-5-chrome-plugins-for-fb-video-downloads/"><u>[New] In 2024, Expertly Select The Fastest 5 Chrome Plugins for FB Video Downloads</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-mastering-past-facebook-feed-exploration-for-laptops-and-phones-for-2024/"><u>[New] Mastering Past Facebook Feed Exploration for Laptops and Phones for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-non-playing-youtube-content-fixed-for-phonestablets-for-2024/"><u>[New] Non-Playing YouTube Content Fixed for Phones/Tablets for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-top-10-youtube-video-grabber-apps-best-in-class-compatibility-for-2024/"><u>[New] Top 10 YouTube Video Grabber Apps, Best-in-Class Compatibility for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-bitevideo-innovator/"><u>[Updated] 2024 Approved BiteVideo Innovator</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-exploring-the-reasons-behind-blue-icons-in-facebooks-chat-communication/"><u>[Updated] 2024 Approved Exploring the Reasons Behind Blue Icons in Facebook’s Chat Communication</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-essential-flight-gear-to-upgrade-your-phantom-4-drone/"><u>[Updated] In 2024, Essential Flight Gear to Upgrade Your Phantom 4 Drone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-viral-video-round-up-a-list-of-todays-favorites-on-fb/"><u>[Updated] Viral Video Round-Up A List of Today's Favorites on FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-mastering-your-digital-footprint-facebook-lives-made-easy/"><u>2024 Approved Mastering Your Digital Footprint Facebook Lives Made Easy</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-picture-perfect-in-the-sky-discover-infinite-complimentary-and-paid-cloud-repositories/"><u>2024 Approved Picture Perfect in the Sky Discover Infinite, Complimentary, & Paid Cloud Repositories</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/asus-rt-ac68u-wireless-router-test-fast-and-robust-5g-internet-security/"><u>Asus RT-AC68U Wireless Router Test: Fast & Robust 5G Internet Security</u></a></li>
+<li><a href="https://win-data.techidaily.com/educational-tech-breakthrough-how-dedicated-devices-running-on-windows-amoled-specialized-launch-highlighted-in-a-zdnet-exclusive/"><u>Educational Tech Breakthrough: How Dedicated Devices Running on Windows Amoled | Specialized Launch Highlighted in a ZDNet Exclusive</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-from-apple-iphone-8-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID From Apple iPhone 8 without Password?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-overcoming-the-surprising-see-myself-issue-on-social-media/"><u>In 2024, Overcoming the Surprising See Myself Issue on Social Media</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/pcandroid-tutorial-successful-facebook-video-sharing/"><u>PC/Android Tutorial Successful Facebook Video Sharing</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/speed-demon-the-top-windows-photo-browser-for-2024/"><u>Speed Demon The Top Windows Photo Browser for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-complete-silence-how-to-restore-audio-functionality-on-your-laptop/"><u>Troubleshooting Complete Silence: How to Restore Audio Functionality on Your Laptop</u></a></li>
 </ul></div>
 

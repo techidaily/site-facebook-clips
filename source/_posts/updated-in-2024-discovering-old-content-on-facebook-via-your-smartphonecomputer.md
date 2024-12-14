@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Discovering Old Content on Facebook via Your Smartphone/Computer"
-date: 2024-11-13T16:14:30.406Z
-updated: 2024-11-19T20:46:12.722Z
+date: 2024-12-08T00:12:28.021Z
+updated: 2024-12-13T18:14:59.343Z
 tags:
   - ai video
   - ai facebook
@@ -37,6 +37,10 @@ Facebook has a complex interface, but it will be much easier to navigate it once
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to View Old Stories on iPhone/Android Facebook App?
 
 Facebook mobile application is one of the convenient ways of using it as it has a user-friendly interface. You can quickly post stories through the Facebook mobile app and interact with your friends. Here is how you can view old stories on a mobile app:
@@ -56,10 +60,7 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -95,10 +96,7 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -118,10 +116,7 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
@@ -147,16 +142,7 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -174,19 +160,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-captivating-your-network-streamlining-content-via-wirecast-to-facebook-for-2024/"><u>[New] Captivating Your Network Streamlining Content via Wirecast to Facebook for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-art-of-story-lensing-smart-zooms-on-instagram/"><u>[New] In 2024, The Art of Story Lensing Smart Zooms on Instagram</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-elevate-your-gameplay-stream-xbox-seamlessly-to-facebook/"><u>[Updated] 2024 Approved Elevate Your Gameplay Stream Xbox Seamlessly to Facebook</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-step-up-your-iphones-selfie-game-with-these-best-free-app-tools/"><u>[Updated] 2024 Approved Step-Up Your iPhone's Selfie Game with These Best Free App Tools</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-a-comprehensive-analysis-ergonomic-furnitures-impact-on-efficiency/"><u>[Updated] A Comprehensive Analysis Ergonomic Furniture's Impact on Efficiency</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-expert-tips-on-producing-high-quality-facebook-video-for-2024/"><u>[Updated] Expert Tips on Producing High-Quality Facebook Video for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-fb-videos-unleashed-with-new-mobile-app/"><u>[Updated] FB Videos Unleashed with New Mobile App</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-unlock-the-secrets-of-facebook-live-a-beginners-manual-for-2024/"><u>[Updated] Unlock the Secrets of Facebook Live A Beginner's Manual for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/2024s-leading-antivirus-programs-unveiled-comprehensive-analysis/"><u>2024'S Leading Antivirus Programs Unveiled | Comprehensive Analysis</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/cutting-edge-collaboration-intel-and-exxonmobil-develop-next-gen-liquid-cooling-tech-for-high-performance-2kw-tdp-xeon-cpus/"><u>Cutting-Edge Collaboration: Intel & ExxonMobil Develop Next-Gen Liquid Cooling Tech for High-Performance 2kW TDP Xeon CPUs</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/fixing-half-muted-content-on-twitter-live-streams/"><u>Fixing Half-Muted Content on Twitter Live Streams</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/stellars-guide-to-effective-data-destruction-tips-and-best-practices/"><u>Stellar's Guide to Effective Data Destruction: Tips and Best Practices</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/strategies-to-eliminate-frames-loss-in-obs-recordings/"><u>Strategies to Eliminate Frames Loss in OBS Recordings</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-video-editing-made-easy-a-windows-movie-maker-tutorial-for-all/"><u>Updated Video Editing Made Easy A Windows Movie Maker Tutorial for All</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-deciphering-highlighted-discussion-threads/"><u>[New] 2024 Approved Deciphering Highlighted Discussion Threads</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-puzzling-over-why-your-facebook-feed-lacks-recommended-movies-for-2024/"><u>[New] Puzzling Over Why Your Facebook Feed Lacks Recommended Movies for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-sonic-scenes-from-still-shots/"><u>[New] Sonic Scenes From Still Shots</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-unveiling-the-secrets-of-free2x-recording-tech-for-2024/"><u>[New] Unveiling the Secrets of Free2X Recording Tech for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-excellent-storage-upgrade-for-sony-a7s-ii-cameras/"><u>[Updated] 2024 Approved Excellent Storage Upgrade for Sony A7S II Cameras</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-adding-melodies-to-timelines-a-stepwise-guide-iosandroid-for-2024/"><u>[Updated] Adding Melodies to Timelines A Stepwise Guide (iOS/Android) for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-narrative-nuance-in-voiceovers-mastering-the-art-of-storytelling-on-ppts/"><u>[Updated] In 2024, Narrative Nuance in Voiceovers Mastering the Art of Storytelling on PPTs</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/facebook-security-breach-regain-account-with-ease-for-2024/"><u>Facebook Security Breach? Regain Account with Ease for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/formulating-engaging-visual-strategies-in-fb-marketing-for-2024/"><u>Formulating Engaging Visual Strategies in FB Marketing for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-live-stream-facebook-from-pc-mac-or-laptop-with-obs-for-2024/"><u>How to Live Stream Facebook From PC, Mac or Laptop with OBS for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-nokia-g42-5g-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Nokia G42 5G Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-paint-picture-humor/"><u>In 2024, Paint Picture Humor</u></a></li>
+<li><a href="https://windows11.techidaily.com/mastering-the-art-of-fixing-windows-error-code-0x80070570/"><u>Mastering the Art of Fixing Windows Error Code 0X80070570</u></a></li>
 </ul></div>
 

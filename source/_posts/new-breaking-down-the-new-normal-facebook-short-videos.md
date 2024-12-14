@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Breaking Down the New Normal  Facebook Short Videos\""
-date: 2024-12-01T22:39:02.309Z
-updated: 2024-12-07T23:25:13.870Z
+date: 2024-12-09T21:54:32.794Z
+updated: 2024-12-14T02:00:28.733Z
 tags:
   - ai video
   - ai facebook
@@ -25,9 +25,17 @@ Facebook short videos use a similar format as reels, where content creators can 
 
 This article explains how to view these short videos on Facebook and create them. In order to find out more, keep reading!!!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Watch Facebook Short Videos?
 
 Watching Facebook short videos is a relatively easier process, but we will guide you through a step-by-step process to achieve this since this is a new feature.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 1: Open Facebook
 
@@ -35,23 +43,11 @@ The first step is very basic. All you got to do is open your Facebook App.
 
 ![Launch Facebook](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 2: Scroll Down
 
 Once your app is up and running, scroll down. After about 3 to 4 posts, you will see a template that saysAltAlt short videos with several videos present.
 
 ![Scroll to Short Videos](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 3: Tap on the Video
 
@@ -63,10 +59,6 @@ Once you see the video, tap on it. This should play a short video. Scroll down t
 
 The Facebook short videos are a new feature, so we will tell you how to enable them if you want them. If it annoys you, we will add steps on how you can disable it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Enabling Facebook Short Stories
 
 If you have tried the steps described above and still cannot see the short videos on your Facebook feed, we will help you see them.
@@ -76,6 +68,10 @@ If you have tried the steps described above and still cannot see the short video
 Click on the Play Store and search Facebook.
 
 ![Launch Playstore](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2: Update Facebook**
 
@@ -93,15 +89,15 @@ Tap on Facebook and view its space; tapAltAlt on clear data.
 
 ![Select Clear Data](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5: Give Facebook all the Permissions**
 
 After deleting the data, give Facebook access to all the permissions.
 
 ![Giving Permission access](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 5: Restart your Device**
 
@@ -116,7 +112,7 @@ Once your device has restarted, launch Facebook and log in.
 This process lets Facebook reboot and brings the newer updates through, so sit back and enjoy the short videos on Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Disabling Facebook Short Stories
@@ -129,21 +125,25 @@ The first step is simple. YouAltAlt open your Facebook app.
 
 ![Launch Facebook](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2: Scroll to short videos**
 
 Once your app has launched, scroll down to the short videos section.
 
 ![Scroll to Short Videos](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Tap on three dots**
 
 Right next to the create option, you will see three dots. Tap on them.
 
 ![Tap on three dots](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-10.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4: Tap on Hide**
 
@@ -153,13 +153,13 @@ Once you tap on the three dots, a pop-up will appear. This pops up will ask if y
 
 The short video on Facebook is an integrated feature into the application’s user interface, making it impossible to disable it. You can, however, hide it from your newsfeed for the time that you are scrolling through your feed.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Create Short Videos?
 
 Seeing several different videos may make you want to make your own as well. Perhaps a content creator might give you the motivation to become one yourself. To take the first steps towards this, we will help you create your own short videos in 2 ways.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Short Videos Using Facebook
 
@@ -180,6 +180,10 @@ After the app launches, scroll down to short videos.
 On the top right-hand corner, you will see a small camera icon with create written beside it. Tap on it.
 
 ![Tap on create](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-13.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Record a Video**
 
@@ -204,10 +208,6 @@ Once you have successfully edited the video to your liking, tap on next.
 Once you have added the description that you want to, you can post the video. You have now successfully uploaded your very own short video.
 
 ![Post the Video](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-17.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Short Video using Wondershare Filmora
 
@@ -237,10 +237,6 @@ Right above the timeline, you can see several options that you can use to edit t
 
 ![Editing bar](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-20.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5: Export the Edited Footage**\>
 
 Right at the very corner of the editing bar, there is an export option. You click on it, which takes you to a new pop-up. In that pop-up, select the video format, make sure it is compatible with Facebook.
@@ -260,6 +256,10 @@ Repeat scrolling down to short videos on Facebook and tapping on create.
 At the bottom left corner, you will see the gallery’s icon quite prominent. Tap on it.
 
 ![Selecting Gallery](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-22.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 9: Upload the Video**\>
 
@@ -314,15 +314,20 @@ Although the young generation has shifted to Instagram and Snapchat, the previou
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-a-comprehensive-guide-to-climbing-the-facebook-rankings-ladder/"><u>[New] A Comprehensive Guide to Climbing the Facebook Rankings Ladder</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-freezing-gameplay-essential-pc-screen-snaps/"><u>[New] In 2024, Freezing Gameplay Essential PC Screen Snaps</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-syncing-your-phone-with-facebook-videos-on-appletv/"><u>[Updated] 2024 Approved Syncing Your Phone with Facebook Videos on AppleTV</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-fixing-half-silenced-facebook-video-volume/"><u>[Updated] In 2024, Fixing Half-Silenced Facebook Video Volume</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-top-5-ios-friendly-apps-unlocking-facebooks-richest-media-library-for-2024/"><u>[Updated] Top 5 iOS-Friendly Apps Unlocking Facebook's Richest Media Library for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/15-gamers-dream-at-just-530-during-best-buys-prime-day-sale-exclusive-review-by-zdnet/"><u>15 Gamer's Dream at Just $530 During Best Buy’s Prime Day Sale – Exclusive Review by ZDNet!</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722976641953-download-latest-wacom-intuus-drawing-pad-drivers-simple-steps/"><u>Download Latest Wacom Intuus Drawing Pad Drivers - Simple Steps</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/full-examination-hero4-black-designs-for-2024/"><u>Full Examination Hero4 Black Designs for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-your-m-audio-fast-track-driver-for-multiple-windows-versions-here/"><u>Get Your M-Audio Fast Track Driver for Multiple Windows Versions Here</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/online-webm-to-3gp-video-transcoding-service-no-cost-easy-use-by-movavi/"><u>Online WebM-to-3GP Video Transcoding Service - No Cost, Easy Use by Movavi</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-fb-snapcast-converter/"><u>[New] 2024 Approved FB Snapcast Converter</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-eliminating-iphoneandroid-issues-with-fb-message-video-sharing-for-2024/"><u>[New] Eliminating iPhone/Android Issues with FB Message Video Sharing for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-elite-stealth-vids-downloader-guide-1-to-8/"><u>[New] In 2024, Elite Stealth Vids Downloader Guide - #1 to #8</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-personalize-the-save-spot-of-mac-images/"><u>[New] Personalize the Save Spot of Mac Images</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-boosting-your-fb-pages-advanced-ranking-strategies/"><u>[Updated] Boosting Your FB Pages Advanced Ranking Strategies</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/a-comprehensive-guide-to-implementing-and-evaluating-fb-in-stream-ads-for-2024/"><u>A Comprehensive Guide to Implementing & Evaluating FB In-Stream Ads for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/audio-device-compatibility-issues-no-more-in-windows/"><u>Audio Device Compatibility Issues No More in Windows</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/discover-the-undiscovered-top-social-media-memes-for-2024/"><u>Discover the Undiscovered Top Social Media Memes for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/exclusive-july-202n4-apple-blowouts-revealed-score-iphones-and-more-at-unbeatable-prices-detailed-listings/"><u>Exclusive July 202N4 Apple Blowouts Revealed: Score IPhones & More at Unbeatable Prices | Detailed Listings</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-the-art-of-instagrams-visual-storytelling/"><u>In 2024, Mastering the Art of Instagram's Visual Storytelling</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-minimap-memories-mastering-6-ways-to-record-your-gameplay/"><u>In 2024, Minimap Memories Mastering 6 Ways to Record Your Gameplay</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-ultimate-guide-from-apple-iphone-11-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Ultimate Guide from Apple iPhone 11 iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-why-does-itools-virtual-location-not-work-for-apple-iphone-14ipad-solved-drfone-by-drfone-virtual-ios/"><u>In 2024, Why Does iTools Virtual Location Not Work For Apple iPhone 14/iPad? Solved | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/preferred-practices-for-streaming-video-recording-on-youtube-for-2024/"><u>Preferred Practices for Streaming Video Recording on YouTube for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/quick-solutions-to-correct-sound-malfunctions-on-your-windows-11-system/"><u>Quick Solutions to Correct Sound Malfunctions on Your Windows 11 System</u></a></li>
 </ul></div>
 

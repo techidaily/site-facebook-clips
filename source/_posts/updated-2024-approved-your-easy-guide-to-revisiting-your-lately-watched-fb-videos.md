@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Your Easy Guide to Revisiting Your Lately Watched FB Videos\""
-date: 2024-11-17T00:05:19.639Z
-updated: 2024-11-19T18:55:58.647Z
+date: 2024-12-06T16:59:54.495Z
+updated: 2024-12-14T00:07:14.461Z
 tags:
   - ai video
   - ai facebook
@@ -37,6 +37,10 @@ Part 1: [How Can I Find Facebook Watched Videos on Desktop or Web?](#step1)
 
 Part 2: [How to Find Recently Watched Videos on Facebook App?](#step2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. How Can I Find Facebook Watched Videos on Desktop or Web?
 
 At first, we will discuss the method on how you can find Facebook-watched videos on the desktop. Keep note that the video will be listed in the watch history, even if it's played for a second or two. All you require to do is access them through your profile. Another thing that's important to know is that the videos of your Facebook history are accessible through your account only.
@@ -122,20 +126,254 @@ Some people may wonder whether anyone else can see what they watch on Facebook. 
 ![video likes](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * **Post Shares:**Your name is also visible if you share a video to your timeline or in case of direct messages.
 
+### How Does Facebook Decide the Suggested Videos?
+
+The videos suggested on Facebook appear because of liked pages and video popularity. You can customize the same through the below steps:
+
+* Go to the left menu and click on "Watch" from your News Feed.
+
+* Click on the right side of the video top and select "Hide Video." This will ensure you do not see similar videos.
+
+## Conclusion
+
+So, that's how you can find watched videos on Facebook. The steps are pretty easy and an absolute life-saver. Whenever it feels like you missed a video, these steps will ensure that you find them easily. For your convenience, we have mentioned the process for both the Facebook application and desktop. Make sure to select the method as per the mode you use. Hopefully, the above steps will solve your problem in an easy and efficient manner.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Imagine a situation where you have watched a video on Facebook but forgot to save it. Now, days later, you need that video again for some work. How annoying is it? Things get more infuriating when you don't remember the name of the page or account where the video was posted. So, does that mean you would not be able to access the watched video again? Not really!
+
+Regardless of when you have watched the video, there is a way to access it again on Facebook. Thankfully, the process is not complex either. This means it's possible to find Facebook recently watched videos through some simple steps. Wondering which ones? Give this guide a thorough read:
+
+#### In this article
+
+Part 1: [How Can I Find Facebook Watched Videos on Desktop or Web?](#step1)
+
+Part 2: [How to Find Recently Watched Videos on Facebook App?](#step2)
+
+## Part 1\. How Can I Find Facebook Watched Videos on Desktop or Web?
+
+At first, we will discuss the method on how you can find Facebook-watched videos on the desktop. Keep note that the video will be listed in the watch history, even if it's played for a second or two. All you require to do is access them through your profile. Another thing that's important to know is that the videos of your Facebook history are accessible through your account only.
+
+This means that you cannot access your watch history using someone else's Facebook account. This is validated even if you use the same system to log in to both accounts. Now that you know this, follow the steps as given below to find the Facebook watched videos:
+
+* First of all, search for Facebook on your web browser. Once it opens, input your account credentials (email and password) and sign in to your account.
+* Now, navigate to your Facebook profile. You can do so by clicking on your profile picture.
+* Click on Activity Log. On the left side, go to the Filters section.
+* After that, click on More. It's located below the Comments.
+
+![facebook watched videos on the web](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-1.jpg)
+
+* On doing so, you will be able to see a list of filters. From the list, click on "Videos You've Watched."
+* This will open the list of videos that you have watched on Facebook. Make sure to select the ones that you want to watch again.
+
+## Part 2\. How to Find Recently Watched Videos on Facebook App?
+
+Facebook application is one of the most common media to watch Facebook videos. That's why we will be mentioning the way to find recently watched videos through the Facebook app. Just like the web version, the process here is simple.
+
+However, make sure you have the Facebook application installed on your device. If you do not have it, go to your app store. Search for "Facebook mobile application" and then download the same. After downloading and installing the app, input the credentials to your account and log in. Once you are logged in, follow the steps given below:
+
+* Go to the menu and click on the triple bar icon. After that, click on the "View your profile" option.
+* Now, click on the "Activity Log" button.
+* At the top side of your phone screen, go to the Category drop-down menu.
+* Look for the "Videos You've Watched" filter. Tap on the same.
+
+![watched videos on facebook app](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-2.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+* This filter will open the list of all the videos you have watched through your account. Look for the one that you want and watch the same.
+
+We all like to binge on Facebook feed videos, and that's why it has become so popular in today's time. But did you know, you can create a video similar to the ones you watch? It can go viral and ensure a large number of views on your video. Wondering how to make such top-notch content? The answer is simple; through [Wondershare Filmora Video editor](https://tools.techidaily.com/wondershare/filmora/download/).
+
+It's an outstanding tool that helps you make stunning videos for Facebook. You can modify the video elements and upload it to your account easily. As it comes with an easy user interface, the tool could be used by anyone. So, whether you are a beginner or professional, just some simple steps will ensure a quick video creation.
+
+[video-editor](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![wondershare filmora video editor](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-3.jpg)
+
+Wondershare Filmora comes with excellent features where you can render blur effects in the background. This will render a decorative touch to the black bars (portrait mode) in videos and pictures. For audio, it has over 50 effects and royalty-free music. What else? You can also save the edited video in any format.
+
+## Frequently Asked Questions (FAQS)
+
+In the FAQ section, we will cover some of the questions or problems that may arise while finding recently watched videos on Facebook. Thus, if you are dealing with them, follow the steps given below for a quick fix:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### How to Find the Watch Later Videos on Facebook?
+
+Did you know Facebook has a "Watch Later" feature for the desktop version? Yes, you can access this feature for Facebook posts. It appears as a small tab situated at the right side of the uploaded video. Through this feature, you can save a video to watch later. If you do so, the video gets saved in the "Saved" tab. This tab lies on the left side of the News Feed. From there, you can watch the saved item easily. This feature is pretty helpful for those who are in a hurry or cannot watch the video instantly. It's also easy to access them, whenever you want!
+
+### What to Do If I Can't View or Play Videos on Facebook?
+
+One of the most common problems with Facebook is when you want to watch a video but cannot do so. This could occur due to a bad internet connection or technical glitches. The best way to fix these issues is by following the below steps:
+
+* **Check If You Have Strong Internet Connection:**
+
+If you have a slow/dull internet connection there are chances that your video isn't playing due to the same. In that case, you can check for a slow connection by opening some other application. If it shows the same issues, switch to a stronger internet connection. Make sure to connect to strong WiFi or cellular data.
+
+* **Go for a Quick Application Restart:**
+
+Sometimes a quick restart can ensure a swift Facebook video play. So, close the Facebook application on your device and relaunch it. Alternatively, check if there are any recent updates available for the app. If you see any, update the app accordingly.
+
+### How to Delete Watch History on Facebook?
+
+Keep note that your watch history is accessible by you only. However, if you are still skeptical (due to privacy issues), delete the watch history of Facebook. Here's how you can do so:
+
+* At first, log in to your Facebook account with the credentials (email and password).
+* Click on Account>Settings & Privacy.
+* Navigate to the Activity Log and then go to the Filter section.
+
+![delete watch history on facebook](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-4.jpg)
+
+* Within the Categories, look for "Videos you've watched."
+* From there, you can delete the videos one-by-one or clear the complete watch history.
+
+### Can People See What I Watch On Facebook?
+
+Some people may wonder whether anyone else can see what they watch on Facebook. Fortunately, no. No one can see your watch history. However, they can see the action you perform on the video. Here's a complete list of what other people can see:
+
+* **Page:**If you like or follow a page, your friends may see it once they do the same. For example, if you have liked a page related to a Football team, a friend of yours may see your name in the list of followers/likes.
+
+* **Video Likes:**Your name is visible on the likes of the video if you do the same. Say, if you have liked a video and any friend of yours comes across the post. They may see the term "\[Your Name\] also liked this." Similarly, your name is visible when you comment on the video.
+
+![video likes](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-5.jpg)
+
+* **Post Shares:**Your name is also visible if you share a video to your timeline or in case of direct messages.
+
+### How Does Facebook Decide the Suggested Videos?
+
+The videos suggested on Facebook appear because of liked pages and video popularity. You can customize the same through the below steps:
+
+* Go to the left menu and click on "Watch" from your News Feed.
+
+* Click on the right side of the video top and select "Hide Video." This will ensure you do not see similar videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Conclusion
+
+So, that's how you can find watched videos on Facebook. The steps are pretty easy and an absolute life-saver. Whenever it feels like you missed a video, these steps will ensure that you find them easily. For your convenience, we have mentioned the process for both the Facebook application and desktop. Make sure to select the method as per the mode you use. Hopefully, the above steps will solve your problem in an easy and efficient manner.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Imagine a situation where you have watched a video on Facebook but forgot to save it. Now, days later, you need that video again for some work. How annoying is it? Things get more infuriating when you don't remember the name of the page or account where the video was posted. So, does that mean you would not be able to access the watched video again? Not really!
+
+Regardless of when you have watched the video, there is a way to access it again on Facebook. Thankfully, the process is not complex either. This means it's possible to find Facebook recently watched videos through some simple steps. Wondering which ones? Give this guide a thorough read:
+
+#### In this article
+
+Part 1: [How Can I Find Facebook Watched Videos on Desktop or Web?](#step1)
+
+Part 2: [How to Find Recently Watched Videos on Facebook App?](#step2)
+
+## Part 1\. How Can I Find Facebook Watched Videos on Desktop or Web?
+
+At first, we will discuss the method on how you can find Facebook-watched videos on the desktop. Keep note that the video will be listed in the watch history, even if it's played for a second or two. All you require to do is access them through your profile. Another thing that's important to know is that the videos of your Facebook history are accessible through your account only.
+
+This means that you cannot access your watch history using someone else's Facebook account. This is validated even if you use the same system to log in to both accounts. Now that you know this, follow the steps as given below to find the Facebook watched videos:
+
+* First of all, search for Facebook on your web browser. Once it opens, input your account credentials (email and password) and sign in to your account.
+* Now, navigate to your Facebook profile. You can do so by clicking on your profile picture.
+* Click on Activity Log. On the left side, go to the Filters section.
+* After that, click on More. It's located below the Comments.
+
+![facebook watched videos on the web](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-1.jpg)
+
+* On doing so, you will be able to see a list of filters. From the list, click on "Videos You've Watched."
+* This will open the list of videos that you have watched on Facebook. Make sure to select the ones that you want to watch again.
+
+## Part 2\. How to Find Recently Watched Videos on Facebook App?
+
+Facebook application is one of the most common media to watch Facebook videos. That's why we will be mentioning the way to find recently watched videos through the Facebook app. Just like the web version, the process here is simple.
+
+However, make sure you have the Facebook application installed on your device. If you do not have it, go to your app store. Search for "Facebook mobile application" and then download the same. After downloading and installing the app, input the credentials to your account and log in. Once you are logged in, follow the steps given below:
+
+* Go to the menu and click on the triple bar icon. After that, click on the "View your profile" option.
+* Now, click on the "Activity Log" button.
+* At the top side of your phone screen, go to the Category drop-down menu.
+* Look for the "Videos You've Watched" filter. Tap on the same.
+
+![watched videos on facebook app](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+* This filter will open the list of all the videos you have watched through your account. Look for the one that you want and watch the same.
+
+We all like to binge on Facebook feed videos, and that's why it has become so popular in today's time. But did you know, you can create a video similar to the ones you watch? It can go viral and ensure a large number of views on your video. Wondering how to make such top-notch content? The answer is simple; through [Wondershare Filmora Video editor](https://tools.techidaily.com/wondershare/filmora/download/).
+
+It's an outstanding tool that helps you make stunning videos for Facebook. You can modify the video elements and upload it to your account easily. As it comes with an easy user interface, the tool could be used by anyone. So, whether you are a beginner or professional, just some simple steps will ensure a quick video creation.
+
+[video-editor](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![wondershare filmora video editor](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-3.jpg)
+
+Wondershare Filmora comes with excellent features where you can render blur effects in the background. This will render a decorative touch to the black bars (portrait mode) in videos and pictures. For audio, it has over 50 effects and royalty-free music. What else? You can also save the edited video in any format.
+
+## Frequently Asked Questions (FAQS)
+
+In the FAQ section, we will cover some of the questions or problems that may arise while finding recently watched videos on Facebook. Thus, if you are dealing with them, follow the steps given below for a quick fix:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### How to Find the Watch Later Videos on Facebook?
+
+Did you know Facebook has a "Watch Later" feature for the desktop version? Yes, you can access this feature for Facebook posts. It appears as a small tab situated at the right side of the uploaded video. Through this feature, you can save a video to watch later. If you do so, the video gets saved in the "Saved" tab. This tab lies on the left side of the News Feed. From there, you can watch the saved item easily. This feature is pretty helpful for those who are in a hurry or cannot watch the video instantly. It's also easy to access them, whenever you want!
+
+### What to Do If I Can't View or Play Videos on Facebook?
+
+One of the most common problems with Facebook is when you want to watch a video but cannot do so. This could occur due to a bad internet connection or technical glitches. The best way to fix these issues is by following the below steps:
+
+* **Check If You Have Strong Internet Connection:**
+
+If you have a slow/dull internet connection there are chances that your video isn't playing due to the same. In that case, you can check for a slow connection by opening some other application. If it shows the same issues, switch to a stronger internet connection. Make sure to connect to strong WiFi or cellular data.
+
+* **Go for a Quick Application Restart:**
+
+Sometimes a quick restart can ensure a swift Facebook video play. So, close the Facebook application on your device and relaunch it. Alternatively, check if there are any recent updates available for the app. If you see any, update the app accordingly.
+
+### How to Delete Watch History on Facebook?
+
+Keep note that your watch history is accessible by you only. However, if you are still skeptical (due to privacy issues), delete the watch history of Facebook. Here's how you can do so:
+
+* At first, log in to your Facebook account with the credentials (email and password).
+* Click on Account>Settings & Privacy.
+* Navigate to the Activity Log and then go to the Filter section.
+
+![delete watch history on facebook](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-4.jpg)
+
+* Within the Categories, look for "Videos you've watched."
+* From there, you can delete the videos one-by-one or clear the complete watch history.
+
+### Can People See What I Watch On Facebook?
+
+Some people may wonder whether anyone else can see what they watch on Facebook. Fortunately, no. No one can see your watch history. However, they can see the action you perform on the video. Here's a complete list of what other people can see:
+
+* **Page:**If you like or follow a page, your friends may see it once they do the same. For example, if you have liked a page related to a Football team, a friend of yours may see your name in the list of followers/likes.
+
+* **Video Likes:**Your name is visible on the likes of the video if you do the same. Say, if you have liked a video and any friend of yours comes across the post. They may see the term "\[Your Name\] also liked this." Similarly, your name is visible when you comment on the video.
+
+![video likes](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-5.jpg)
+
+* **Post Shares:**Your name is also visible if you share a video to your timeline or in case of direct messages.
 
 ### How Does Facebook Decide the Suggested Videos?
 
@@ -202,6 +440,10 @@ It's an outstanding tool that helps you make stunning videos for Facebook. You c
 
 ![wondershare filmora video editor](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Wondershare Filmora comes with excellent features where you can render blur effects in the background. This will render a decorative touch to the black bars (portrait mode) in videos and pictures. For audio, it has over 50 effects and royalty-free music. What else? You can also save the edited video in any format.
 
 ## Frequently Asked Questions (FAQS)
@@ -234,131 +476,9 @@ Keep note that your watch history is accessible by you only. However, if you are
 
 ![delete watch history on facebook](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-4.jpg)
 
-* Within the Categories, look for "Videos you've watched."
-* From there, you can delete the videos one-by-one or clear the complete watch history.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-### Can People See What I Watch On Facebook?
-
-Some people may wonder whether anyone else can see what they watch on Facebook. Fortunately, no. No one can see your watch history. However, they can see the action you perform on the video. Here's a complete list of what other people can see:
-
-* **Page:**If you like or follow a page, your friends may see it once they do the same. For example, if you have liked a page related to a Football team, a friend of yours may see your name in the list of followers/likes.
-
-* **Video Likes:**Your name is visible on the likes of the video if you do the same. Say, if you have liked a video and any friend of yours comes across the post. They may see the term "\[Your Name\] also liked this." Similarly, your name is visible when you comment on the video.
-
-![video likes](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-5.jpg)
-
-* **Post Shares:**Your name is also visible if you share a video to your timeline or in case of direct messages.
-
-### How Does Facebook Decide the Suggested Videos?
-
-The videos suggested on Facebook appear because of liked pages and video popularity. You can customize the same through the below steps:
-
-* Go to the left menu and click on "Watch" from your News Feed.
-
-* Click on the right side of the video top and select "Hide Video." This will ensure you do not see similar videos.
-
-## Conclusion
-
-So, that's how you can find watched videos on Facebook. The steps are pretty easy and an absolute life-saver. Whenever it feels like you missed a video, these steps will ensure that you find them easily. For your convenience, we have mentioned the process for both the Facebook application and desktop. Make sure to select the method as per the mode you use. Hopefully, the above steps will solve your problem in an easy and efficient manner.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Imagine a situation where you have watched a video on Facebook but forgot to save it. Now, days later, you need that video again for some work. How annoying is it? Things get more infuriating when you don't remember the name of the page or account where the video was posted. So, does that mean you would not be able to access the watched video again? Not really!
-
-Regardless of when you have watched the video, there is a way to access it again on Facebook. Thankfully, the process is not complex either. This means it's possible to find Facebook recently watched videos through some simple steps. Wondering which ones? Give this guide a thorough read:
-
-#### In this article
-
-Part 1: [How Can I Find Facebook Watched Videos on Desktop or Web?](#step1)
-
-Part 2: [How to Find Recently Watched Videos on Facebook App?](#step2)
-
-## Part 1\. How Can I Find Facebook Watched Videos on Desktop or Web?
-
-At first, we will discuss the method on how you can find Facebook-watched videos on the desktop. Keep note that the video will be listed in the watch history, even if it's played for a second or two. All you require to do is access them through your profile. Another thing that's important to know is that the videos of your Facebook history are accessible through your account only.
-
-This means that you cannot access your watch history using someone else's Facebook account. This is validated even if you use the same system to log in to both accounts. Now that you know this, follow the steps as given below to find the Facebook watched videos:
-
-* First of all, search for Facebook on your web browser. Once it opens, input your account credentials (email and password) and sign in to your account.
-* Now, navigate to your Facebook profile. You can do so by clicking on your profile picture.
-* Click on Activity Log. On the left side, go to the Filters section.
-* After that, click on More. It's located below the Comments.
-
-![facebook watched videos on the web](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-1.jpg)
-
-* On doing so, you will be able to see a list of filters. From the list, click on "Videos You've Watched."
-* This will open the list of videos that you have watched on Facebook. Make sure to select the ones that you want to watch again.
-
-## Part 2\. How to Find Recently Watched Videos on Facebook App?
-
-Facebook application is one of the most common media to watch Facebook videos. That's why we will be mentioning the way to find recently watched videos through the Facebook app. Just like the web version, the process here is simple.
-
-However, make sure you have the Facebook application installed on your device. If you do not have it, go to your app store. Search for "Facebook mobile application" and then download the same. After downloading and installing the app, input the credentials to your account and log in. Once you are logged in, follow the steps given below:
-
-* Go to the menu and click on the triple bar icon. After that, click on the "View your profile" option.
-* Now, click on the "Activity Log" button.
-* At the top side of your phone screen, go to the Category drop-down menu.
-* Look for the "Videos You've Watched" filter. Tap on the same.
-
-![watched videos on facebook app](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-2.jpg)
-
-* This filter will open the list of all the videos you have watched through your account. Look for the one that you want and watch the same.
-
-We all like to binge on Facebook feed videos, and that's why it has become so popular in today's time. But did you know, you can create a video similar to the ones you watch? It can go viral and ensure a large number of views on your video. Wondering how to make such top-notch content? The answer is simple; through [Wondershare Filmora Video editor](https://tools.techidaily.com/wondershare/filmora/download/).
-
-It's an outstanding tool that helps you make stunning videos for Facebook. You can modify the video elements and upload it to your account easily. As it comes with an easy user interface, the tool could be used by anyone. So, whether you are a beginner or professional, just some simple steps will ensure a quick video creation.
-
-[video-editor](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![wondershare filmora video editor](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-3.jpg)
-
-Wondershare Filmora comes with excellent features where you can render blur effects in the background. This will render a decorative touch to the black bars (portrait mode) in videos and pictures. For audio, it has over 50 effects and royalty-free music. What else? You can also save the edited video in any format.
-
-## Frequently Asked Questions (FAQS)
-
-In the FAQ section, we will cover some of the questions or problems that may arise while finding recently watched videos on Facebook. Thus, if you are dealing with them, follow the steps given below for a quick fix:
-
-### How to Find the Watch Later Videos on Facebook?
-
-Did you know Facebook has a "Watch Later" feature for the desktop version? Yes, you can access this feature for Facebook posts. It appears as a small tab situated at the right side of the uploaded video. Through this feature, you can save a video to watch later. If you do so, the video gets saved in the "Saved" tab. This tab lies on the left side of the News Feed. From there, you can watch the saved item easily. This feature is pretty helpful for those who are in a hurry or cannot watch the video instantly. It's also easy to access them, whenever you want!
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### What to Do If I Can't View or Play Videos on Facebook?
-
-One of the most common problems with Facebook is when you want to watch a video but cannot do so. This could occur due to a bad internet connection or technical glitches. The best way to fix these issues is by following the below steps:
-
-* **Check If You Have Strong Internet Connection:**
-
-If you have a slow/dull internet connection there are chances that your video isn't playing due to the same. In that case, you can check for a slow connection by opening some other application. If it shows the same issues, switch to a stronger internet connection. Make sure to connect to strong WiFi or cellular data.
-
-* **Go for a Quick Application Restart:**
-
-Sometimes a quick restart can ensure a swift Facebook video play. So, close the Facebook application on your device and relaunch it. Alternatively, check if there are any recent updates available for the app. If you see any, update the app accordingly.
-
-### How to Delete Watch History on Facebook?
-
-Keep note that your watch history is accessible by you only. However, if you are still skeptical (due to privacy issues), delete the watch history of Facebook. Here's how you can do so:
-
-* At first, log in to your Facebook account with the credentials (email and password).
-* Click on Account>Settings & Privacy.
-* Navigate to the Activity Log and then go to the Filter section.
-
-![delete watch history on facebook](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-4.jpg)
 
 * Within the Categories, look for "Videos you've watched."
 * From there, you can delete the videos one-by-one or clear the complete watch history.
@@ -375,138 +495,9 @@ Some people may wonder whether anyone else can see what they watch on Facebook. 
 
 * **Post Shares:**Your name is also visible if you share a video to your timeline or in case of direct messages.
 
-### How Does Facebook Decide the Suggested Videos?
-
-The videos suggested on Facebook appear because of liked pages and video popularity. You can customize the same through the below steps:
-
-* Go to the left menu and click on "Watch" from your News Feed.
-
-* Click on the right side of the video top and select "Hide Video." This will ensure you do not see similar videos.
-
-## Conclusion
-
-So, that's how you can find watched videos on Facebook. The steps are pretty easy and an absolute life-saver. Whenever it feels like you missed a video, these steps will ensure that you find them easily. For your convenience, we have mentioned the process for both the Facebook application and desktop. Make sure to select the method as per the mode you use. Hopefully, the above steps will solve your problem in an easy and efficient manner.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Imagine a situation where you have watched a video on Facebook but forgot to save it. Now, days later, you need that video again for some work. How annoying is it? Things get more infuriating when you don't remember the name of the page or account where the video was posted. So, does that mean you would not be able to access the watched video again? Not really!
-
-Regardless of when you have watched the video, there is a way to access it again on Facebook. Thankfully, the process is not complex either. This means it's possible to find Facebook recently watched videos through some simple steps. Wondering which ones? Give this guide a thorough read:
-
-#### In this article
-
-Part 1: [How Can I Find Facebook Watched Videos on Desktop or Web?](#step1)
-
-Part 2: [How to Find Recently Watched Videos on Facebook App?](#step2)
-
-## Part 1\. How Can I Find Facebook Watched Videos on Desktop or Web?
-
-At first, we will discuss the method on how you can find Facebook-watched videos on the desktop. Keep note that the video will be listed in the watch history, even if it's played for a second or two. All you require to do is access them through your profile. Another thing that's important to know is that the videos of your Facebook history are accessible through your account only.
-
-This means that you cannot access your watch history using someone else's Facebook account. This is validated even if you use the same system to log in to both accounts. Now that you know this, follow the steps as given below to find the Facebook watched videos:
-
-* First of all, search for Facebook on your web browser. Once it opens, input your account credentials (email and password) and sign in to your account.
-* Now, navigate to your Facebook profile. You can do so by clicking on your profile picture.
-* Click on Activity Log. On the left side, go to the Filters section.
-* After that, click on More. It's located below the Comments.
-
-![facebook watched videos on the web](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-1.jpg)
-
-* On doing so, you will be able to see a list of filters. From the list, click on "Videos You've Watched."
-* This will open the list of videos that you have watched on Facebook. Make sure to select the ones that you want to watch again.
-
-## Part 2\. How to Find Recently Watched Videos on Facebook App?
-
-Facebook application is one of the most common media to watch Facebook videos. That's why we will be mentioning the way to find recently watched videos through the Facebook app. Just like the web version, the process here is simple.
-
-However, make sure you have the Facebook application installed on your device. If you do not have it, go to your app store. Search for "Facebook mobile application" and then download the same. After downloading and installing the app, input the credentials to your account and log in. Once you are logged in, follow the steps given below:
-
-* Go to the menu and click on the triple bar icon. After that, click on the "View your profile" option.
-* Now, click on the "Activity Log" button.
-* At the top side of your phone screen, go to the Category drop-down menu.
-* Look for the "Videos You've Watched" filter. Tap on the same.
-
-![watched videos on facebook app](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-2.jpg)
-
-* This filter will open the list of all the videos you have watched through your account. Look for the one that you want and watch the same.
-
-We all like to binge on Facebook feed videos, and that's why it has become so popular in today's time. But did you know, you can create a video similar to the ones you watch? It can go viral and ensure a large number of views on your video. Wondering how to make such top-notch content? The answer is simple; through [Wondershare Filmora Video editor](https://tools.techidaily.com/wondershare/filmora/download/).
-
-It's an outstanding tool that helps you make stunning videos for Facebook. You can modify the video elements and upload it to your account easily. As it comes with an easy user interface, the tool could be used by anyone. So, whether you are a beginner or professional, just some simple steps will ensure a quick video creation.
-
-[video-editor](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![wondershare filmora video editor](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-3.jpg)
-
-Wondershare Filmora comes with excellent features where you can render blur effects in the background. This will render a decorative touch to the black bars (portrait mode) in videos and pictures. For audio, it has over 50 effects and royalty-free music. What else? You can also save the edited video in any format.
-
-## Frequently Asked Questions (FAQS)
-
-In the FAQ section, we will cover some of the questions or problems that may arise while finding recently watched videos on Facebook. Thus, if you are dealing with them, follow the steps given below for a quick fix:
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-### How to Find the Watch Later Videos on Facebook?
-
-Did you know Facebook has a "Watch Later" feature for the desktop version? Yes, you can access this feature for Facebook posts. It appears as a small tab situated at the right side of the uploaded video. Through this feature, you can save a video to watch later. If you do so, the video gets saved in the "Saved" tab. This tab lies on the left side of the News Feed. From there, you can watch the saved item easily. This feature is pretty helpful for those who are in a hurry or cannot watch the video instantly. It's also easy to access them, whenever you want!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### What to Do If I Can't View or Play Videos on Facebook?
-
-One of the most common problems with Facebook is when you want to watch a video but cannot do so. This could occur due to a bad internet connection or technical glitches. The best way to fix these issues is by following the below steps:
-
-* **Check If You Have Strong Internet Connection:**
-
-If you have a slow/dull internet connection there are chances that your video isn't playing due to the same. In that case, you can check for a slow connection by opening some other application. If it shows the same issues, switch to a stronger internet connection. Make sure to connect to strong WiFi or cellular data.
-
-* **Go for a Quick Application Restart:**
-
-Sometimes a quick restart can ensure a swift Facebook video play. So, close the Facebook application on your device and relaunch it. Alternatively, check if there are any recent updates available for the app. If you see any, update the app accordingly.
-
-### How to Delete Watch History on Facebook?
-
-Keep note that your watch history is accessible by you only. However, if you are still skeptical (due to privacy issues), delete the watch history of Facebook. Here's how you can do so:
-
-* At first, log in to your Facebook account with the credentials (email and password).
-* Click on Account>Settings & Privacy.
-* Navigate to the Activity Log and then go to the Filter section.
-
-![delete watch history on facebook](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-4.jpg)
-
-* Within the Categories, look for "Videos you've watched."
-* From there, you can delete the videos one-by-one or clear the complete watch history.
-
-### Can People See What I Watch On Facebook?
-
-Some people may wonder whether anyone else can see what they watch on Facebook. Fortunately, no. No one can see your watch history. However, they can see the action you perform on the video. Here's a complete list of what other people can see:
-
-* **Page:**If you like or follow a page, your friends may see it once they do the same. For example, if you have liked a page related to a Football team, a friend of yours may see your name in the list of followers/likes.
-
-* **Video Likes:**Your name is visible on the likes of the video if you do the same. Say, if you have liked a video and any friend of yours comes across the post. They may see the term "\[Your Name\] also liked this." Similarly, your name is visible when you comment on the video.
-
-![video likes](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-* **Post Shares:**Your name is also visible if you share a video to your timeline or in case of direct messages.
 
 ### How Does Facebook Decide the Suggested Videos?
 
@@ -515,13 +506,6 @@ The videos suggested on Facebook appear because of liked pages and video popular
 * Go to the left menu and click on "Watch" from your News Feed.
 
 * Click on the right side of the video top and select "Hide Video." This will ensure you do not see similar videos.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -550,22 +534,19 @@ So, that's how you can find watched videos on Facebook. The steps are pretty eas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-instant-mac-screen-savior-free/"><u>[New] 2024 Approved Instant Mac Screen Savior - Free</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-efficiently-edit-your-youtube-videos-using-sony-vegas/"><u>[Updated] 2024 Approved Efficiently Edit Your YouTube Videos Using Sony Vegas</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-achieve-higher-interactions-mastering-the-art-of-square-videos/"><u>2024 Approved Achieve Higher Interactions Mastering the Art of Square Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-explore-our-updated-top-10-best-fb-video-extractors-for-android-users/"><u>2024 Approved Explore Our Updated Top 10 Best FB Video Extractors for Android Users</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-mastering-the-art-of-locating-fb-lately-seen-videos/"><u>2024 Approved Mastering the Art of Locating Fb Lately Seen Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-missing-fb-watch-icon-get-it-fixed-now/"><u>2024 Approved Missing FB Watch Icon? Get It Fixed Now</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-sdk-upgrade-alert-enhancing-facebook-video-downloader-apps-for-android/"><u>2024 Approved SDK Upgrade Alert Enhancing Facebook Video Downloader Apps for Android</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-steps-for-successful-extraction-of-fb-content/"><u>2024 Approved Steps for Successful Extraction of FB Content</u></a></li>
-<li><a href="https://change-location.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo Y100i | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/a-step-by-step-for-delving-into-fb-archives/"><u>A Step-by-Step for Delving Into FB Archives</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/discover-top-emulated-psp-classics-on-ios/"><u>Discover Top Emulated PSP Classics on iOS</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-amd-chipset-drivers-compatible-versions-for-windows-107881/"><u>Download AMD Chipset Drivers: Compatible Versions for Windows 10/7/8/8.1</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/facebook-cover-video-widthheight-recommendation/"><u>Facebook Cover Video Width/Height Recommendation</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/game-streaming-tool-analysis-choose-obs-or-shadowplay/"><u>Game Streaming Tool Analysis Choose OBS or ShadowPlay?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-7-creative-thumbnails-free-tools-for-youtube/"><u>In 2024, 7 Creative Thumbnails Free Tools for YouTube</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-honor-play-8t-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Honor Play 8T without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/1721267848852-stellar-repair/"><u>スマートな画像修正ツール「Stellar Repair」、瞬時にお取りできます！</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-from-concept-to-completion-building-effective-facebook-covers/"><u>[New] 2024 Approved From Concept to Completion Building Effective Facebook Covers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-innovating-advertising-on-facebook-the-most-effective-videography-for-2024/"><u>[New] Innovating Advertising on Facebook The Most Effective Videography for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-mastering-the-music-merger-for-captivating-social-media-vids-for-2024/"><u>[New] Mastering the Music Merger for Captivating Social Media Vids for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-6-effortless-steps-to-add-social-media-live-content-online/"><u>[Updated] 2024 Approved 6 Effortless Steps to Add Social Media Live Content Online</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-discover-how-these-15-advanced-facebook-gadgets-boost-e-commerce-sale-traffic/"><u>2024 Approved Discover How These 15 Advanced Facebook Gadgets Boost E-Commerce Sale Traffic</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-oppo-a58-4g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Oppo A58 4G</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-cross-device-the-ultimate-tutorial-for-scraping-gifs-from-fb/"><u>In 2024, Cross-Device The Ultimate Tutorial for Scraping GIFs From FB</u></a></li>
+<li><a href="https://extra-support.techidaily.com/market-mastery-blueprint-strategic-openings-for-2024/"><u>Market Mastery Blueprint Strategic Openings for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/mastering-the-art-of-preserving-playstation-4-gaming-history/"><u>Mastering the Art of Preserving PlayStation 4 Gaming History</u></a></li>
+<li><a href="https://win-blog.techidaily.com/preventing-forza-horizon-5-from-unexpectedly-quitting-on-a-pc-practical-fixes-that-work/"><u>Preventing Forza Horizon 5 From Unexpectedly Quitting on a PC: Practical Fixes That Work</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/speedy-record-and-audio-assisted-session-creator/"><u>Speedy Record & Audio-Assisted Session Creator</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/step-by-step-guide-activating-and-deactivating-your-windows-firewall-tech-tips-by-yl/"><u>Step-by-Step Guide: Activating and Deactivating Your Windows Firewall - Tech Tips by YL</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722576633505-the-ultimate-guide-to-boosting-your-home-viewing-experience-with-1byones-hdtv-amplified-antenna-value-king/"><u>The Ultimate Guide to Boosting Your Home Viewing Experience with 1BYONE's HDTV Amplified Antenna – Value King!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/ultimate-guide-to-chose-the-best-live-platform/"><u>Ultimate Guide to Chose the Best Live Platform</u></a></li>
 </ul></div>
 
