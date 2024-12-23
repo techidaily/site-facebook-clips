@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Facebook Today  Unpacking the Recent Updates\""
-date: 2024-11-06T04:28:15.673Z
-updated: 2024-11-10T16:19:31.154Z
+date: 2024-12-15T19:56:37.019Z
+updated: 2024-12-22T16:10:42.403Z
 tags:
   - ai video
   - ai facebook
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/05a2bebe19d9c7fab4bc3ec91fa821946b0580297
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is Facebook
 
  Facebook has redefined the meaning of social networking. It had brought turbulence in the social media world back in 2004 which were embraced by everybody and it is carrying that charm until now! It is a social networking company registered under the name of ‘Facebook, Inc’ which allows its users to communicate with other people. These other people are also defined by users and can be their family, friends, coworkers or potential friends! Mark Zuckerberg, founder of Facebook created this boon of social media in 2004 while he was enrolled at Harvard University with a vision of designing a media platform for college students. But nobody would have imagined its progress graph! By 2006 anyone over the age of 13 with a valid email address could join Facebook. So this social networking website which was supposed to allow users to create profile, share moments through uploading photos and videos and assisted in staying in touch with family and friends for a long time, transformed into one of the much sought after platforms with more than 1 billion users worldwide.
@@ -36,13 +40,6 @@ thumbnail: https://thmb.techidaily.com/05a2bebe19d9c7fab4bc3ec91fa821946b0580297
 **Groups:** It allows members to coordinate with near and far friends having common interests. The definition of common interests is open ended, it can be a bachelor party, concert bucket list or project updates, Facebook group lets you communicate in searchable place.
 
 **Events:** These encourage boosting engagement, get people talking, and provide helpful information and links for an upcoming event and ultimately planning and tracking who plans to attend. 650+ million users make use of Facebook Events and 100 million on an average every day to publicize the event!
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Common Facebook Terms which you should know
 
@@ -59,6 +56,10 @@ thumbnail: https://thmb.techidaily.com/05a2bebe19d9c7fab4bc3ec91fa821946b0580297
 **Tag:** It is like marking your friends who hold relevance to the pictures or status that you are uploading on your timeline. These then appears on the timeline of your friends and in newsfeed of other friends.
 
 **Notification:** It is like an update from Facebook of the events and occasions where someone has interacted with you. It might be through reacting on what you shared or by posting something on your wall etc.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Exploring Facebook
 
@@ -85,17 +86,11 @@ thumbnail: https://thmb.techidaily.com/05a2bebe19d9c7fab4bc3ec91fa821946b0580297
 ![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Facebook usage is diversified?
@@ -112,13 +107,6 @@ thumbnail: https://thmb.techidaily.com/05a2bebe19d9c7fab4bc3ec91fa821946b0580297
 * Share your feelings for your friends and tag them to pictures which suit their personality
 * Play games and enhance your circle
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Does Facebook Sharing Work?
 
  Facebook is unique and so are the sharing norms! While your conversations at email or IM’s are private, the content that you share on Facebook including photos and links are public. This is because Facebook has emerged as an open network for communication without any sort of limitations and is thus inclined towards being public although you can define privacy and sharing settings for some shared posts.
@@ -126,6 +114,10 @@ thumbnail: https://thmb.techidaily.com/05a2bebe19d9c7fab4bc3ec91fa821946b0580297
  The privacy tools can be applied on few posts and information, the remaining information (such as your cover picture) is visible to everybody. Facebook is designed to be more open and social than traditional communication tools. You will learn more in this Facebook tutorial.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -142,14 +134,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-can-i-view-all-shared-videos-and-photos-on-messenger-for-2024/"><u>[New] Can I View All Shared Videos And Photos on Messenger for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-navigating-video-uploads-and-enhancements-in-instagram-for-2024/"><u>[New] Navigating Video Uploads and Enhancements in Instagram for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-key-players-in-asmr-youtube-world/"><u>[Updated] 2024 Approved Key Players in ASMR YouTube World</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-decoding-watermarks-in-social-media-imagery/"><u>[Updated] Decoding Watermarks in Social Media Imagery</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-elevate-your-income-with-proven-vimeo-advertising-strategies-for-2024/"><u>[Updated] Elevate Your Income with Proven Vimeo Advertising Strategies for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-iphone-sound-archive-voice-memo-tips-and-tricks-for-2024/"><u>[Updated] IPhone Sound Archive Voice Memo Tips & Tricks for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-nixing-facebook-broadcasts-effortlessly/"><u>2024 Approved Nixing Facebook Broadcasts Effortlessly</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/tactics-to-triumph-secrets-of-successful-social-media-videos/"><u>Tactics to Triumph Secrets of Successful Social Media Videos</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723208232763-windows-11-file-explorer-guide-enhance-your-organization-and-efficiency-skills/"><u>Windows 11 File Explorer Guide: Enhance Your Organization & Efficiency Skills</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-discarding-virtual-gatherings-on-fb-pcsmartphones/"><u>[New] 2024 Approved Discarding Virtual Gatherings on FB, PC/Smartphones</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-unlock-the-power-of-personal-narratives-master-facebook-bios-for-maximum-impact/"><u>[New] In 2024, Unlock the Power of Personal Narratives Master Facebook Bios for Maximum Impact</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-navigate-the-clouds-and-crowd-fb-livestreams-via-dji-for-2024/"><u>[New] Navigate the Clouds and Crowd FB Livestreams via DJI for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-secure-your-videos-top-5-fb-downloader-apps-ranked-for-2024/"><u>[New] Secure Your Videos Top 5 FB Downloader Apps Ranked for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-syncing-symphony-with-images-a-facebook-media-guide/"><u>[Updated] 2024 Approved Syncing Symphony with Images - A Facebook Media Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-boosting-traffic-elevating-your-pages-popularity-metric-for-2024/"><u>[Updated] Boosting Traffic Elevating Your Page's Popularity Metric for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-new-era-advancements-in-vr-technology/"><u>2024 Approved The New Era Advancements in VR Technology</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1721908914198-deciding-on-your-preferred-llm-a-comparison-of-googles-bard-microsofts-chatgpt-and-offline-alpaca/"><u>Deciding on Your Preferred LLM: A Comparison of Google's Bard, Microsoft's ChatGPT and Offline Alpaca</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-the-four-key-benefits-of-transitioning-from-chatgpt-to-claude-3/"><u>Discover the Four Key Benefits of Transitioning From ChatGPT to Claude 3</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/exploring-nvidia-shield-tv-pros-features-the-perfect-gaming-media-player/"><u>Exploring Nvidia Shield TV Pro's Features: The Perfect Gaming Media Player</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/momentum-in-pictures-a-curated-list-of-ig-motivation/"><u>Momentum in Pictures A Curated List of IG Motivation</u></a></li>
+<li><a href="https://win11.techidaily.com/securely-clear-unwanted-saved-wi-fi-in-win-11/"><u>Securely Clear Unwanted Saved Wi-Fi in Win 11</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-google-pixel-8-pro-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Google Pixel 8 Pro</u></a></li>
+<li><a href="https://techidaily.com/solutions-to-restore-deleted-files-from-itel-by-fonelab-android-recover-data/"><u>Solutions to restore deleted files from Itel</u></a></li>
 </ul></div>
 

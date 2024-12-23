@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unlocking the Art of Captions  A Short Guide to Facebook Videos\""
-date: 2024-12-07T20:17:19.573Z
-updated: 2024-12-13T18:57:11.982Z
+date: 2024-12-18T23:32:33.887Z
+updated: 2024-12-23T00:51:26.766Z
 tags:
   - ai video
   - ai facebook
@@ -50,7 +50,7 @@ SRT caption files are usually supported by almost all popular media players and 
 ![facebook subtitle create](https://images.wondershare.com/filmora/article-images/facebook-subtitle-create.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Now save this text file into SRT format by using Save and then All Files option. Add your desired file name and select file format as .srt. Hit Save option.
@@ -62,10 +62,6 @@ For this case, all you need to do is select the Generate option from tool and ca
 
 ![auto generate caption](https://images.wondershare.com/filmora/article-images/auto-generate-caption.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now move to the Generate tab where you will find those recently generated captions for your video file. You can edit them as per your preferences. It is possible to pause the video when you are updating your captions.
 
 It is also possible to delete Facebook video captions with ease. Click the trash can option below Caption bar. Check previews of all changes that you have made by editing or deleting your captions.
@@ -73,7 +69,7 @@ It is also possible to delete Facebook video captions with ease. Click the trash
 Save all updates when you are satisfied with preview.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Edit Facebook Video Text/Subtitles with Wondershare Filmora
@@ -89,7 +85,7 @@ Here are few simple to follow steps
 ![drag n drop timeline](https://images.wondershare.com/filmora/article-images/drag-n-drop-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
@@ -110,10 +106,14 @@ Once you have finished the text based editing task then hit the Export option av
 ![output format](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -132,24 +132,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-expert-recommendations-prime-apps-for-mac-video-recording/"><u>[New] 2024 Approved Expert Recommendations Prime Apps for Mac Video Recording</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-script-to-screenplay-expert-video-editing-insights/"><u>[New] 2024 Approved From Script to Screenplay Expert Video Editing Insights</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-transform-concepts-to-successful-youtube-titles/"><u>[New] 2024 Approved Transform Concepts to Successful YouTube Titles</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-exclusive-play-on-apex-how-to-turn-off-cross-platform-mode-for-2024/"><u>[New] Exclusive Play on Apex How to Turn Off Cross-Platform Mode for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-strengthening-your-brand-with-high-quality-fb-covers/"><u>[New] In 2024, Strengthening Your Brand with High-Quality FB Covers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-mastery-guide-swiftly-switching-facebook-profile-pictures/"><u>[New] Mastery Guide Swiftly Switching Facebook Profile Pictures</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-bambuser-intro-video-summary-width-x-height-encoding-seconds/"><u>[Updated] 2024 Approved Bambuser Intro Video Summary Width X Height, Encoding, Seconds</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-how-to-upload-and-share-videos-seamlessly-on-instagram/"><u>[Updated] 2024 Approved How to Upload and Share Videos Seamlessly on Instagram</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-livestream-grabber-by-fb/"><u>[Updated] 2024 Approved LiveStream Grabber by FB</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-top-5-ios-friendly-apps-unlocking-facebooks-richest-media-library/"><u>[Updated] 2024 Approved Top 5 iOS-Friendly Apps Unlocking Facebook's Richest Media Library</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-fixing-inaccurate-avatar-showcasing-in-fb-messages/"><u>[Updated] Fixing Inaccurate Avatar Showcasing in FB Messages</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-quickly-uncover-lately-watched-facebook-videos-for-2024/"><u>[Updated] Quickly Uncover Lately Watched Facebook Videos for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-televising-digital-media-integrating-fb-video/"><u>[Updated] Televising Digital Media Integrating FB Video ?</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-becoming-a-skin-deep-sage-setting-up-your-beauty-channel/"><u>In 2024, Becoming a Skin-Deep Sage Setting Up Your Beauty Channel</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-apple-watch-or-apple-iphone-11-by-drfone-ios/"><u>In 2024, How To Bypass Activation Lock On Apple Watch Or Apple iPhone 11?</u></a></li>
-<li><a href="https://win-dash.techidaily.com/latest-toshiba-copier-software-compatible-with-windows-os/"><u>Latest Toshiba Copier Software Compatible with Windows OS</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/navigating-the-download-of-fb-storied-videos-for-2024/"><u>Navigating the Download of FB Storied Videos for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/techniques-for-incorporating-stunning-visual-enhancements-into-your-video-content/"><u>Techniques for Incorporating Stunning Visual Enhancements Into Your Video Content</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ate-sound-selection-for-social-media-stars-for-2024/"><u>Ultimate Sound Selection for Social Media Stars for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-unraveling-the-mystery-of-online-video-sharing/"><u>[New] 2024 Approved Unraveling the Mystery of Online Video Sharing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-automate-your-fb-posts-no-cost-maximized-impact-2023/"><u>[New] In 2024, Automate Your FB Posts - No Cost, Maximized Impact 2023</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-how-to-purge-personal-youtube-history-records/"><u>[New] In 2024, How to Purge Personal YouTube History Records</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-the-ultimate-hits-for-tiktok-stardom/"><u>[New] In 2024, The Ultimate Hits for TikTok Stardom</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-straightforward-steps-for-hassle-free-high-dynamic-range-for-2024/"><u>[New] Straightforward Steps for Hassle-Free High Dynamic Range for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-tech-innovator-point-of-view-unveiling-the-best-fb-video-downloaders-on-android-for-2024/"><u>[New] Tech Innovator' Point of View Unveiling the Best FB Video Downloaders on Android for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/humbnail-wizardry-top-8-tools-to-boost-view-counts-for-2024/"><u>[New] Thumbnail Wizardry Top 8 Tools to Boost View Counts for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-guide-to-high-speed-pc-controller-extensions/"><u>[New] Ultimate Guide to High-Speed PC Controller Extensions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-transformative-copywriting-the-triad-technique-that-elevates-facebook-campaigns/"><u>[Updated] 2024 Approved Transformative Copywriting The Triad Technique That Elevates Facebook Campaigns</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-optimize-online-presence-video-embellishment-with-logos-and-watermarks/"><u>[Updated] In 2024, Optimize Online Presence Video Embellishment with Logos and Watermarks</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-top-5-tools-to-transform-your-instant-feeds-into-videos-for-2024/"><u>[Updated] Top 5 Tools to Transform Your Instant Feeds Into Videos for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/seeking-access-to-all-mutually-shared-media-in-chats/"><u>Seeking Access to All Mutually-Shared Media in Chats</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/tailoring-viewing-experience-with-custom-speeds-in-netflix/"><u>Tailoring Viewing Experience with Custom Speeds in Netflix</u></a></li>
 </ul></div>
 

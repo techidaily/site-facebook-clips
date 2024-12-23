@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Facebook Finder’s Playbook for Quick Reconnaissance"
-date: 2024-12-12T01:39:39.091Z
-updated: 2024-12-13T20:50:58.038Z
+date: 2024-12-16T20:28:03.695Z
+updated: 2024-12-22T21:10:16.426Z
 tags:
   - ai video
   - ai facebook
@@ -46,15 +46,15 @@ On the header tool icons, click on your name and you are directed to your Facebo
 
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 3: Friends Finder Page
 
 To reach the friend’s finder page, click on “find friends” from the friends’ page header. Doing so takes you to the “Friends Finder” page of Facebook.
 
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 4: Friends Search
 
@@ -65,14 +65,10 @@ On the top right of old friends search, you can find the “search for your frie
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to search people using Search Is Back
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Open and Select
 
@@ -80,12 +76,16 @@ On a browser open the [Search is Back site](https://searchisback.com/). You can 
 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Input your Interest
 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Add People as Friends
@@ -95,7 +95,7 @@ Once you have filled in all the filters in the page, you can hit Find People but
 ![search is back facebook](https://images.wondershare.com/filmora/article-images/search-is-back-interest.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note**: If there are no results on the redirected Facebook page, you must get back to the Search is Back page and change your search filters to start a new round of search.
@@ -114,11 +114,11 @@ If you want to make Facebook videos, try to use [Filmora](https://tools.techidai
 
 [](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -135,15 +135,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-core-components-for-transformative-facebook-advertisements/"><u>[New] 2024 Approved Core Components for Transformative Facebook Advertisements</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-pixel-perfect-facebook-recording-tools/"><u>[New] 2024 Approved Pixel-Perfect Facebook Recording Tools</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-how-to-use-story-remix-to-edit-a-video-in-windows-10-photos/"><u>[New] In 2024, How to Use Story Remix to Edit a Video in Windows 10 Photos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-maximizing-earning-potential-with-strategic-facebook-video-ads-for-2024/"><u>[New] Maximizing Earning Potential with Strategic Facebook Video Ads for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-master-the-art-of-fb-video-ads-with-a-complimentary-kit-for-2024/"><u>[Updated] Master the Art of FB Video Ads with a Complimentary Kit for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-the-animation-advantage-boosting-profits-in-social-media-ads-for-2024/"><u>[Updated] The Animation Advantage Boosting Profits in Social Media Ads for 2024</u></a></li>
-<li><a href="https://win-best.techidaily.com/problemes-de-reseau-persistants-comment-resoudre-les-lecteurs-qui-disparaissent-constamment/"><u>Problèmes De Réseau Persistants : Comment Résoudre Les Lecteurs Qui Disparaissent Constamment</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-infinix-note-30i-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Infinix Note 30i Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/step-by-step-guide-extracting-sound-from-your-videos-cleanly-and-professionally/"><u>Step-by-Step Guide: Extracting Sound From Your Videos Cleanly and Professionally</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1726226514036-mp3-movavi/"><u>온라인 MP3 파일 대체 - 무료 Movavi 구성 도구에 대한 소개</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-100plus-best-examples-and-tips-to-craft-your-facebook-bios/"><u>[New] 2024 Approved 100+ Best Examples & Tips to Craft Your Facebook Bios</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-uncovering-the-most-recent-facebook-changes/"><u>[New] 2024 Approved Uncovering the Most Recent Facebook Changes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/voiding-common-pitfalls-in-youtube-sponsorships-according-to-famebit-for-2024/"><u>[New] Avoiding Common Pitfalls in YouTube Sponsorships, According to FameBit for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-launchpad-to-digital-society-the-essentials-of-facebook-account-creation-for-2024/"><u>[New] Launchpad to Digital Society The Essentials of Facebook Account Creation for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ne-youtube-feed-how-to-merge-multiple-videos-for-2024/"><u>[New] One YouTube Feed How to Merge Multiple Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/covert-communication-within-virtual-circles/"><u>Covert Communication Within Virtual Circles</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/foremost-companies-pioneering-vr-technology-for-2024/"><u>Foremost Companies Pioneering VR Technology for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-overcome-device-lockup-in-win11s-sleep/"><u>How to Overcome Device Lockup in Win11's Sleep?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-iphone-14-pro-max-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock on iPhone 14 Pro Max or iPad?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-joining-the-social-tv-revolution-fb-live-and-roku-interactions/"><u>In 2024, Joining the Social TV Revolution FB Live & Roku Interactions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-video-perfection-crafting-squares-for-facebook-popularity/"><u>In 2024, Video Perfection Crafting Squares for Facebook Popularity</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/simplifying-the-process-of-mp3-download-from-pinterest-for-2024/"><u>Simplifying the Process of MP3 Download From Pinterest for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-art-of-spinning-photos-iphone-videography-tips/"><u>The Art of Spinning Photos IPhone Videography Tips</u></a></li>
 </ul></div>
 

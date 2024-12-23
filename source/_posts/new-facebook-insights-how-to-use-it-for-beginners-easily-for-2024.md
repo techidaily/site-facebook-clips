@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Facebook Insights  How to Use It for Beginners Easily for 2024\""
-date: 2024-12-10T01:37:46.725Z
-updated: 2024-12-13T18:59:02.067Z
+date: 2024-12-18T17:07:19.299Z
+updated: 2024-12-22T20:47:51.259Z
 tags:
   - ai video
   - ai facebook
@@ -35,25 +35,21 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
 * [**Part 2: Where to Find Facebook Insights**](#part2)
 * [**Part 3: How to Use Facebook Insights for Beginners**](#part3)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What is Facebook Insights
 
  A free analytical tool offered by Facebook, the [Facebook Insights](https://www.facebook.com/business/news/audience-insights) helps you in understanding and analysing your posts, your fans, and your page’s performance as a whole. From understanding which of your posts are getting more likes, comments, and shares to knowing the reach of your posts and the increasing fan count, the Facebook Insights can guide you through the way.
 
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Where to Find Facebook Insights
 
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
 
  By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Use Facebook Insights for Beginners
 
@@ -64,7 +60,7 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Page Likes
@@ -89,16 +85,12 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
 
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Video Analytics
@@ -114,7 +106,11 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. People Analytics
@@ -135,6 +131,10 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -152,24 +152,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-10-facebook-jail-secrets-to-avoid-being-blocked-get-out-of-it-for-2024/"><u>[New] 10 Facebook Jail Secrets to Avoid Being Blocked / Get Out of It for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-immediate-access-to-your-videos-thumbnails-online/"><u>[New] 2024 Approved Immediate Access to Your Videos' Thumbnails Online</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-mastering-the-download-dance-of-hd-media-on-social-platforms/"><u>[New] 2024 Approved Mastering the Download Dance of HD Media on Social Platforms</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-enhancing-your-video-cover-images-updating-techniques-for-fb-for-2024/"><u>[New] Enhancing Your Video Cover Images Updating Techniques for FB for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-sync-facebook-media-for-larger-display-views/"><u>[New] In 2024, Sync Facebook Media for Larger Display Views</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-laughter-lab-virtually/"><u>[New] Laughter Lab Virtually</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-whats-different-about-vegaspro-since-its-launch-in-2024/"><u>[New] What's Different About VegasPro Since Its Launch, In 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-navigating-gopro-livestreams-to-popular-channels-facebook-and-periscope/"><u>[Updated] 2024 Approved Navigating GoPro Livestreams to Popular Channels (Facebook & Periscope)</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-the-complete-guide-to-facebook-dominance-business-edition/"><u>[Updated] 2024 Approved The Complete Guide to Facebook Dominance Business Edition</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-horizontal-vs-vertical-deciding-the-right-face-for-vids/"><u>[Updated] In 2024, Horizontal Vs. Vertical - Deciding the Right Face for Vids</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-top-2-directors-cut-downloads/"><u>[Updated] In 2024, Top 2 Director's Cut Downloads</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-syncing-songs-with-your-facebook-chronicles/"><u>[Updated] Syncing Songs with Your Facebook Chronicles</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-honor-90-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Honor 90? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Xiaomi 14 Ultra | Dr.fone</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-design-and-send-top-video-invitation-apps-for-ios-and-android-for-2024/"><u>New Design and Send Top Video Invitation Apps for iOS & Android for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/score-big-savings-on-technology-must-haves-including-googles-new-pixel-ebeam-qled-tv-and-hisense-smart-earbuds/"><u>Score Big Savings on Technology Must-Haves - Including Google's New Pixel Ebeam QLED TV & Hisense Smart Earbuds!</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/step-by-step-guide-to-wirecast-facebook-livestreams-for-2024/"><u>Step-by-Step Guide to Wirecast Facebook Livestreams for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/unlocking-live-streams-rokus-path-to-fb-live/"><u>Unlocking Live Streams Roku's Path to FB LIVE</u></a></li>
-<li><a href="https://techtrends.techidaily.com/upcoming-upgrades-on-apple-watch-series-se-could-bring-exciting-changes/"><u>Upcoming Upgrades on Apple Watch Series SE Could Bring Exciting Changes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-unraveling-friends-pixels-speed-up-searches/"><u>[New] 2024 Approved Unraveling Friends' Pixels Speed Up Searches</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-pc-and-mac-techniques-utilizing-dslr-for-facebook-live-for-2024/"><u>[New] PC & Mac Techniques Utilizing DSLR for Facebook LIVE for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-digital-domains-star-clusters-for-2024/"><u>[New] The Digital Domain's Star Clusters for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-top-mp4-to-facebook-video-converter-2023-edition/"><u>[New] Top MP4-to-Facebook Video Converter 2023 Edition</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-affordable-leading-chromeos-screen-recorders-for-2024/"><u>[Updated] Affordable Leading ChromeOS Screen Recorders for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-behind-the-scenes-crafting-your-next-big-fb-reel/"><u>[Updated] Behind-the-Scenes Crafting Your Next Big FB Reel</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-professional-pilots-guide-to-best-5-drones/"><u>[Updated] Professional Pilot’s Guide to Best 5 Drones</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/from-concept-to-capture-the-breakdown-of-apeaks-recorder-software/"><u>From Concept to Capture The Breakdown of Apeak's Recorder Software</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-hd-to-breathtaking-eizos-newest-4k-display-for-2024/"><u>From HD to Breathtaking EIZO's Newest 4K Display for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/navigating-virtual-realms-in-retroperusia-facebooks-image-inversion-for-2024/"><u>Navigating Virtual Realms in Retroperusia Facebook's Image Inversion for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/overcoming-crc-errors-effective-strategies-for-trouble-free-dvd-rip-using-dvd-shrink/"><u>Overcoming CRC Errors: Effective Strategies for Trouble-Free DVD Rip Using DVD Shrink</u></a></li>
 </ul></div>
 

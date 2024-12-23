@@ -1,7 +1,7 @@
 ---
 title: "[New] Busting the Myth of 'Perfect' Follower Numbers on Social Media"
-date: 2024-11-18T23:49:48.248Z
-updated: 2024-11-19T19:25:47.641Z
+date: 2024-12-22T04:00:16.513Z
+updated: 2024-12-23T01:44:09.279Z
 tags:
   - ai video
   - ai facebook
@@ -32,6 +32,10 @@ If you want to edit FB video, [Filmora Business](https://tools.techidaily.com/wo
 * [**Part1: What are Fake Facebook followers**](#part1)
 * [**Part2: How to spot fake followers on Facebook for Influencer quickly**](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What are Fake Facebook followers?
 
 Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
@@ -50,52 +54,41 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 2: Calculate Engagement rate
 
 [Engagement rate](https://trackmaven.com/marketing-dictionary/engagement-rate/) is nothing but the average number of engagements received by influencer for each post divided by number of followers. When an influencer has below 1% engagement, it implies involvement of few fake followers in certain amount. So, it is prevalent to track the numbers and do the calculation, so that there is no chance of fake followers on Facebook that can ruin your business.
 
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 3: Check tendency chart
 
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
 
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 4: Locate Follower country
 
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 5: Use third party tools
 
 You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for influencers. The most credible features of this tool are ‘influencer contract generator’, ‘product trials’, and ‘collaborations’. This tool helps you work with brands, contact influencers, measure engagement, and create contracts. Using the right tool will enhance your followers on Facebook for influencer and bring a new dimension for your business.
 
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -106,13 +99,6 @@ Knowing these aspects, you will be able to protect your brand page and garner ge
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -129,22 +115,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-boost-your-business-through-smart-monetization-techniques/"><u>[New] Boost Your Business Through Smart Monetization Techniques</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-free-top-8-apps-to-get-likes-on-facebook-android-and-iphone-for-2024/"><u>[New] FREE Top 8 Apps to Get Likes on Facebook (Android and iPhone) for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-how-to-post-360-photos-on-iosandroid-to-facebook/"><u>[New] How to Post 360 Photos on iOS/Android to Facebook</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-digital-storytelling-with-facebook-slideshow-creation/"><u>[New] In 2024, Digital Storytelling with Facebook SlideShow Creation</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-want-to-see-all-the-photos-and-videos-my-contacts-share-in-messages/"><u>[New] Want to See All the Photos & Videos My Contacts Share in Messages</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unlocking-fb-video-content-sharing-from-windows-pc-ios-android/"><u>[Updated] 2024 Approved Unlocking FB Video Content Sharing From Windows PC, iOS, Android</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-focus-on-subjects-only-efficient-backdrop-elimination-techniques/"><u>[Updated] Focus on Subjects Only Efficient Backdrop Elimination Techniques</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-making-the-most-of-your-television-with-fb-live/"><u>[Updated] In 2024, Making the Most of Your Television with FB Live</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-syncing-youtube-with-facebooks-sharing-mechanism/"><u>[Updated] In 2024, Syncing YouTube With Facebook's Sharing Mechanism</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-best-tools-for-crafting-memorable-instagram-reels-top-6/"><u>2024 Approved Best Tools for Crafting Memorable Instagram Reels (Top 6)</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-15-plus-to-other-iphone-14-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 15 Plus To Other iPhone 14 devices? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-a-network-locked-oneplus-nord-ce-3-lite-5g-phone-by-drfone-android/"><u>How to Unlock a Network Locked OnePlus Nord CE 3 Lite 5G Phone?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-14-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 14 Without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Oppo Reno 8T 5G? | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/pixelmaster-elite-os-xwin-edition-for-2024/"><u>PixelMaster Elite OS X/Win Edition for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/removing-device-from-apple-id-for-your-iphone-8-by-drfone-ios/"><u>Removing Device From Apple ID For your iPhone 8</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/troubleshooting-guide-resolving-halinitializationfailed-error-code-0x0000005c/"><u>Troubleshooting Guide: Resolving HAL_INITIALIZATION_FAILED Error Code 0X0000005C</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-decoding-fb-lives-multiscreen-mastery-techniques/"><u>[New] 2024 Approved Decoding FB Live's Multiscreen Mastery Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-maximizing-reach-tweeting-on-facebook/"><u>[New] Maximizing Reach Tweeting on Facebook</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-nightmares-unleashed-8-must-play-zombie-games-explored-for-2024/"><u>[New] Nightmares Unleashed 8 Must-Play Zombie Games Explored for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-premier-mp4-to-fb-video-transforming-tools-for-2024/"><u>[New] Premier MP4 to FB Video Transforming Tools for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-detailed-capture-gopro-hero5-vs-sjcam-sj7/"><u>[Updated] 2024 Approved Detailed Capture GoPro Hero5 vs SJCAM SJ7</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-step-by-step-approach-to-crafting-shareable-facebook-slideshows/"><u>[Updated] 2024 Approved Step-by-Step Approach to Crafting Shareable Facebook Slideshows</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-profitable-pathways-to-youtube-success-on-the-social-network-superstar-for-2024/"><u>[Updated] Profitable Pathways to YouTube Success on the Social Network Superstar for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unveil-the-power-of-storytelling-in-your-facebook-bio-for-2024/"><u>[Updated] Unveil the Power of Storytelling in Your Facebook Bio for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-digital-experience-with-acer-aspire-c27-the-low-profile-high-performance-desktop/"><u>Elevate Your Digital Experience with Acer Aspire C27: The Low Profile, High Performance Desktop</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/expert-analysis-unveiling-imos-features-and-user-experience/"><u>Expert Analysis: Unveiling IMo's Features and User Experience</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-to-save-top-cloud-providers-rates-for-2024/"><u>How to Save Top Cloud Providers' Rates for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-easy-steps-on-how-to-create-a-new-apple-id-account-on-apple-iphone-14-pro-drfone-by-drfone-ios/"><u>In 2024, Easy Steps on How To Create a New Apple ID Account On Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/oneplus-10-preview-estimated-unveiling-dates-cost-analysis-innovative-features-and-industry-rumors-explained/"><u>OnePlus 10 Preview: Estimated Unveiling Dates, Cost Analysis, Innovative Features & Industry Rumors Explained</u></a></li>
 </ul></div>
 

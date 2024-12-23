@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Deciphering Facebook's Forgotten Features  A Cross-Platform Manual\""
-date: 2024-12-08T20:37:50.575Z
-updated: 2024-12-14T02:27:21.987Z
+date: 2024-12-16T02:31:16.625Z
+updated: 2024-12-23T04:16:14.996Z
 tags:
   - ai video
   - ai facebook
@@ -38,7 +38,7 @@ Facebook has a complex interface, but it will be much easier to navigate it once
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to View Old Stories on iPhone/Android Facebook App?
@@ -60,7 +60,7 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -78,7 +78,7 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -100,7 +100,7 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -142,7 +142,7 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -160,14 +160,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-ghostly-lens-takedown-reviews/"><u>[New] 2024 Approved Ghostly Lens Takedown Reviews</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-decoding-facebooks-absence-of-personalized-video-content/"><u>[Updated] Decoding Facebook's Absence of Personalized Video Content</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-how-to-live-stream-360-videos-on-facebook-for-2024/"><u>[Updated] How to Live Stream 360 Videos on Facebook for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-visual-consistency-through-masterful-use-of-luts-in-ae/"><u>[Updated] Visual Consistency Through Masterful Use of LUTs in AE</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-decoding-facebooks-automatic-video-advancements/"><u>2024 Approved Decoding Facebook's Automatic Video Advancements</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-poco-m6-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Poco M6 5G</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/syncing-fb-vids-with-whatsapp-a-step-by-step-guide-for-2024/"><u>Syncing FB Vids with WhatsApp A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/unlock-full-features-of-macx-dvd-ripper-pro-for-windows-lifetime-access-now-available/"><u>Unlock Full Features of MacX DVD Ripper Pro for Windows - Lifetime Access Now Available!</u></a></li>
-<li><a href="https://win11.techidaily.com/unpacking-the-implications-of-removing-windows-11s-taskbar-chatting-capability-on-you/"><u>Unpacking the Implications of Removing Windows 11'S Taskbar Chatting Capability on You</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-evade-social-media-shunning-fbs-hidden-dos-and-donts/"><u>[New] 2024 Approved Evade Social Media Shunning FB's Hidden Do's & Don'ts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-how-to-optimize-your-social-media-presence-post-facebook-change/"><u>[New] In 2024, How to Optimize Your Social Media Presence Post-Facebook Change</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-ultimate-checklist-finding-videos-on-fb-today/"><u>[New] In 2024, The Ultimate Checklist Finding Videos on FB Today</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-leading-edge-stabilized-gimbals-iphoneandroidprofessional-rankings-1-10/"><u>[New] Leading-Edge Stabilized Gimbals IPhone/Android/Professional Rankings #1-#10</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-complete-guide-to-360-video-submission-on-fb/"><u>[New] The Complete Guide to 360 Video Submission on FB</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-hidden-threat-illegitimate-support-on-digital-platforms/"><u>[New] The Hidden Threat Illegitimate Support on Digital Platforms</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-building-brand-loyalty-through-emotional-fb-video-storytelling/"><u>[Updated] Building Brand Loyalty Through Emotional FB Video Storytelling</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-stealthy-facebook-video-navigator/"><u>[Updated] In 2024, Stealthy Facebook Video Navigator</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-seamless-integration-facebook-livestream-and-roku-connected-tv/"><u>[Updated] Seamless Integration Facebook Livestream & Roku Connected TV</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unlock-old-facebook-memories-with-a-click-for-2024/"><u>[Updated] Unlock Old Facebook Memories with a Click for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-explore-opportunities-in-digital-marketing-by-engaging-with-digiarty-services/"><u>2. Explore Opportunities in Digital Marketing by Engaging with Digiarty Services</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-metaverse-masterpieces-transforming-images-into-memetic-hits/"><u>2024 Approved Metaverse Masterpieces Transforming Images Into Memetic Hits</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-nokia-71-exceptional-display-and-photography-at-a-bargain/"><u>Affordable Nokia 7.1: Exceptional Display & Photography at a Bargain</u></a></li>
+<li><a href="https://techidaily.com/automated-user-tracking-with-cookiebot-boost-your-sites-visitor-insights/"><u>Automated User Tracking with Cookiebot: Boost Your Site's Visitor Insights</u></a></li>
+<li><a href="https://games-able.techidaily.com/from-zero-to-hero-mastering-steam-tokens/"><u>From Zero to Hero: Mastering Steam Tokens</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-complete-guide-to-motion-without-touch-sensors/"><u>In 2024, The Complete Guide to Motion Without Touch Sensors</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastering-the-social-maze-avoiding-the-ban-on-fb-for-2024/"><u>Mastering the Social Maze Avoiding the Ban on FB for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/winning-against-high-cpu-usage-by-svchostexe-in-windows-11-step-by-step-solution/"><u>Winning Against High CPU Usage by svchost.exe in Windows 11 - Step-by-Step Solution</u></a></li>
 </ul></div>
 

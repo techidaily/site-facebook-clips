@@ -1,7 +1,7 @@
 ---
 title: "\"Interactive Photography  Sharing Immersive 360 Photos via Mobile Devices for 2024\""
-date: 2024-12-08T17:48:09.214Z
-updated: 2024-12-13T18:28:10.273Z
+date: 2024-12-15T21:43:24.324Z
+updated: 2024-12-23T01:35:20.770Z
 tags:
   - ai video
   - ai facebook
@@ -32,7 +32,7 @@ thumbnail: https://www.lifewire.com/thmb/NVjeqUnDOKW0ZcfVsrhkG3e3dnM=/888x296/fi
  Probably you have a tablet or phone that support Facebook live 360 video feature. Actually as per the recent announcement made by Facebook professionals regarding its updated applications, live 360 is compatible with all devices launched after iPad Pro. iPad Air, iPad Mini 2 or iPhone 4S models. Till now Facebook has not revealed any news related to compatibility of new features over Android devices and chances are that Android users need to wait so long to enjoy this feature on their device. However, they made a useful statement that Galaxy devices launched after Galaxy Note 3 and Galaxy S5 will support this feature.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Taking 360 Photos on iPhone and iPad With Built in Camera App
@@ -44,7 +44,7 @@ thumbnail: https://www.lifewire.com/thmb/NVjeqUnDOKW0ZcfVsrhkG3e3dnM=/888x296/fi
  As soon as you have captured your desired shot, move to your Facebook account and browse photo library. Choose your recently captured panorama photo and then follow instructions provided on screen to update your video. You can also preview your content, now add desired caption and publish your content online. Soon your will start receiving interesting comments and reviews from audience. Users can also delete their 360 degree photos after few hours as per their need. Such types of videos are being commonly used for entertainment and marketing purpose throughout the world.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Taking 360 Photos on Android Smartphone with Google Street View
@@ -57,7 +57,7 @@ thumbnail: https://www.lifewire.com/thmb/NVjeqUnDOKW0ZcfVsrhkG3e3dnM=/888x296/fi
 * These captured 360 videos can be uploaded on Facebook same as the regular posts. Simply go to your account, move to status update and select your image, add caption and update.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Viewing 360 Photos on Facebook
@@ -69,7 +69,7 @@ thumbnail: https://www.lifewire.com/thmb/NVjeqUnDOKW0ZcfVsrhkG3e3dnM=/888x296/fi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -87,20 +87,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-sustaining-an-engaged-online-community-the-facebook-way/"><u>[New] 2024 Approved Sustaining an Engaged Online Community The Facebook Way</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-unlocking-your-fb-social-media-treasures-for-2024/"><u>[New] Unlocking Your FB Social Media Treasures for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-why-are-social-media-suggested-videos-evanescent-for-2024/"><u>[New] Why Are Social Media Suggested Videos Evanescent for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-exploring-your-liked-movies-and-shows-on-facebook/"><u>[Updated] 2024 Approved Exploring Your Liked Movies and Shows on Facebook</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-effortless-steps-to-obtain-free-audio-for-videos-for-2024/"><u>[Updated] Effortless Steps to Obtain Free Audio for Videos for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-step-by-step-techniques-for-sharing-videos-on-instagram/"><u>[Updated] In 2024, Step-by-Step Techniques for Sharing Videos on Instagram</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-jump-into-the-moment-with-these-8-trendy-videos-on-fb-for-2024/"><u>[Updated] Jump Into the Moment with These 8 Trendy Videos on FB for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-quick-start-utilizing-zoom-in-windows-10-environment/"><u>[Updated] Quick Start Utilizing Zoom in Windows 10 Environment</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-broadcasting-higher-integrating-dji-drones-for-facebook-live/"><u>2024 Approved Broadcasting Higher - Integrating DJI Drones for Facebook Live</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/enhancing-gaming-experience-tools-beyond-microsofts-recorder/"><u>Enhancing Gaming Experience Tools Beyond Microsoft's Recorder</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-asus-bw-16d1x-u-stylish-appeal-with-unique-characteristics/"><u>Evaluating the Asus BW-16D1X-U: Stylish Appeal with Unique Characteristics</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/forgotten-sd-card-discover-remedies/"><u>Forgotten SD Card, Discover Remedies</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-to-successfully-install-windows-nx-a-detailed-walkthrough/"><u>How to Successfully Install Windows nX - A Detailed Walkthrough</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/moneyminded-cloud-vault-capacious-cost-effective/"><u>MoneyMinded Cloud Vault - Capacious, Cost-Effective</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/quickly-categorize-your-memories-with-google-photos-collections-feature/"><u>Quickly Categorize Your Memories with Google Photos Collections Feature</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-harness-the-power-of-analytics-to-rise-in-fan-counts/"><u>[New] 2024 Approved Harness the Power of Analytics to Rise in Fan Counts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-stream-in-hd-1080p-on-facebook-for-2024/"><u>[New] How to Stream in HD 1080P on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-prime-fb-experience-the-ultimate-ten-players-for-2024/"><u>[New] Prime FB Experience The Ultimate Ten Players for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-roadmap-to-a-top-ranked-facebook-profile/"><u>[New] The Roadmap to a Top-Ranked Facebook Profile</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-capture-every-word-4-tips-for-fb-video-transcripts/"><u>[Updated] Capture Every Word 4 Tips for FB Video Transcripts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-ensuring-smooth-streaming-how-to-avoid-fb-live-glitches/"><u>[Updated] In 2024, Ensuring Smooth Streaming How to Avoid Fb Live Glitches</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-mastering-creative-content-for-fb-video-advertising-for-2024/"><u>[Updated] Mastering Creative Content for Fb Video Advertising for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-pcs-premier-ps3-clones-2023-edition/"><u>[Updated] PC's Premier PS3 Clones - 2023 Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-securing-a-seamless-srt-upload-experience-on-social-networks/"><u>2024 Approved Securing a Seamless SRT Upload Experience on Social Networks</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/6-proven-ways-to-unlock-asus-rog-phone-8-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Asus ROG Phone 8 Phone When You Forget the Password</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-play-mp4-files-on-samsung-galaxy-f14-5g-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Can't play MP4 files on Samsung Galaxy F14 5G</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/engage-more-with-facebook-sharing-panoramic-photos-via-iosandroid-apps/"><u>Engage More with Facebook Sharing Panoramic Photos via iOS/Android Apps</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/how-to-make-a-bootable-recovery-drive-on-different-pcs/"><u>How to Make a Bootable Recovery Drive on Different PCs</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-huawei-p60-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Huawei P60 Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-infinix-gt-10-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Infinix GT 10 Pro Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-mobile-sound-shakers-the-ultimate-playlist/"><u>In 2024, Mobile Sound Shakers The Ultimate Playlist</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/master-listings-for-melodic-mobile-alerts/"><u>Master Listings for Melodic Mobile Alerts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ling-the-most-honest-youtube-growth-services-for-2024/"><u>Unveiling the Most Honest Youtube Growth Services for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/vidcollector-social-media-to-device/"><u>VidCollector Social Media to Device</u></a></li>
 </ul></div>
 

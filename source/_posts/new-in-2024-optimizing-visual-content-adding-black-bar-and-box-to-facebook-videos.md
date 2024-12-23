@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Optimizing Visual Content  Adding Black Bar & Box to Facebook Videos\""
-date: 2024-12-08T22:54:58.045Z
-updated: 2024-12-13T19:11:57.376Z
+date: 2024-12-20T21:10:41.589Z
+updated: 2024-12-23T04:58:37.911Z
 tags:
   - ai video
   - ai facebook
@@ -33,6 +33,10 @@ First let us start with the question, what is a letterbox for a Facebook video?
 
 Want to have a try? Come on!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Get Started with Filmora
 
 A square video in a **1:1 aspect ratio** is preferred by Facebook. There are varieties of video editing apps available in the market that allows you to create a square video and add a letterbox on it. But most of them have a complicated interface and you might need to watch a lot of video tutorials to make head and tail of it. If you want to add such a letterbox for your Facebook video, Wondershare Filmora may be a good choice for you. Currently, Filmora offers two ways to add a letterbox for your square Facebook video.
@@ -45,12 +49,16 @@ This method is suitable for users whose source videos are not in square format (
 
 ![start-filmora9](https://images.wondershare.com/filmora/article-images/start-filmora9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 2\. Go to **File**\-**Import Media** and import the source file to the Media library (let’s say it’s 1920\*1080 at 16:9)
 
 ![import-sample-video](https://images.wondershare.com/filmora/article-images/import-sample-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 3\. Drag and drop the source video to the timeline, and a black letterbox will be created automatically in the preview window, cause the source file didn’t match the 1:1 ratio you set for the project
@@ -58,7 +66,7 @@ This method is suitable for users whose source videos are not in square format (
 ![automatic-letterbox](https://images.wondershare.com/filmora/article-images/automatic-letterbox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 4\. Add a subtitle under **Titles** tab to the letterbox at the top and bottom and custom the texts you want.
@@ -66,20 +74,20 @@ This method is suitable for users whose source videos are not in square format (
 ![add-letterbox-title](https://images.wondershare.com/filmora/article-images/add-letterbox-title.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 And you can also go to the **Elements** tab, and add some creative elements such as emoji to the letterbox.
 
 ![add-emoji-elements](https://images.wondershare.com/filmora/article-images/add-emoji-elements.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 5\. Export the square video to local computer in mp4 or other supported formats
 
 ![filmora9-export-panel](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 6\. Upload the exported square video to Facebook, and show how it looks like on Facebook.
 
@@ -97,10 +105,6 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![no-letterbox](https://images.wondershare.com/filmora/article-images/no-letterbox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 3\. To create a letterbox, choose the option **Titles**. Now you will be shown a variety of subtitles and credit styles
 * 4\. Select **Subtitles**, then add a subtitle style that has a black background to your video, such as Subtitle 1,2,3, etc.
 
@@ -114,10 +118,6 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![add-subtitle-again](https://images.wondershare.com/filmora/article-images/add-subtitle-again.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 7\. You can input your own texts in the box or delete the text as you want, and you will be left with a video that has black bars on the top and bottom
 
 ![get-both-letterbox](https://images.wondershare.com/filmora/article-images/get-both-letterbox.jpg)
@@ -126,10 +126,6 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## To Sum up
 
 Adding a letterbox, then designing your own texts, elements and filters will bring great creativity to your video on Facebook. Creativity will connect people and you will create your own magic! Filmora now offers 2 effective ways to add a letterbox to any videos and a variety of attractive filters, overlays, and elements. This is why we recommend you all to try and use Filmora for all your editing needs. Here you go!
@@ -137,6 +133,10 @@ Adding a letterbox, then designing your own texts, elements and filters will bri
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -153,20 +153,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-create-professional-fb-ad-videos-leverage-free-creative-toolkit/"><u>[New] 2024 Approved Create Professional FB Ad Videos Leverage Free Creative Toolkit</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-precision-in-preservation-expert-techniques-for-skype-call-recordings/"><u>[Updated] 2024 Approved Precision in Preservation Expert Techniques for Skype Call Recordings</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-crafting-hashtags-that-capture-attention-and-drive-engagement-on-fb/"><u>[Updated] Crafting Hashtags that Capture Attention and Drive Engagement on FB</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-tips-to-improve-profile-cover-videos/"><u>[Updated] In 2024, Tips to Improve Profile Cover Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-the-essentials-of-setting-up-and-assessing-fb-instream-ad-efficacy/"><u>[Updated] The Essentials of Setting Up & Assessing FB Instream Ad Efficacy</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-ensuring-smooth-streaming-solutions-for-fb-livestream-problems/"><u>2024 Approved Ensuring Smooth Streaming Solutions for FB Livestream Problems</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/in-2024-expertly-curated-list-of-premier-audio-trimming-software-websites/"><u>In 2024, Expertly Curated List of Premier Audio Trimming Software Websites</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-honor-magic-v2-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Honor Magic V2 for Free? | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-key-practices-to-amplify-your-social-media-impact-on-fb/"><u>In 2024, Key Practices to Amplify Your Social Media Impact on FB</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-steps-to-ensure-whole-sound-in-fb-video-playbacks/"><u>In 2024, Steps to Ensure Whole Sound in FB Video Playbacks</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Realme Note 50 | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/navigating-picture-in-picture-on-safaris-ecosystem/"><u>Navigating Picture-in-Picture on Safari's Ecosystem</u></a></li>
-<li><a href="https://techidaily.com/solved-excel-2023-spreadsheet-disappears-after-opening-by-stellar-guide/"><u>Solved Excel 2023 Spreadsheet Disappears after Opening</u></a></li>
-<li><a href="https://techtrends.techidaily.com/unlock-the-secrets-of-my-go-to-spots-for-online-music-video-playbacks/"><u>Unlock the Secrets of My Go-To Spots for Online Music Video Playbacks</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/windows-tutorial-customizing-display-properties-through-the-control-panel-with-yl-computing-solutions/"><u>Windows Tutorial: Customizing Display Properties Through the Control Panel with YL Computing Solutions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-channel-combat-determining-which-earns-more-from-videosdailymotion-or-youtube/"><u>[New] 2024 Approved Channel Combat Determining Which Earns More From Videos—Dailymotion or YouTube</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-unveiling-the-purpose-of-watermarks-in-fb-media/"><u>[New] 2024 Approved Unveiling the Purpose of Watermarks in Fb Media</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-chuckle-centric-collection-premium-free-templates-for-you/"><u>[New] Chuckle-Centric Collection Premium Free Templates for You</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-enhancing-clarity-with-time-indicators-in-youtube-media/"><u>[New] In 2024, Enhancing Clarity with Time Indicators in YouTube Media</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-refine-and-reveal-editing-fbs-recollected-moments/"><u>[New] In 2024, Refine and Reveal Editing FB's Recollected Moments</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-download-facebook-videos-swiftly-discover-the-top-10-android-downloader-tools/"><u>[Updated] 2024 Approved Download Facebook Videos Swiftly Discover the Top 10 Android Downloader Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-enhancing-televisual-engagement-through-fb-live/"><u>[Updated] In 2024, Enhancing Televisual Engagement Through FB Live</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-from-concept-to-platform-crafting-engaging-fb-content/"><u>[Updated] In 2024, From Concept to Platform Crafting Engaging FB Content</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unveiling-the-basics-of-facebook-membership-creation/"><u>[Updated] In 2024, Unveiling the Basics of Facebook Membership Creation</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/easily-generate-your-flipbooks-table-of-contents-with-flipbuildercom-start-now/"><u>Easily Generate Your Flipbook's Table of Contents with FlipBuilder.com - Start Now!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-contacts-from-nokia-g310-by-fonelab-android-recover-contacts/"><u>How to recover deleted contacts from Nokia G310.</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-the-covert-creation-of-personal-snaps-on-snapchat/"><u>In 2024, The Covert Creation of Personal Snaps on Snapchat</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/techniques-for-overcoming-the-non-existent-normalizdll-error/"><u>Techniques for Overcoming the Non-Existent Normaliz.dll Error</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transforming-daily-living-mastery-of-chatgpt-for-a-better-you/"><u>Transforming Daily Living: Mastery of ChatGPT for a Better You</u></a></li>
 </ul></div>
 

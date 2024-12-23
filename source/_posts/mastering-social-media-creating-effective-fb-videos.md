@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Social Media  Creating Effective FB Videos\""
-date: 2024-12-07T21:50:22.788Z
-updated: 2024-12-13T18:15:18.852Z
+date: 2024-12-21T04:49:47.226Z
+updated: 2024-12-22T23:35:15.880Z
 tags:
   - ai video
   - ai facebook
@@ -38,21 +38,17 @@ With this video maker for Facebook, you can edit your own elements together quic
 
 In this article, we will illustrate the detailed steps for creating a Facebook video step by step.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 1: Import your video or photo files
 
 After launching Filmora, click the “Import” button in the main menu, choose the files you have and click “Open” to import them into Filmora's Media Library. For your convenience, you can also directly drag and drop the files to the Media Library. Filmora allows you to preview your video footage at the right Preview window and snap a shot with the Camera icon without quality loss.
 
 ![import video to filmora9 to make facebook video](https://images.wondershare.com/filmora/article-images/filmora9-import-media.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 After previewing, drag your files to the timeline. Put the files in the order you want them to appear in the final video, and your base sequence is now ready.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 2: Personalize Facebook video
 
@@ -75,7 +71,7 @@ Aside from the powerful editing features, there are more than 300 effects availa
 ![filmora9 add filters to facebook video](https://images.wondershare.com/filmora/guide/filters-9-win.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Filmora has more than 40 tracks built-in, and you can use them without worrying about the copyright concerns. What’s more, you can [add your own music track](https://tools.techidaily.com/wondershare/filmora/download/) and record your own voiceover to the video. To add the track to your Facebook video, just drag it to the timeline, and it will be placed in the sound track in the timeline. You can also [download royalty free background music](https://tools.techidaily.com/wondershare/filmora/download/) to use it for Facebook videos.
@@ -90,7 +86,7 @@ Filmora has more than 40 tracks built-in, and you can use them without worrying 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Export and Share
@@ -105,13 +101,13 @@ If you want to save it to your computer, You can rename the video, change the lo
 
 ## Part 2: 3 Tips for making videos for Facebook
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. User's attention is important
 
 User's attention get away quickly, so [it is important to gran their attention at the first 3 seconds](https://www.huffpost.com/entry/as-attention-spans-get-shorter-content-gets-shorter%5Fb%5F5a57ae42e4b00a8c909f7f1e). You can collect some beautiful photos and video to be your video introduction as people tend to get captured by beauty. Besides, you can also use some astonishing stuff to make raise the interest of viwers. All in all, in the age of lossing patient, you need to try your best to hook viwers.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Know your objective
 
@@ -124,10 +120,14 @@ Usually, long video needs more patience of viwers. It is not advised to make lon
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -144,18 +144,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-joining-friends-and-family-online-facebook-setup-guide/"><u>[New] Joining Friends and Family Online (Facebook Setup Guide)</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-mirth-makers-zombie-fashionistas/"><u>[New] Mirth Makers Zombie Fashionistas</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-seamless-transition-from-tv-to-facebook-lives-for-2024/"><u>[New] Seamless Transition From TV to Facebook Lives for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-dive-into-the-deep-end-of-facebook-meme-culture/"><u>[Updated] 2024 Approved Dive Into The Deep End of Facebook Meme Culture</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-from-ineffectiveness-to-influence-with-smm-mastery/"><u>[Updated] From Ineffectiveness to Influence with SMM Mastery</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-making-a-statement-standout-content-via-fb-slideshows/"><u>[Updated] Making a Statement Standout Content via FB Slideshows</u></a></li>
-<li><a href="https://fox-search.techidaily.com/adjusting-property-settings-in-edit-feature-panel/"><u>Adjusting Property Settings in Edit Feature Panel</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Xiaomi Redmi Note 12 Pro 4G? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-motorola-moto-g24-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Motorola Moto G24 Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Realme PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/top-5-mma-games-for-virtual-fight-enthusiasts/"><u>Top 5 MMA Games for Virtual Fight Enthusiasts</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/top-windows-simulations-for-playstation-3-games-5/"><u>Top Windows Simulations for PlayStation 3 Games (5)</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/troubleshooting-non-paged-memory-issues-in-windows-10-pcs/"><u>Troubleshooting Non-Paged Memory Issues in Windows 10 PCs</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-a-step-by-step-guide-to-mastering-morphvox-modifications/"><u>[New] A Step-by-Step Guide to Mastering MorphVOX Modifications</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-how-samsung-galaxy-s8-changes-high-definition-viewing-for-2024/"><u>[New] How Samsung Galaxy S8 Changes High-Definition Viewing for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-2023-fb-live-essentials-watching-made-easy/"><u>[New] In 2024, 2023 FB Live Essentials Watching Made Easy</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-inquiry-exploring-shared-videos-and-images-in-direct-conversations/"><u>[New] In 2024, Inquiry Exploring Shared Videos & Images in Direct Conversations</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-iosandroid-tutorial-uploading-audio-to-social-network/"><u>[New] In 2024, IOS/Android Tutorial Uploading Audio to Social Network</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-securing-the-best-presentation-of-subtitles-through-srt-uploads-for-2024/"><u>[New] Securing the Best Presentation of Subtitles Through SRT Uploads for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-streamlining-fb-live-recording-for-maximum-clarity-for-2024/"><u>[New] Streamlining FB Live Recording for Maximum Clarity for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-free-fb-hd-videos-step-by-step/"><u>[Updated] 2024 Approved Free FB HD Videos Step-by-Step</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-how-to-prevent-and-mend-streaming-hiccups-in-fb-livestran/"><u>[Updated] 2024 Approved How to Prevent and Mend Streaming Hiccups in FB Livestran</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-fixing-obss-full-screen-freeze-up/"><u>2024 Approved Fixing OBS's Full-Screen Freeze Up</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-optimizing-storage-spend-best-prices-in-cloud-services/"><u>2024 Approved Optimizing Storage Spend Best Prices in Cloud Services</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-seeking-access-to-all-mutually-shared-media-in-chats/"><u>2024 Approved Seeking Access to All Mutually-Shared Media in Chats</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-social-media-marketing-elevating-public-health-dialogue/"><u>2024 Approved Social Media Marketing Elevating Public Health Dialogue</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-unveiling-effective-strategies-for-fb-in-stream-ad-setup/"><u>2024 Approved Unveiling Effective Strategies for FB In-Stream Ad Setup</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-meme-playbook-no-10-essentials/"><u>In 2024, The Ultimate Meme Playbook No. 10 Essentials</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-vkontakte-profile-picture-info-pixel-count-codec-time/"><u>In 2024, VKontakte Profile Picture Info Pixel Count, Codec, Time</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/pro-player-advice-top-techniques-and-tricks-to-excel-at-subway-surfers/"><u>Pro Player Advice: Top Techniques and Tricks to Excel at 'Subway Surfers'</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-guide-to-picsarts-latest-features-rev-2024/"><u>The Ultimate Guide to PicsArt's Latest Features, Rev. 2024</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/top-strategies-for-effectively-updating-your-hardware-drivers-on-windows-insights-from-yl-computing/"><u>Top Strategies for Effectively Updating Your Hardware Drivers on Windows - Insights From YL Computing</u></a></li>
 </ul></div>
 

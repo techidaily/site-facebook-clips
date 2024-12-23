@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Funny Face of Freedom  Top 20 Pranks at Facebook's Barracks\""
-date: 2024-12-07T20:07:01.214Z
-updated: 2024-12-13T20:58:20.194Z
+date: 2024-12-20T04:36:49.284Z
+updated: 2024-12-22T16:16:02.130Z
 tags:
   - ai video
   - ai facebook
@@ -34,10 +34,6 @@ It happens that the Facebook jail makes users get banned, blocked from accessing
 * [Part 3: Top 3 Facebook Meme Generators](#part3)
 * [Part 4: How to Make Your Facebook Jail Meme?](#part4)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What does Facebook Jail Mean?
 
 If you are a Facebook user, you might have observed that we get to see so many funny Facebook memes on the feed and the most recent ones are Facebook jail memes. Facebook jail is a new term and many of us are not aware of this.
@@ -48,25 +44,25 @@ Also, this penalty could be for few hours to 21 days of restrictive actions.
 
 ![facebook jail](https://images.wondershare.com/filmii/article-images/facebook-jail.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: 10 Best Out of Facebook Jail Memes
 
 #### 1\. Out of Facebook Jail Meme
 
 ![out of facebook jail meme](https://images.wondershare.com/filmora/article-images/2021/out-of-facebook-jail-meme.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Fresh out of Facebook jail … So excited!!! Can’t wait!!!
 
 #### 2\. Released from Facebook Jail
 
 ![released from facebook jail](https://images.wondershare.com/filmora/article-images/2021/released-from-facebook-jail.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 When you’re released from Facebook jail knowing you haven’t been rehabilitated, you may wanna say, “Sup, bitches?”
 
@@ -80,6 +76,10 @@ This was me - Fresh out of Facebook jail in this morning!
 
 ![finally out of fb jail](https://images.wondershare.com/filmora/article-images/2021/finally-out-of-fb-jail.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When you are finally out of FB jail, you may feel the same as me.
 
 #### 5\. After Doing a Hard Time in FB Jail
@@ -91,6 +91,10 @@ After having been through a hard time in Facebook jail, what your comment sectio
 #### 6\. Funny Gary Outta Facebook Jail
 
 ![funny gary outta fb jail](https://images.wondershare.com/filmora/article-images/2021/funny-gary-outta-fb-jail.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This is how Funny Gary Out of Facebook Jail.
 
@@ -110,6 +114,10 @@ I am bacccck from Facebook jail. Fantastic!!!
 
 ![outa fb jail 15th time](https://images.wondershare.com/filmora/article-images/2021/outa-fb-jail-15th-time.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now that I am outa Facebook jail for the 15th time. What type of mischief shall I do to get banned again?
 
 #### 10\. Outa FB Jail and Play
@@ -118,6 +126,10 @@ Now that I am outa Facebook jail for the 15th time. What type of mischief shall 
 
 Out of Facebook Jail!!! Let’s play bitches!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Top 3 Facebook Meme Generators
 
 We all come across many memes across social media and sometimes do feel that how meme-making could be happening. We often think this and are still clueless about that. Do you have an idea that there are tons of Facebook meme generators available online to make your task easy? Here following are the best resources for you to create a Facebook meme for you. Find a list of Facebook meme generators
@@ -125,10 +137,6 @@ We all come across many memes across social media and sometimes do feel that how
 #### 1\. [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![edit memes filmroa meme maker](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 If you are tired of searching for the best Facebook meme generator then Filmora meme maker is undoubtedly the best choice for you. It is a fast yet free meme maker and you need to add any image or GIF then add text, colors, resize as you need, and lastly export it in PNG, JPG, GIF, etc. formats easily. Also even if you are new to this Facebook jail meme-making thing then trust me Filmora is the right choice for you because of its easy interface.
 
@@ -139,7 +147,7 @@ Also one of the best features of the Filmora meme generator is that it has a ver
 ![meme generator imgflip](https://images.wondershare.com/filmii/article-images/meme-generator-imgflip.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This Facebook meme generator offers benefits such as adding customizable images and text, resizing/moving text boxes as desired, customized font options, outline colors, rotation, flipping, and many more. It also has so many colorful stickers to make your meme look creative. It gets operated in HTML canvas.
@@ -149,10 +157,6 @@ This Facebook meme generator offers benefits such as adding customizable images 
 ![canva meme generator](https://images.wondershare.com/filmii/article-images/canva-meme-generator.jpg)
 
 Canva's name is not at all unknown to anybody related to the designing field. It is an amazing online free tool helping as a Facebook meme generator too. It has so many templates available you just need to pick the right one for you and proceed. It is surely the best choice for funny Facebook memes and especially Facebook jail memes. You will get color/font options, resize, crop, flip, etc. options to create the best memes. Canva is a very user-friendly online tool and it has a very easy-to-use design which makes an overall creating experience very smooth.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: How to Make Your Facebook Jail Meme?
 
@@ -184,10 +188,6 @@ So once you go through this article you would realize that the funny Facebook me
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -203,16 +203,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-solving-grey-voids-in-gaming-capture-software/"><u>[New] 2024 Approved Solving Grey Voids in Gaming Capture Software</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-the-ultimate-tutorial-for-iphone-voice-memo/"><u>[New] 2024 Approved The Ultimate Tutorial for iPhone Voice Memo</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-an-in-depth-examination-of-vivavideo-app/"><u>[New] An In-Depth Examination of VivaVideo App</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-android-and-iphones-essential-apps-to-elevate-fb-likes-count-quickly-for-2024/"><u>[New] Android & iPhone's Essential Apps to Elevate FB Likes Count Quickly for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-efficient-way-to-broadcast-tiktok-videos-via-facebook/"><u>[Updated] 2024 Approved Efficient Way to Broadcast TikTok Videos via Facebook</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-making-friends-across-networks-instagram-plus-facebook-for-2024/"><u>[Updated] Making Friends Across Networks Instagram + Facebook for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/building-impressive-facebook-slideshows-a-practical-guide-for-2024/"><u>Building Impressive Facebook SlideShows A Practical Guide for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-newest-brother-hl-l2300d-driver-version-for-smooth-printing-experience/"><u>Get the Newest Brother HL-L2300D Driver Version for Smooth Printing Experience</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/master-the-art-of-excluding-commercial-videos-from-social-media-for-2024/"><u>Master the Art of Excluding Commercial Videos From Social Media for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/top-10-youtube-video-grabber-apps-best-in-class-compatibility-for-2024/"><u>Top 10 YouTube Video Grabber Apps, Best-in-Class Compatibility for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1725287041104-dvd-diy/"><u>シンプルガイド：安くてファイナルな挙式DVD作成のヒント - DIY初心者向け</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-streamline-social-tweet-to-fb-guide/"><u>[New] 2024 Approved Streamline Social Tweet to FB Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-facebook-live-the-world-in-minutes-for-2024/"><u>[New] Facebook Live The World in Minutes for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-mastering-the-art-of-personalizing-video-covers-for-facebook-for-2024/"><u>[New] Mastering the Art of Personalizing Video Covers for Facebook for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-engage-followers-effective-strategies-for-fb-slideshows-for-2024/"><u>[Updated] Engage Followers Effective Strategies for FB Slideshows for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-12-facebook-marketing-tips-for-business-beginners-and-pros/"><u>[Updated] In 2024, 12 Facebook Marketing Tips for Business (Beginners and Pros)</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-methods-for-eliminating-invisible-youtube-playback/"><u>[Updated] Methods for Eliminating Invisible YouTube Playback</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-ultimate-playbook-for-earning-via-youtube-shorts/"><u>2024 Approved The Ultimate Playbook for Earning via YouTube Shorts</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-vivo-v29-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/cutting-edge-techniques-for-srt-mastery-on-apple-computers/"><u>Cutting-Edge Techniques for SRT Mastery on Apple Computers</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/expert-gear-analysis-by-toms-technology-hub-unveiling-the-best-in-pc-components/"><u>Expert Gear Analysis by Tom's Technology Hub - Unveiling the Best in PC Components</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/from-bland-to-brilliant-elevate-your-images-in-canva/"><u>From Bland to Brilliant Elevate Your Images in Canva</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-a15-4gwithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy A15 4Gwith/without a PC</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-unlocking-the-power-of-seamless-youtube-content-flow-onto-facebook/"><u>In 2024, Unlocking the Power of Seamless YouTube Content Flow Onto Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/instantly-spice-up-videos-on-facebook-with-music-steps/"><u>Instantly Spice Up Videos on Facebook With Music Steps</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/iphone-15s-resistance-to-water-how-strong-is-it/"><u>IPhone 15'S Resistance to Water: How Strong Is It?</u></a></li>
+<li><a href="https://media-tips.techidaily.com/mastering-avchd-to-sd-conversion-a-comprehensive-tutorial-for-smooth-playback/"><u>Mastering AVCHD to SD Conversion - A Comprehensive Tutorial for Smooth Playback</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-leading-edge-in-social-media-video-capture-5-apps-reviewed/"><u>The Leading Edge in Social Media Video Capture (5 Apps Reviewed)</u></a></li>
 </ul></div>
 

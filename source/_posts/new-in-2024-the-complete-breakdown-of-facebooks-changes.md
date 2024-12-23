@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Complete Breakdown of Facebook's Changes"
-date: 2024-12-10T19:17:08.514Z
-updated: 2024-12-13T21:50:40.430Z
+date: 2024-12-15T20:10:17.684Z
+updated: 2024-12-22T16:12:52.898Z
 tags:
   - ai video
   - ai facebook
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is Facebook
 
  Facebook has redefined the meaning of social networking. It had brought turbulence in the social media world back in 2004 which were embraced by everybody and it is carrying that charm until now! It is a social networking company registered under the name of ‘Facebook, Inc’ which allows its users to communicate with other people. These other people are also defined by users and can be their family, friends, coworkers or potential friends! Mark Zuckerberg, founder of Facebook created this boon of social media in 2004 while he was enrolled at Harvard University with a vision of designing a media platform for college students. But nobody would have imagined its progress graph! By 2006 anyone over the age of 13 with a valid email address could join Facebook. So this social networking website which was supposed to allow users to create profile, share moments through uploading photos and videos and assisted in staying in touch with family and friends for a long time, transformed into one of the much sought after platforms with more than 1 billion users worldwide.
@@ -38,7 +42,7 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 **Events:** These encourage boosting engagement, get people talking, and provide helpful information and links for an upcoming event and ultimately planning and tracking who plans to attend. 650+ million users make use of Facebook Events and 100 million on an average every day to publicize the event!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Common Facebook Terms which you should know
@@ -57,10 +61,6 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 
 **Notification:** It is like an update from Facebook of the events and occasions where someone has interacted with you. It might be through reacting on what you shared or by posting something on your wall etc.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Exploring Facebook
 
  Facebook is user friendly and once you create your account, you will feel like exploring all its options and becoming familiar with its adorable features. Here is a quick guide to Homepage and timeline:
@@ -77,10 +77,6 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 
 ![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### The Timeline
 
  The Timeline which represents your profile and is visible to your friends and public (subject to your privacy settings) contains inventory of everything which you have shared and which people has tagged you. You can set your profile picture by simply browsing through your picture library. Profile picture is the one which your friends will see when you will comment anything on Facebook. Coverphoto is a picture which can be seen by anybody when they visit your timeline. You can set your personal picture or wallpaper also to express your personality and interests. You can make your profile more informative by adding your school, college, workplace, relationship status and your location etc.
@@ -90,7 +86,11 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 ![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Facebook usage is diversified?
@@ -116,7 +116,7 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -134,21 +134,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-essential-audio-gear-for-active-cameras/"><u>[New] In 2024, Essential Audio Gear for Active Cameras</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-complete-instagram-analytics-companion-transforming-metrics-into-strategy/"><u>[New] In 2024, The Complete Instagram Analytics Companion Transforming Metrics Into Strategy</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-enabling-successful-video-sharing-in-messenger-for-ios-and-android-users/"><u>[Updated] 2024 Approved Enabling Successful Video Sharing in Messenger for iOS and Android Users</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-the-greatest-satirical-serenades/"><u>[Updated] 2024 Approved The Greatest Satirical Serenades</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-latest-hit-a-guide-to-todays-top-8-online-videos/"><u>[Updated] In 2024, The Latest Hit A Guide to Today's Top 8 Online Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-unveiling-the-secrets-to-effective-fb-video-advertising-with-best-practices-for-2024/"><u>[Updated] Unveiling the Secrets to Effective FB Video Advertising with Best Practices for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-mastering-the-art-of-setting-up-and-evaluating-facebooks-in-stream-ads/"><u>2024 Approved Mastering the Art of Setting Up & Evaluating Facebook's In-Stream Ads</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-ultimate-guide-to-unblocked-video-sharing/"><u>2024 Approved The Ultimate Guide to Unblocked Video Sharing</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/a-comprehensive-guide-to-solving-cannot-find-certain-dll-files/"><u>A Comprehensive Guide to Solving 'Cannot Find Certain DLL Files'</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/discover-magical-movie-gems-for-little-ones-on-disney-plus-this-july-streaminglists/"><u>Discover Magical Movie Gems for Little Ones on Disney Plus This July #StreamingLists</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-and-install-official-focusrite-scarlett-2i4-audio-interface-drivers-for-windows/"><u>Download & Install Official Focusrite Scarlett 2I4 Audio Interface Drivers for Windows</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-make-a-digital-signature-for-doc-file-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to make a digital signature for .doc file</u></a></li>
-<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-nokia-c12-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Nokia C12? | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-to-overcome-issues-with-your-instagram-stories/"><u>Step-by-Step Guide to Overcome Issues With Your Instagram Stories</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/the-art-of-earning-money-with-your-facebook-page-for-2024/"><u>The Art of Earning Money with Your Facebook Page for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/turn-fb-hd-videos-into-high-quality-mp4-free-online-method-unveiled/"><u>Turn FB HD Videos Into High-Quality MP4 – Free Online Method Unveiled</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-from-bland-to-blockbuster-framing-videos-in-a-square-perspective/"><u>[New] 2024 Approved From Bland to Blockbuster Framing Videos in a Square Perspective</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-beginners-pathway-to-livestreaming-on-facebook-and-mobile-devices/"><u>[New] Beginner's Pathway to Livestreaming on Facebook and Mobile Devices</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-decoding-macbook-airs-screen-capture-a-detailed-walkthrough-guide/"><u>[New] Decoding MacBook Air's Screen Capture A Detailed Walkthrough Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-detailed-instructions-mastering-the-art-of-uploading-vr-media-to-fb/"><u>[New] In 2024, Detailed Instructions Mastering the Art of Uploading VR Media to FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-introduction-to-effective-analysis-facebook-insights/"><u>[New] Introduction to Effective Analysis Facebook Insights</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-optimize-your-online-presence-with-linked-fb-stories-for-2024/"><u>[New] Optimize Your Online Presence with Linked FB Stories for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/solved-connect-bluetooth-speaker-to-laptop-quickly-and-easily/"><u>[SOLVED] Connect Bluetooth Speaker To Laptop. Quickly & Easily</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-maximize-your-access-to-fb-videos-with-our-top-5-picks/"><u>[Updated] 2024 Approved Maximize Your Access to FB Videos with Our Top 5 Picks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-etsy-listing-image-ratio-advice/"><u>[Updated] Etsy Listing Image Ratio Advice</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-art-of-cross-promotion-twitters-to-facebooks/"><u>[Updated] In 2024, The Art of Cross-Promotion Twitters to Facebooks</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cultivating-sharp-skills-insights-into-intellectual-development-from-the-abbyy-blog/"><u>Cultivating Sharp Skills: Insights Into Intellectual Development From the ABBYY Blog</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-vivo-x-fold-2-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Vivo X Fold 2 Phone | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-how-to-optimize-facebook-seo-with-10-surefire-ways/"><u>In 2024, How to Optimize Facebook SEO with 10 Surefire Ways</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solutions-for-when-your-logitech-devices-arent-working-correctly-on-pcs/"><u>Solutions for When Your Logitech Devices Aren't Working Correctly on PCs</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
 </ul></div>
 

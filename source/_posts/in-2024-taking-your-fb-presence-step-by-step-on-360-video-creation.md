@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Taking Your FB Presence  Step-by-Step on 360 Video Creation\""
-date: 2024-11-12T18:43:32.986Z
-updated: 2024-11-20T00:24:32.916Z
+date: 2024-12-20T19:05:30.455Z
+updated: 2024-12-23T01:36:26.260Z
 tags:
   - ai video
   - ai facebook
@@ -43,10 +43,7 @@ thumbnail: https://thmb.techidaily.com/3a57b1ddb74892f92e7ea8db98be1fa90b1375e9f
  So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to make a 360 Degree video on Facebook?
@@ -67,13 +64,6 @@ thumbnail: https://thmb.techidaily.com/3a57b1ddb74892f92e7ea8db98be1fa90b1375e9f
 
  In case if you are using any other device to capture your 360 degree videos then you may need to make manual adjustments for your 360 video formats.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to upload 360 degree videos on Facebook
 
  Uploading 360 video to Facebook is easy, just follow the steps below:
@@ -84,9 +74,17 @@ thumbnail: https://thmb.techidaily.com/3a57b1ddb74892f92e7ea8db98be1fa90b1375e9f
 
 ![Facebook 360 video upload](https://images.wondershare.com/filmora/article-images/facebook-360-video-upload.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
 
 ![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
 
@@ -95,10 +93,7 @@ thumbnail: https://thmb.techidaily.com/3a57b1ddb74892f92e7ea8db98be1fa90b1375e9f
  Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook 360 Video & Gear VR
@@ -124,10 +119,7 @@ thumbnail: https://thmb.techidaily.com/3a57b1ddb74892f92e7ea8db98be1fa90b1375e9f
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -145,21 +137,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-ultimate-list-of-ios-compatible-fb-videos-downloader-apps/"><u>[New] In 2024, The Ultimate List of iOS-Compatible FB Videos Downloader Apps</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-social-media-visuals-aspect-ratio-decisions/"><u>[New] Social Media Visuals Aspect Ratio Decisions</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-social-scanning-shorthand-efficient-profile-hunting-on-fb-for-2024/"><u>[New] Social Scanning Shorthand Efficient Profile Hunting on FB for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-how-to-add-music-to-facebook-story/"><u>[Updated] 2024 Approved How to Add Music to Facebook Story?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-optimize-your-video-consumption-the-guide-to-auto-play-youtube-on-facebook/"><u>[Updated] 2024 Approved Optimize Your Video Consumption The Guide to Auto-Play Youtube on Facebook</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-jumpstart-your-career-with-a-killer-youtube-gaming-channel/"><u>[Updated] In 2024, Jumpstart Your Career with a Killer YouTube Gaming Channel</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-precision-content-marketing-for-soaring-social-media-ranks/"><u>[Updated] In 2024, Precision Content Marketing for Soaring Social Media Ranks</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-unleash-potential-effective-desktop-sharing-on-livestreaming-platforms/"><u>[Updated] Unleash Potential Effective Desktop Sharing on Livestreaming Platforms</u></a></li>
-<li><a href="https://driver-error.techidaily.com/ensured-n-adapter-functionality-in-windows-broadcoms-fix/"><u>Ensured N Adapter Functionality in Windows - Broadcom's Fix</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/free-online-conversion-from-mp3-to-aiff-by-movavi/"><u>Free Online Conversion From MP3 to AIFF by Movavi</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/o-convert-youtube-to-igtv-videos-3-ways-for-2024/"><u>How to Convert YouTube to IGTV Videos? [3 Ways] for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-motorola-edge-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Motorola Edge 2023 | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Lava Yuva 3 | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/navigating-windows-subsystem-for-linux-with-win-11/"><u>Navigating Windows Subsystem for Linux with Win 11</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/revolutionize-social-sagas-no-cost-for-online-and-mobile-excellence/"><u>Revolutionize Social Sagas – No Cost for Online & Mobile Excellence</u></a></li>
-<li><a href="https://data-recovery.techidaily.com/windatarestoration-kit/"><u>WinDataRestoration Kit</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-first-footage-assessment-breakdown/"><u>[New] 2024 Approved First Footage Assessment Breakdown</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-the-ultimate-guide-to-aspect-ratios-on-fb-videos/"><u>[New] 2024 Approved The Ultimate Guide to Aspect Ratios on FB Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-fb-story-downloads-decoded-a-quick-and-convenient-guide-for-all-users-for-2024/"><u>[New] FB Story Downloads Decoded A Quick & Convenient Guide for All Users for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-upload-video-to-facebook-from-pc-and-android-for-2024/"><u>[New] How to Upload Video to Facebook From PC and Android for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-comprehensive-handbook-for-recording-calls/"><u>[New] In 2024, The Comprehensive Handbook for Recording Calls</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-leading-5-facebook-updates-to-note-this-year/"><u>[New] In 2024, The Leading 5 Facebook Updates to Note This Year</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-navigating-the-netizens-realm-youtube-videos-fb/"><u>[New] Navigating the Netizen's Realm YouTube Videos FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-rock-your-facebook-profile-add-pin-play-and-manage-music-iphone-and-android-for-2024/"><u>[New] Rock Your Facebook Profile Add, Pin, Play, & Manage Music (iPhone & Android) for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-5-strategies-for-storing-mov-on-windows-10/"><u>[Updated] 5 Strategies for Storing .mov on Windows 10</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-become-a-social-butterfly-engage-in-fb-live-on-your-roku-box-for-2024/"><u>[Updated] Become a Social Butterfly Engage in FB Live on Your Roku Box for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-how-to-add-music-to-facebook-profile-iphone-and-android-for-2024/"><u>[Updated] How to Add Music to Facebook Profile (iPhone & Android)？ for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-top-10-essentials-in-livestreaming-platform-selection/"><u>[Updated] In 2024, Top 10 Essentials in Livestreaming Platform Selection</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-sizzling-shots-capturing-culinary-magic/"><u>2024 Approved Sizzling Shots Capturing Culinary Magic</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-motorola-edgeplus-2023-by-fonelab-android-recover-messages/"><u>How To Restore Missing Messages Files from Motorola Edge+ (2023)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-launching-your-sports-network-from-a-mac-desktop/"><u>In 2024, Launching Your Sports Network From a Mac Desktop</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-why-apple-account-disabled-on-your-iphone-6s-how-to-fix-by-drfone-ios/"><u>In 2024, Why Apple Account Disabled On your iPhone 6s? How to Fix</u></a></li>
+<li><a href="https://win-answers.techidaily.com/unveiling-the-mystery-why-hasnt-mafia-definitive-edition-arrived-yet/"><u>Unveiling the Mystery: Why Hasn’t Mafia: Definitive Edition Arrived Yet?</u></a></li>
 </ul></div>
 
