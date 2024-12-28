@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  IPhone & Android Unite for Music on Your FB Profile\""
-date: 2024-12-19T22:26:47.431Z
-updated: 2024-12-22T19:49:51.846Z
+date: 2024-12-22T16:11:49.803Z
+updated: 2024-12-28T18:20:15.733Z
 tags:
   - ai video
   - ai facebook
@@ -45,6 +45,10 @@ _You may also like: [How to add music to Facebook Story](https://tools.techidail
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Music to Facebook Profile on iPhone and Android?
 
 Here’s something you should be aware of before learning **how to** **add a song to** your **Facebook profile.** This function is only available for Android, iPad, and iPhone Facebook applications. This means that you can’t add music to your Facebook profile on the web Facebook account. Instead, there are just a few simple steps that you need to follow to get started.
@@ -61,23 +65,11 @@ Here’s something you should be aware of before learning **how to** **add a son
 
 ![add Music  to Facebook Profile](https://images.wondershare.com/filmora/article-images/add-music-to-facebook-profile.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -96,6 +88,10 @@ Here’s something you should be aware of before learning **how to** **add a son
 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Pin Music and Songs to Facebook Profile?
 
 There’s another feature that Facebook allows you to use, and that’s pinning songs. When you pin a song, it will be added to your profile. You can pin one song at a time, though. To do that, follow the steps below:
@@ -106,19 +102,15 @@ There’s another feature that Facebook allows you to use, and that’s pinning 
 
 ![Facebook Profile Music Option](https://images.wondershare.com/filmora/article-images/facebook-profile-music-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Now, click on the Music option. Each song will have three dots; click on that, and then you will see the option Pin to Profile. Click on that, and the song will be pinned to your profile.
 
 ![Pin music on Facebook Profile](https://images.wondershare.com/filmora/article-images/pin-music-on-facebook-profile.jpg)
 
-To check whether the song is pinned to your profile or not, visit your Facebook profile, and you will see it right below your profile picture.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+To check whether the song is pinned to your profile or not, visit your Facebook profile, and you will see it right below your profile picture.
 
 ## Part 3: How to Play and Listen Songs You Have Added to Facebook Profile?
 
@@ -133,7 +125,7 @@ By adding fresh songs to your profile, you will make your profile look and sound
 ![Facebook Profile Music History](https://images.wondershare.com/filmora/article-images/facebook-profile-music-history-list.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Remove Unwanted Music from Facebook Profile?
@@ -147,6 +139,10 @@ Just like you can add songs to your profile, you can easily remove them as well.
 **Step 3:** From the options, you need to click on the deleted song from the profile option. By doing this, the song will be permanently removed from your profile.
 
 ![delete Facebook Profile Music](https://images.wondershare.com/filmora/article-images/delete-music-track-from-facebook-profile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can remove one song or multiple of them.
 
@@ -163,6 +159,10 @@ If you are someone who likes to express yourself through music, then Facebook ca
 **Step 4:** Click on the + icon that you see on the top right, and the music search window will appear. You can search for the songs you like to add to your profile here.
 
 ![Facebook Profile Music feature](https://images.wondershare.com/filmora/article-images/facebook-profile-music-feature.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 And that’s how the Music feature works on Facebook.
 
@@ -181,7 +181,7 @@ Now that you have learned **how to add a song to your Facebook profile** try it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -199,19 +199,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-unlocking-flawless-youtube-twitplay/"><u>[New] 2024 Approved Unlocking Flawless YouTube Twitplay</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-ultimate-affordable-game-controllers-under-100/"><u>[New] In 2024, Ultimate Affordable Game Controllers Under $100</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-gear-up-for-glory-your-top-5-pick-of-racing-titles/"><u>[Updated] 2024 Approved Gear Up for Glory Your Top 5 Pick of Racing Titles</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-social-sharing-simplified-uploading-immersive-mobile-photography/"><u>[Updated] 2024 Approved Social Sharing Simplified Uploading Immersive Mobile Photography</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-achieve-social-stardom-the-ultimate-list-for-fb-fan-increase/"><u>[Updated] Achieve Social Stardom The Ultimate List for FB Fan Increase</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-enhancing-click-through-rates-with-three-distinct-writing-models-for-ads/"><u>[Updated] Enhancing Click-Through Rates with Three Distinct Writing Models for Ads</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-revolutionizing-tv-broadcasts-with-fb-live-streaming-for-2024/"><u>[Updated] Revolutionizing TV Broadcasts with FB Live Streaming for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/tecting-authoritative-adjuncts/"><u>Architecting Authoritative Adjuncts</u></a></li>
-<li><a href="https://win11.techidaily.com/corrective-guide-to-browser-paste-issues-on-windows/"><u>Corrective Guide to Browser Paste Issues on Windows</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-accelerate-your-file-changing-game-srt-to-txt-in-a-flash/"><u>In 2024, Accelerate Your File Changing Game SRT to TXT in a Flash</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On ZTE Blade A73 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-visual-perfection-in-videos-implementing-black-bar-and-box-on-fb/"><u>In 2024, Visual Perfection in Videos Implementing Black Bar & Box on FB</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/movie-making-demystified-a-simple-step-by-step-approach/"><u>Movie Making Demystified A Simple, Step-by-Step Approach</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-of-mobvoi-ticwatch-pro-4g-your-go-to-connectivity-companion/"><u>Unveiling the Features of Mobvoi Ticwatch Pro 4G: Your Go-To Connectivity Companion</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-direct-engagement-sharing-your-twitch-content-on-facebook/"><u>[New] 2024 Approved Direct Engagement Sharing Your Twitch Content on Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-full-screen-mode-enhancing-fb-videos/"><u>[New] Full-Screen Mode Enhancing Fb Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ersonal-creation-goals-selecting-between-tiktok-and-youtube-shorts/"><u>[New] Personal Creation Goals Selecting Between TikTok and YouTube Shorts</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-pixicapture-studio-winos-series/"><u>[New] PixiCapture Studio WinOS Series</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unlock-pristine-facebook-videos-on-chromebooks-for-2024/"><u>[New] Unlock Pristine Facebook Videos on Chromebooks for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-enhancing-fb-video-clarity-to-1080p-standard-for-2024/"><u>[Updated] Enhancing FB Video Clarity to 1080P Standard for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-cut-to-the-chase-top-5-chrome-plugins-for-snagging-facebook-videos-fast/"><u>[Updated] In 2024, Cut to the Chase Top 5 Chrome Plugins for Snagging Facebook Videos Fast</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-exploring-facebooks-2023-video-revolution-the-rise-of-compact-clips/"><u>[Updated] In 2024, Exploring Facebook's 2023 Video Revolution The Rise of Compact Clips</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-mcb-channel-theme-images-and-templates/"><u>2024 Approved MCB Channel Theme Images and Templates</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-zte-nubia-z60-ultrawithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on ZTE Nubia Z60 Ultrawith/without a PC</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-correctly-fix-a-missing-normalizdll-in-your-system/"><u>How to Correctly Fix a Missing Normaliz.dll in Your System</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-vivo-y78plus-t1-edition-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Vivo Y78+ (T1) Edition for Streaming | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-realme-narzo-60x-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Realme Narzo 60x 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-unravel-the-mysteries-of-efficient-story-connectivity/"><u>In 2024, Unravel the Mysteries of Efficient Story Connectivity</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/is-it-necessary-to-enhance-your-security-with-extra-virus-scanners-above-windows-defender-expert-advice-by-yl-computing/"><u>Is It Necessary to Enhance Your Security with Extra Virus Scanners Above Windows Defender - Expert Advice by YL Computing</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solution-guide-why-is-my-corsair-headset-malfunctioning/"><u>Solution Guide: Why Is My Corsair Headset Malfunctioning?</u></a></li>
 </ul></div>
 
