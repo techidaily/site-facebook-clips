@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Optimizing Visual Content  Adding Black Bar & Box to Facebook Videos\""
-date: 2024-12-26T19:10:23.246Z
-updated: 2024-12-28T16:18:41.933Z
+date: 2025-01-05T08:07:10.390Z
+updated: 2025-01-07T03:12:48.513Z
 tags:
   - ai video
   - ai facebook
@@ -45,10 +45,6 @@ This method is suitable for users whose source videos are not in square format (
 
 ![start-filmora9](https://images.wondershare.com/filmora/article-images/start-filmora9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 2\. Go to **File**\-**Import Media** and import the source file to the Media library (let’s say it’s 1920\*1080 at 16:9)
 
 ![import-sample-video](https://images.wondershare.com/filmora/article-images/import-sample-video.jpg)
@@ -61,9 +57,17 @@ This method is suitable for users whose source videos are not in square format (
 
 ![add-letterbox-title](https://images.wondershare.com/filmora/article-images/add-letterbox-title.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 And you can also go to the **Elements** tab, and add some creative elements such as emoji to the letterbox.
 
 ![add-emoji-elements](https://images.wondershare.com/filmora/article-images/add-emoji-elements.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 5\. Export the square video to local computer in mp4 or other supported formats
 
@@ -72,10 +76,6 @@ And you can also go to the **Elements** tab, and add some creative elements such
 * 6\. Upload the exported square video to Facebook, and show how it looks like on Facebook.
 
 ![post-on-facebook](https://images.wondershare.com/filmora/article-images/post-on-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2: Create a Letterbox by Adding Text Shapes
 
@@ -89,41 +89,45 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![no-letterbox](https://images.wondershare.com/filmora/article-images/no-letterbox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 3\. To create a letterbox, choose the option **Titles**. Now you will be shown a variety of subtitles and credit styles
 * 4\. Select **Subtitles**, then add a subtitle style that has a black background to your video, such as Subtitle 1,2,3, etc.
 
 ![add-doll-subtitle](https://images.wondershare.com/filmora/article-images/add-doll-subtitle.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 5\. You will see that the subtitle appears on the video in real time. Here you can adjust the width and height of the subtitle. Make it so that that black bar covers the lower end of the video completely and delete the text
 
 ![custom-letterbox](https://images.wondershare.com/filmora/article-images/custom-letterbox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 6\. Drag and drop the subtitle again from the Titles-Subtitles option. This time for the top section of the video
 
 ![add-subtitle-again](https://images.wondershare.com/filmora/article-images/add-subtitle-again.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 7\. You can input your own texts in the box or delete the text as you want, and you will be left with a video that has black bars on the top and bottom
 
 ![get-both-letterbox](https://images.wondershare.com/filmora/article-images/get-both-letterbox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 8\. Export the video to your computer or phone in mp4, then upload it to Facebook, and finally, you will see the magic!
 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## To Sum up
@@ -131,10 +135,6 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 Adding a letterbox, then designing your own texts, elements and filters will bring great creativity to your video on Facebook. Creativity will connect people and you will create your own magic! Filmora now offers 2 effective ways to add a letterbox to any videos and a variety of attractive filters, overlays, and elements. This is why we recommend you all to try and use Filmora for all your editing needs. Here you go!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
@@ -153,16 +153,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-maximizing-hd-quality-fb-live-broadcast-tips/"><u>[Updated] 2024 Approved Maximizing HD Quality FB Live Broadcast Tips</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-mirth-in-monotony-best-humored-fb-jail-cell-captures/"><u>[Updated] 2024 Approved Mirth in Monotony Best-Humored Fb Jail Cell Captures</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-delve-into-all-shared-visuals-within-a-chat-on-messenger/"><u>[Updated] Delve Into All Shared Visuals Within a Chat on Messenger</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-from-content-maker-to-cash-magnet-youtubes-guide-to-ad-revenue-for-2024/"><u>[Updated] From Content Maker to Cash Magnet Youtube's Guide to Ad Revenue for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-navigate-past-edgenuity-stealthy-study-strategies/"><u>[Updated] Navigate Past Edgenuity Stealthy Study Strategies</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/discover-the-best-8-windows-10-photos-alternatives/"><u>Discover the Best 8 Windows 10 Photos Alternatives</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/five-leading-e-learning-platforms-to-excel-in-artificial-intelligence-ai-prompt-design/"><u>Five Leading E-Learning Platforms to Excel in Artificial Intelligence (AI) Prompt Design</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-top-youtube-trends-a-curated-selection/"><u>In 2024, Top YouTube Trends A Curated Selection</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-asus-rog-phone-7-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Asus ROG Phone 7? Fixed | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/simple-guide-to-capturing-screenshots-and-recording-audio-using-a-microphone-on-windows-8/"><u>Simple Guide to Capturing Screenshots and Recording Audio Using a Microphone on Windows 8</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/spark-social-media-flames-facebook-success-hacks-for-2024/"><u>Spark Social Media Flames Facebook Success Hacks for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-a-marketer-writes-guide-to-utilizing-hashtags-effectively-on-facebook/"><u>[New] 2024 Approved A Marketer' Writes Guide to Utilizing Hashtags Effectively on Facebook</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/iscover-the-10-yt-channels-with-swift-ascendancy-and-intellect/"><u>[New] Discover the 10 YT Channels with Swift Ascendancy and Intellect</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-becoming-an-expert-in-video-capturing-streamlabs-obs-guide/"><u>[New] In 2024, Becoming an Expert in Video Capturing Streamlabs OBS Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-step-into-the-archive-old-stories-on-facebook/"><u>[New] Step Into the Archive Old Stories on Facebook</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-the-ultimate-checklist-for-webinar-video-documentation-for-2024/"><u>[New] The Ultimate Checklist for Webinar Video Documentation for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-from-virtual-anonymity-to-facebook-fame-how-to-expand-your-audience/"><u>[Updated] 2024 Approved From Virtual Anonymity to Facebook Fame How to Expand Your Audience</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unseen-wealth-the-underground-auction-of-elusive-artifacts-2023-edition/"><u>[Updated] 2024 Approved Unseen Wealth The Underground Auction of Elusive Artifacts, 2023 Edition</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-xiaomi-redmi-k70e-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Xiaomi Redmi K70E to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-virtual-venue-video-verifier/"><u>In 2024, Virtual Venue Video Verifier</u></a></li>
+<li><a href="https://article-tips.techidaily.com/premium-audio-playwright-craftsmanship-for-2024/"><u>Premium Audio Playwright Craftsmanship for 2024</u></a></li>
+<li><a href="https://fox-place.techidaily.com/resolve-your-iphones-activation-troubles-after-latest-ios-versions/"><u>Resolve Your iPhone's Activation Troubles After Latest iOS Versions</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/step-by-step-guide-printing-targeted-data-selections-from-your-excel-workbook/"><u>Step-by-Step Guide: Printing Targeted Data Selections From Your Excel Workbook</u></a></li>
+<li><a href="https://win-dash.techidaily.com/streamline-your-media-library-mastering-the-art-of-youtube-to-mp44k-downloads-with-leading-online-and-desktop-converters/"><u>Streamline Your Media Library: Mastering the Art of YouTube to MP4/4K Downloads with Leading Online and Desktop Converters</u></a></li>
 </ul></div>
 

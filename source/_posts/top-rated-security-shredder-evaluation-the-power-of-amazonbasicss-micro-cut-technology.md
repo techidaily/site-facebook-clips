@@ -1,7 +1,7 @@
 ---
 title: "Top Rated Security Shredder Evaluation: The Power of AmazonBasics's Micro-Cut Technology"
-date: 2024-12-22T17:44:34.476Z
-updated: 2024-12-28T17:41:33.383Z
+date: 2025-01-05T17:51:12.067Z
+updated: 2025-01-06T16:52:34.697Z
 categories:
   - BestProducts
 description: "This Article Describes Top Rated Security Shredder Evaluation: The Power of AmazonBasics's Micro-Cut Technology"
@@ -13,13 +13,13 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/GshnCnk_G-hNSwDTRjGVB28Nl-o=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -71,7 +71,7 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Pretty awkward**
@@ -81,6 +81,10 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
  With very large sides, the front is really just a small panel with light-up LED indicators showing connectivity details and which Ethernet ports are in use. There’s also a small WPS button beneath the LED panel for easy connectivity with a router. On the wider back panel are the four wired[Ethernet ports](https://www.lifewire.com/what-is-an-ethernet-port-817546) for plugging in devices such as game consoles and computers, as well as a USB 3.0 port, DC power port, and the power button itself.
 
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Avoid the app**
 
@@ -94,7 +98,15 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Connectivity: Smooth sailing**
 
@@ -112,10 +124,6 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -123,10 +131,6 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
  It’s billed as an “8-stream” device, so it should be able to handle several simultaneous media streams at once, with a billed max speed of 4.8Gbps on the 5GHz band and 1.2Gbps on the 2.4GHz band. It has[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) (multiple users, multi-in multi-out) and beamforming capabilities, promising expanded range of up to 2,500 square feet and support for 30+ simultaneous devices.
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: More than most**
 
@@ -143,10 +147,6 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
  **Only for early adopters with Wi-Fi 6 routers and devices.**
 
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -174,15 +174,18 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-clickable-content-climber-software/"><u>[New] 2024 Approved Clickable Content Climber Software</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-elevating-social-influence-top-techniques-for-facebook-seo-excellence-for-2024/"><u>[New] Elevating Social Influence Top Techniques for Facebook SEO Excellence for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-enhancing-your-facebook-experience-mastering-story-uploads-for-2024/"><u>[New] Enhancing Your Facebook Experience Mastering Story Uploads for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-how-to-make-your-facebook-video-stand-out/"><u>[New] In 2024, How to Make Your Facebook Video Stand Out</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-top-5-tools-to-transform-your-instant-feeds-into-videos/"><u>[New] In 2024, Top 5 Tools to Transform Your Instant Feeds Into Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-thumbnail-tailoring-for-youtube-a-practical-guide-to-image-resizing-and-customization/"><u>[Updated] In 2024, Thumbnail Tailoring for YouTube A Practical Guide to Image Resizing and Customization</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-oppo-reno-8t-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Oppo Reno 8T Phone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-for-security-reasons-on-iphone-14-pro-find-the-best-solution-here-by-drfone-ios/"><u>In 2024, Apple ID Locked for Security Reasons On iPhone 14 Pro? Find the Best Solution Here</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-infinix-note-30-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Infinix Note 30 Screen | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/seamlessly-shift-songs-from-your-ipad-to-your-mac-on-macos-sierra/"><u>Seamlessly Shift Songs From Your iPad to Your Mac on macOS Sierra</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-30fps-versus-60fps-best-choice-for-clear-video-capture-for-2024/"><u>[New] 30Fps versus 60Fps - Best Choice for Clear Video Capture for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-maximize-your-marketing-metrics-top-8-apps-for-facebook-like-boost-for-2024/"><u>[New] Maximize Your Marketing Metrics Top 8 Apps for Facebook Like Boost for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-online-obsession-the-8-must-watch-titles/"><u>[New] Online Obsession The 8 Must-Watch Titles</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-video-framing-technique-adding-bb-and-letterbox-overlays-to-fb/"><u>[Updated] 2024 Approved Video Framing Technique Adding BB and Letterbox Overlays to FB</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-innovative-screen-capture-tools-review-top-10-free-selections-for-2024/"><u>[Updated] Innovative Screen Capture Tools Review Top 10 Free Selections for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-sharex-examined-evaluations-and-alternatives-for-2024/"><u>[Updated] ShareX Examined Evaluations & Alternatives for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-simplified-storytelling-methodology/"><u>2024 Approved Simplified Storytelling Methodology</u></a></li>
+<li><a href="https://win-blog.techidaily.com/experience-the-latest-enhancements-in-icloud-windows-app-version/"><u>Experience the Latest Enhancements in iCloud Windows App Version</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-poco-f5-5g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Poco F5 5G to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-from-adventure-to-audience-transforming-gopro-footage-with-social-media/"><u>In 2024, From Adventure to Audience Transforming Gopro Footage with Social Media</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-honor-magic-5-pro-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Honor Magic 5 Pro</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/mastering-audio-editing-again-bypass-audacitys-sound-device-hurdles-with-these-5-tips/"><u>Mastering Audio Editing Again: Bypass Audacity’s Sound Device Hurdles with These 5 Tips</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unlock-peaceful-meal-times-for-your-pet-using-arf-pets-advanced-feeder-technology/"><u>Unlock Peaceful Meal Times for Your Pet Using Arf Pets Advanced Feeder Technology</u></a></li>
 </ul></div>
 

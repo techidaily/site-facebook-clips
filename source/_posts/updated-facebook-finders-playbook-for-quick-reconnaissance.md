@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Facebook Finder’s Playbook for Quick Reconnaissance"
-date: 2024-12-16T20:28:03.695Z
-updated: 2024-12-22T21:10:16.426Z
+date: 2025-01-03T07:07:19.271Z
+updated: 2025-01-07T07:20:31.519Z
 tags:
   - ai video
   - ai facebook
@@ -34,7 +34,15 @@ Here are two ways to search people on Facebook. The second option also helps you
 * [**Part 1: How to search people on Facebook**](#part1)
 * [**Part 2: How to search people using Search Is Back**](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to search people on Facebook
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 1: Log in to Facebook
 
@@ -45,10 +53,6 @@ Open Facebook on your computer – Firstly, open a web browser and get to the Fa
 On the header tool icons, click on your name and you are directed to your Facebook wall or timeline. Just below your cover image, click the friend’s tab, to reach the Friends page that shows all your friends on Facebook.
 
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 3: Friends Finder Page
 
@@ -65,7 +69,7 @@ On the top right of old friends search, you can find the “search for your frie
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to search people using Search Is Back
@@ -77,16 +81,12 @@ On a browser open the [Search is Back site](https://searchisback.com/). You can 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Input your Interest
 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Add People as Friends
 
@@ -95,7 +95,7 @@ Once you have filled in all the filters in the page, you can hit Find People but
 ![search is back facebook](https://images.wondershare.com/filmora/article-images/search-is-back-interest.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note**: If there are no results on the redirected Facebook page, you must get back to the Search is Back page and change your search filters to start a new round of search.
@@ -115,7 +115,7 @@ If you want to make Facebook videos, try to use [Filmora](https://tools.techidai
 [](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -135,19 +135,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-100plus-best-examples-and-tips-to-craft-your-facebook-bios/"><u>[New] 2024 Approved 100+ Best Examples & Tips to Craft Your Facebook Bios</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-uncovering-the-most-recent-facebook-changes/"><u>[New] 2024 Approved Uncovering the Most Recent Facebook Changes</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/voiding-common-pitfalls-in-youtube-sponsorships-according-to-famebit-for-2024/"><u>[New] Avoiding Common Pitfalls in YouTube Sponsorships, According to FameBit for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-launchpad-to-digital-society-the-essentials-of-facebook-account-creation-for-2024/"><u>[New] Launchpad to Digital Society The Essentials of Facebook Account Creation for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ne-youtube-feed-how-to-merge-multiple-videos-for-2024/"><u>[New] One YouTube Feed How to Merge Multiple Videos for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/covert-communication-within-virtual-circles/"><u>Covert Communication Within Virtual Circles</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/foremost-companies-pioneering-vr-technology-for-2024/"><u>Foremost Companies Pioneering VR Technology for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-overcome-device-lockup-in-win11s-sleep/"><u>How to Overcome Device Lockup in Win11's Sleep?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Motorola Moto G23 | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-iphone-14-pro-max-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock on iPhone 14 Pro Max or iPad?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-joining-the-social-tv-revolution-fb-live-and-roku-interactions/"><u>In 2024, Joining the Social TV Revolution FB Live & Roku Interactions</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-video-perfection-crafting-squares-for-facebook-popularity/"><u>In 2024, Video Perfection Crafting Squares for Facebook Popularity</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/simplifying-the-process-of-mp3-download-from-pinterest-for-2024/"><u>Simplifying the Process of MP3 Download From Pinterest for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/the-art-of-spinning-photos-iphone-videography-tips/"><u>The Art of Spinning Photos IPhone Videography Tips</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-cutting-edge-video-sharing-from-facebook-to-whatsapp/"><u>[New] Cutting-Edge Video Sharing From Facebook to WhatsApp</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-explore-costless-methods-for-superior-photo-quality/"><u>[Updated] In 2024, Explore Costless Methods for Superior Photo Quality</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-stop-in-app-video-buffering-issues-for-2024/"><u>[Updated] Stop In-App Video Buffering Issues for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-maximize-communication-video-conferencing-tips-for-android/"><u>2024 Approved Maximize Communication Video Conferencing Tips for Android</u></a></li>
+<li><a href="https://techtrends.techidaily.com/final-cut-pro-on-ipad-elevates-filmmaking-with-groundbreaking-features-a-must-read-review-by-zdnet/"><u>Final Cut Pro on iPad Elevates Filmmaking with Groundbreaking Features - A Must-Read Review by ZDNet!</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-samsung-galaxy-s24plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Samsung Galaxy S24+ | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-15-pro-with-a-mask-on-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 15 Pro with a Mask On | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-vivo-y36-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Vivo Y36 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-strategy-behind-automatic-youtube-playback-on-fb-for-2024/"><u>The Strategy Behind Automatic YouTube Playback on FB for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/top-10-viral-music-videos-on-social-media-for-2024/"><u>Top 10 Viral Music Videos on Social Media for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/understanding-facebook-messengers-signaling-with-a-blue-splash/"><u>Understanding Facebook Messenger's Signaling With a Blue Splash</u></a></li>
 </ul></div>
 

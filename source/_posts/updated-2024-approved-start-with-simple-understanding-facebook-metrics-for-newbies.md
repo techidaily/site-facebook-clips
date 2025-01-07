@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Start with Simple  Understanding Facebook Metrics for Newbies\""
-date: 2024-12-16T22:25:09.487Z
-updated: 2024-12-23T04:16:27.928Z
+date: 2024-12-31T10:18:50.026Z
+updated: 2025-01-06T20:09:40.787Z
 tags:
   - ai video
   - ai facebook
@@ -41,27 +41,27 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Where to Find Facebook Insights
 
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
 
  By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
 
-## Part 3: How to Use Facebook Insights for Beginners
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## Part 3: How to Use Facebook Insights for Beginners
 
 ### 1\. Overview
 
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
 
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Page Likes
 
@@ -86,12 +86,16 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Video Analytics
 
@@ -105,10 +109,6 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. People Analytics
 
  Under the People tab, you get to understand the metrics of like and views of people on your posts. It is further divided into 3 sections.
@@ -121,10 +121,6 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
  Measuring the success of your Facebook page and posts is now easy with Facebook Insights. Keep a track of your posts and preferences of your audiences and run the campaigns successfully. Follow the above points to use the Facebook Insights without any confusion.
@@ -132,10 +128,14 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -152,21 +152,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-from-silent-screens-to-captivating-media-instantly-create-captions-on-fb-for-2024/"><u>[New] From Silent Screens to Captivating Media Instantly Create Captions on FB for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-8-best-facebook-scheduler-to-improve-efficiency/"><u>[New] In 2024, 8 Best Facebook Scheduler to Improve Efficiency</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-enhancing-remote-communication-with-effective-skype-screen-sharing/"><u>[New] In 2024, Enhancing Remote Communication with Effective Skype Screen Sharing</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-novel-vlog-talk-points-everyday/"><u>[New] In 2024, Novel Vlog Talk Points Everyday</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-essential-guide-for-gopro-live-streams-to-social-media-hubs/"><u>[New] In 2024, The Essential Guide for GoPro Live Streams to Social Media Hubs</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-quick-and-easy-the-5-best-tools-for-facebook-live-videos/"><u>[New] Quick & Easy The 5 Best Tools for Facebook Live Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-navigating-social-feeds-with-panoramic-content-a-guide-for-iosandroid-users-for-2024/"><u>[Updated] Navigating Social Feeds with Panoramic Content A Guide for iOS/Android Users for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/how-to-easily-secure-your-amd-ryzen-driver-updates/"><u>How to Easily Secure Your AMD Ryzen Driver Updates</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-itel-a60-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Itel A60 to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-about-vivo-y17s-frp-bypass-by-drfone-android/"><u>In 2024, About Vivo Y17s FRP Bypass</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-apple-iphone-13-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Apple iPhone 13 iCloud Activation Lock Bypass</u></a></li>
-<li><a href="https://driver-install.techidaily.com/rapid-reinstallation-of-bluetooth-drivers-in-win-1011/"><u>Rapid Reinstallation of Bluetooth Drivers in Win 10/11</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/simple-guide-re-calibrating-your-iphone-battery-with-just-six-steps/"><u>Simple Guide: Re-Calibrating Your iPhone Battery with Just Six Steps</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/streamlining-content-acquisition-5-ways-to-download-igtv-on-windows-and-macos/"><u>Streamlining Content Acquisition 5 Ways to Download IGTV on Windows & MacOS</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/understanding-the-social-tv-landscape-rokus-role-for-2024/"><u>Understanding the Social TV Landscape Roku's Role for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unlocking-the-power-of-gpt-for-effective-office-dialogues/"><u>Unlocking the Power of GPT for Effective Office Dialogues</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-discover-innovative-strategies-in-creating-stunning-fb-ad-videos/"><u>[New] 2024 Approved Discover Innovative Strategies in Creating Stunning FB Ad Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-ultimate-oculus-rift-game-hits-of-the-season/"><u>[New] 2024 Approved Ultimate Oculus Rift Game Hits of the Season</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-avoid-facebook-video-ad-interruptions/"><u>[New] Avoid Facebook Video Ad Interruptions</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-choosing-streaming-giants-vimeo-youtube-or-dailymotion/"><u>[Updated] 2024 Approved Choosing Streaming Giants Vimeo, YouTube, or DailyMotion?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-strategic-locations-to-upgrade-youtube-content/"><u>[Updated] 2024 Approved Strategic Locations to Upgrade YouTube Content</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-boost-your-business-through-smart-monetization-techniques/"><u>[Updated] Boost Your Business Through Smart Monetization Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-scale-up-achieving-extended-facebook-coverage-for-2024/"><u>[Updated] Scale Up Achieving Extended Facebook Coverage for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-leading-tools-seamless-youtube-to-twitter-transfers/"><u>2024 Approved Leading Tools Seamless YouTube-to-Twitter Transfers</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-efficiently-manage-wi-fi-settings-on-windows-11/"><u>How to Efficiently Manage Wi-Fi Settings on Windows 11</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-the-ultimate-guide-to-photo-and-video-collage-software/"><u>New In 2024, The Ultimate Guide to Photo and Video Collage Software</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Tecno Pova 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-dolby-atmos-for-optimal-sound-experience-on-windows-systems/"><u>Troubleshooting Dolby Atmos for Optimal Sound Experience on Windows Systems</u></a></li>
 </ul></div>
 
