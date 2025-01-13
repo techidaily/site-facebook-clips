@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Decoding Faux Support  A Guide for Savvy Social Network Users for 2024\""
-date: 2025-01-05T00:50:27.514Z
-updated: 2025-01-06T20:10:02.056Z
+date: 2025-01-12T18:37:26.467Z
+updated: 2025-01-13T16:58:11.052Z
 tags:
   - ai video
   - ai facebook
@@ -32,10 +32,6 @@ If you want to edit FB video, [Filmora Business](https://tools.techidaily.com/wo
 * [**Part1: What are Fake Facebook followers**](#part1)
 * [**Part2: How to spot fake followers on Facebook for Influencer quickly**](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What are Fake Facebook followers?
 
 Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
@@ -44,13 +40,13 @@ No doubt, the Facebook page gains more likes through them, but not effective in 
 
 Businesses dealing with fake followers have staff to maintain these accounts to pass as regular accounts which is a big issue. Influencers often involve through engagement pods on each others’ content and get high ranks for the feeds by fooling the social algorithms. If you access these influencers as a brand in terms of quality, they have nothing substantial to offer you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to spot fake followers on Facebook for Influencer quickly
 
 Let us now explore the tips and tricks to spot the fake followers on Facebook. We hope you get all the essential nitty-gritties for the purpose after reading this section.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 1: Inspect comment
 
@@ -59,7 +55,7 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 2: Calculate Engagement rate
@@ -67,10 +63,6 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 [Engagement rate](https://trackmaven.com/marketing-dictionary/engagement-rate/) is nothing but the average number of engagements received by influencer for each post divided by number of followers. When an influencer has below 1% engagement, it implies involvement of few fake followers in certain amount. So, it is prevalent to track the numbers and do the calculation, so that there is no chance of fake followers on Facebook that can ruin your business.
 
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 3: Check tendency chart
 
@@ -80,15 +72,15 @@ Fake followers on Facebook can be detected if all of a sudden follower count inc
 
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 5: Use third party tools
 
 You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for influencers. The most credible features of this tool are ‘influencer contract generator’, ‘product trials’, and ‘collaborations’. This tool helps you work with brands, contact influencers, measure engagement, and create contracts. Using the right tool will enhance your followers on Facebook for influencer and bring a new dimension for your business.
 
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -98,7 +90,15 @@ Knowing these aspects, you will be able to protect your brand page and garner ge
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -115,15 +115,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-mastering-facebook-cover-videos-essential-insights/"><u>[New] Mastering Facebook Cover Videos Essential Insights</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-mastering-social-media-video-for-superior-fb-outcomes/"><u>[Updated] In 2024, Mastering Social Media Video for Superior FB Outcomes</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-from-basics-to-best-achieving-superior-sound-via-zoom-for-podcasting/"><u>2024 Approved From Basics to Best Achieving Superior Sound via Zoom for Podcasting</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/experts-pathway-navigating-fullscreen-realms-in-premiere-pro-for-2024/"><u>Expert's Pathway Navigating Fullscreen Realms in Premiere Pro for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/free-download-latest-updates-for-pl2303-drivers-on-windows/"><u>Free Download: Latest Updates for PL2303 Drivers on Windows</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-motorola-edge-40-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Motorola Edge 40 without App | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-direct-connection-navigating-desktop-display-integration-on-facebook/"><u>In 2024, Direct Connection Navigating Desktop Display Integration on Facebook</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-samsung-galaxy-a24-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Samsung Galaxy A24</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/innovative-video-sharing-best-practices-for-live-monitor-display-for-2024/"><u>Innovative Video Sharing Best Practices for Live Monitor Display for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-techniques-for-stabilizing-shaky-and-flashing-screens-on-surface-devices/"><u>Troubleshooting Techniques for Stabilizing Shaky & Flashing Screens on Surface Devices</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-efficient-facebook-video-upload-on-computer-and-mobile-systems/"><u>[New] 2024 Approved Efficient Facebook Video Upload on Computer & Mobile Systems</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-infusing-instant-storytelling-with-musical-essence/"><u>[New] In 2024, Infusing Instant Storytelling With Musical Essence</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-satiresnapshots-jokeframe-world/"><u>[New] SatireSnapshots JokeFrame World</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unveiling-new-perspectives-streaming-aerial-content-on-facebook/"><u>[New] Unveiling New Perspectives Streaming Aerial Content on Facebook</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-confirmation-procedures-for-youtube-users/"><u>[Updated] 2024 Approved Confirmation Procedures for YouTube Users</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unveil-the-best-free-backdrop-and-footage-sources-top-8-online-lists/"><u>[Updated] Unveil the Best Free Backdrop & Footage Sources Top 8 Online Lists</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/advantages-and-disadvantages-exploring-the-efficiency-of-webex-as-an-online-meeting-solution/"><u>Advantages & Disadvantages: Exploring the Efficiency of Webex as an Online Meeting Solution</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/full-spectrum-kinetic-assessment-for-2024/"><u>Full Spectrum Kinetic Assessment for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-gionee-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Gionee PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-from-amateurs-to-experts-a-complete-guide-to-instagram-covers/"><u>In 2024, From Amateurs to Experts A Complete Guide to Instagram Covers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-monetization-blueprint-for-your-youtube-ventures-on-fb-for-2024/"><u>The Monetization Blueprint for Your YouTube Ventures on FB for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/top-solutions-overcome-bg-stutters-and-crashes-with-these-6-essential-fixes/"><u>Top Solutions: Overcome BG Stutters and Crashes with These 6 Essential Fixes!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/virtual-impression-sculpting-a-playful-digital-identity/"><u>Virtual Impression Sculpting a Playful Digital Identity</u></a></li>
 </ul></div>
 

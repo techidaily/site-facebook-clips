@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Facebook Finder’s Playbook for Quick Reconnaissance"
-date: 2025-01-03T07:07:19.271Z
-updated: 2025-01-07T07:20:31.519Z
+date: 2025-01-06T21:43:08.862Z
+updated: 2025-01-13T16:53:23.295Z
 tags:
   - ai video
   - ai facebook
@@ -34,14 +34,10 @@ Here are two ways to search people on Facebook. The second option also helps you
 * [**Part 1: How to search people on Facebook**](#part1)
 * [**Part 2: How to search people using Search Is Back**](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to search people on Facebook
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 1: Log in to Facebook
@@ -53,6 +49,10 @@ Open Facebook on your computer – Firstly, open a web browser and get to the Fa
 On the header tool icons, click on your name and you are directed to your Facebook wall or timeline. Just below your cover image, click the friend’s tab, to reach the Friends page that shows all your friends on Facebook.
 
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 3: Friends Finder Page
 
@@ -68,11 +68,11 @@ On the top right of old friends search, you can find the “search for your frie
 
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to search people using Search Is Back
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Open and Select
 
@@ -81,7 +81,7 @@ On a browser open the [Search is Back site](https://searchisback.com/). You can 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Input your Interest
@@ -95,7 +95,7 @@ Once you have filled in all the filters in the page, you can hit Find People but
 ![search is back facebook](https://images.wondershare.com/filmora/article-images/search-is-back-interest.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note**: If there are no results on the redirected Facebook page, you must get back to the Search is Back page and change your search filters to start a new round of search.
@@ -114,11 +114,11 @@ If you want to make Facebook videos, try to use [Filmora](https://tools.techidai
 
 [](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -135,16 +135,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-cutting-edge-video-sharing-from-facebook-to-whatsapp/"><u>[New] Cutting-Edge Video Sharing From Facebook to WhatsApp</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-explore-costless-methods-for-superior-photo-quality/"><u>[Updated] In 2024, Explore Costless Methods for Superior Photo Quality</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-stop-in-app-video-buffering-issues-for-2024/"><u>[Updated] Stop In-App Video Buffering Issues for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-maximize-communication-video-conferencing-tips-for-android/"><u>2024 Approved Maximize Communication Video Conferencing Tips for Android</u></a></li>
-<li><a href="https://techtrends.techidaily.com/final-cut-pro-on-ipad-elevates-filmmaking-with-groundbreaking-features-a-must-read-review-by-zdnet/"><u>Final Cut Pro on iPad Elevates Filmmaking with Groundbreaking Features - A Must-Read Review by ZDNet!</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-samsung-galaxy-s24plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Samsung Galaxy S24+ | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-15-pro-with-a-mask-on-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 15 Pro with a Mask On | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-vivo-y36-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Vivo Y36 Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/the-strategy-behind-automatic-youtube-playback-on-fb-for-2024/"><u>The Strategy Behind Automatic YouTube Playback on FB for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/top-10-viral-music-videos-on-social-media-for-2024/"><u>Top 10 Viral Music Videos on Social Media for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/understanding-facebook-messengers-signaling-with-a-blue-splash/"><u>Understanding Facebook Messenger's Signaling With a Blue Splash</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-combining-youtube-tunes-and-film-vectors/"><u>[New] Combining YouTube Tunes and Film Vectors</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-obs-studio-vs-fraps-best-screen-recording-tools-battle/"><u>[New] In 2024, OBS Studio vs Fraps Best Screen Recording Tools Battle</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-real-time-engagement-tracker/"><u>[New] In 2024, Real-Time Engagement Tracker</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-leading-steadicam-choices-for-improved-dslr-footage/"><u>[New] Leading Steadicam Choices for Improved DSLR Footage</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-anime-soundtracks-setting-the-mood-for-viral-shorts/"><u>2024 Approved Anime Soundtracks Setting the Mood for Viral Shorts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-content-layout-on-social-networks-facebooks-perspective/"><u>In 2024, Content Layout on Social Networks Facebook’s Perspective</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-e-identity-revamp-personal-cartoon-character-blueprint/"><u>In 2024, E-Identity Revamp Personal Cartoon Character Blueprint</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-exploring-echoes-in-social-space-an-old-fb-content-pathway/"><u>In 2024, Exploring Echoes in Social Space An Old FB Content Pathway</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-facebook-video-production-made-easy-with-these-20-free-apps/"><u>In 2024, Facebook Video Production Made Easy with These 20 Free Apps</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-fb-live-integration-with-cable-tv/"><u>In 2024, FB Live Integration with Cable TV</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-fb-story-downloads-decoded-a-quick-and-convenient-guide-for-all-users/"><u>In 2024, FB Story Downloads Decoded A Quick & Convenient Guide for All Users</u></a></li>
+<li><a href="https://win-great.techidaily.com/is-it-possible-to-exclusively-migrate-the-operating-system-on-a-samsung-device/"><u>Is It Possible to Exclusively Migrate the Operating System on a Samsung Device?</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unlocking-the-mystery-making-your-iphone-visible-on-itunes-or-finder-again/"><u>Unlocking the Mystery: Making Your iPhone Visible on iTunes or Finder Again.</u></a></li>
 </ul></div>
 
