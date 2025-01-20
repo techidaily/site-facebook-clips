@@ -1,7 +1,7 @@
 ---
 title: "[New] Perfecting the Art of HD Broadcasting on Facebook'shift_screen_resolution for 2024"
-date: 2024-07-19T02:53:43.950Z
-updated: 2024-07-20T02:53:43.950Z
+date: 2025-01-18T18:53:05.073Z
+updated: 2025-01-20T00:04:05.930Z
 tags:
   - ai video
   - ai facebook
@@ -53,9 +53,6 @@ Before going to **stream 1080p Facebook,** you might need to enable stream setti
 
 **Step 1:** Start by going to the following link <https://www.facebook.com/live/create>. Proceed by clicking on “Create Live Stream” to move into the Live Stream options of Facebook. Now, select the option of “Go Live.”
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![tap on create live stream](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-1.jpg)
 
 **Step 2:** On opening the dashboard, you may need to select the source for the video. Considering you are going to stream from another software, tap on the “Streaming Software” option. You can find the “Stream Key” across the option.
@@ -80,16 +77,10 @@ Under certain circumstances, you may feel like setting up a scheduled live strea
 
 **Step 1:** You need to log in with your Facebook account across your browser to stream your content. Once logged in, tap on the "What's on your mind, \*\*\*\*"? Option on the top of the News Feed.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![open what’s on your mind](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-6.jpg)
 
 **Step 2:** This opens up a new window on the screen. Select the “three-dotted icon” on the bottom of the window to proceed. Select “Live Video” from the available options. This leads you to a new window.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![click on live video](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-7.jpg)
 
 **Step 3:** On the new screen, you need to select the option of “Create Live Video Event” to set up a scheduled stream on your account.
@@ -98,9 +89,6 @@ Under certain circumstances, you may feel like setting up a scheduled live strea
 
 **Step 4:** The next window allows you to set up the stream settings as desired. Get started by setting up the preview of the stream. Add the cover photo by clicking on the "Upload Cover Photo" or "Choose Illustration." Provide the name of the event, the starting date, and time along with the privacy settings for the stream. Add a clear description for the stream to conclude setting up the stream settings.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add the details for live event](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-9.jpg)
 
 **Step 5:** Tap “Next” to proceed into the personalized settings of the stream. Set up the event settings, stream settings, and distribution of the scheduled event. Conclude by clicking on the “Create Event” button.
@@ -108,8 +96,13 @@ Under certain circumstances, you may feel like setting up a scheduled live strea
 ![tap on next button](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Add Polls to Facebook 1080p Stream
 
 **Facebook 1080p stream** provides a diverse set of options to the creators. While managing the quality of the stream, they can control their viewers with a consistent touch of connected elements. One such element is the use of polls across the stream. Polls are believed to be an interactive element for connecting with viewers. This is why it is quite common among creators who consider using Facebook to stream their videos.
@@ -122,9 +115,128 @@ Polls can help you make significant improvements in the stream. However, you nee
 
 **Step 2:** On opening this "Go Live," you would be redirected across your stream and the controlling platform. Select the "Dashboard" across the left-handed column.
 
+![click on dashboard](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-12.jpg)
+
+**Step 3:** This opens a set of different interactive tools across the platform. Select “Polls” from the options and set up a poll question along with the options as required. Once created, tap on “Create Poll” to set it up across the preview of the live video.
+
+![create the poll](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-13.jpg)
+
+## Part 4: Add Thumbnail to Facebook 1080p Stream
+
+People who consider to **stream 1080p Facebook** for designing creative content have to ensure the consistency of every element that is involved in the stream. While covering the quality of the stream, the users have to look into several other elements which are equally important to allure viewers into looking across the stream.
+
+Thumbnails provide an idea to the viewers on the genre of the live stream that the content creator is featuring. This is why it is considered important across any live stream. Before setting up a thumbnail, there are certain limitations provided by Facebook for the streamers. The platform allows uploading JPEG or PNG as a thumbnail across the video. Along with that, it needs to be less than 3MB in size.
+
+Users who wish to add a thumbnail across their stream must follow the steps explained below.
+
+**Step 1:** You need to direct yourself into the Creator Studio to go through the settings of your stream. Lead to the "Creative Tools" section from the left-hand panel and select "Set Up Live Stream" from the window featured on the front.
+
+![tap on set up live stream option](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-14.jpg)
+
+**Step 2:** This opens up the live stream settings on a new screen. On the new screen, you are advised to scroll down on the left-hand column and find the option of "Video Thumbnail Image." Select "Choose Image" and import the thumbnail photo.Now, tap on the “Go Live” button to start your live streaming.
+
+![choose your thumbnail image](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-15.jpg)
+
+## Conclusion
+
+This article has featured a detailed discussion on how to **stream 1080p Facebook** videos across the platform. Content creators who face difficulty working through the stream can look into the discussion to retain information on making quality live streams across their channels. To look better than the rest, follow the different steps as advised above to make your streams interactive and connected.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Live streams have been around the corner for a while. Many content creators have taken live streaming to another level and innovated multiple elements within them. To cater to the ideas of these creators, different social media platforms came up with multiple developments within their streaming systems. Facebook has been working on its live streaming feature for a while, providing several innovations to work with.
+
+As content creators look for different tools and intuitive platforms to work across their live streams, they also look for quality within the output of their video. Facebook has been striving to achieve the status of providing 1080p HD streaming across its platform. Being a new creator, you may look for the direction to achieve HD quality across your streams. This article directs readers to a guide on how to **stream 1080p Facebook** without any glitches.
+
+#### In this article
+
+Part 1: [How to Enable A Facebook HD 1080p Stream?](#step1)
+
+Part 2: [How to Schedule A Facebook HD 1080p Stream?](#step2)
+
+Part 3: [Add Polls to Facebook 1080p Stream](#step3)
+
+Part 4: [Add Thumbnail to Facebook 1080p Stream](#step4)
+
+## Part 1: How to Enable A Facebook HD 1080p Stream?
+
+**Facebook 1080p stream** provides content creators with an avenue of excellence. This potentially helps them feature exceptional results across their stream and keep their viewers happy with the quality that is being prospectively displayed across it. However, before creators lead towards their stream, an essential requirement needs to be looked into.
+
+Streaming in HD is only possible if the user sends 1080p from their side. If, by any chance, the stream is 720p, Facebook would be unable to provide 1080p quality across its output. Uniformity is extremely important before guiding towards quality. Facebook allows users to select their choice for the live streaming software. Although the platform can be directly utilized for this purpose, several other software is supported throughout the live stream.
+
+Users can consider using OBS Studio, Wirecast, or XSplit to cater to their streaming requirements. Facebook allows its users to consider any of the software mentioned above for their purpose. For going into a live stream, the user can consider going from a profile, Facebook page, group, or event. With diversity in selecting the source for going live, users can consider going live by sharing their screen, game, or external camera as the video resource.
+
+Before going to **stream 1080p Facebook,** you might need to enable stream settings for your account. To carry this out, you are advised to look into the following steps in detail.
+
+**Step 1:** Start by going to the following link <https://www.facebook.com/live/create>. Proceed by clicking on “Create Live Stream” to move into the Live Stream options of Facebook. Now, select the option of “Go Live.”
+
+![tap on create live stream](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-1.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+**Step 2:** On opening the dashboard, you may need to select the source for the video. Considering you are going to stream from another software, tap on the “Streaming Software” option. You can find the “Stream Key” across the option.
+
+![access your stream key](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-2.jpg)
+
+**Step 3:** On clicking the “Advanced settings” option, a drop-down appears showing the “Server URL” for the stream.
+
+![scroll down to server url](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-3.jpg)
+
+**Step 4:** As you obtain these keys and URLs for the stream, you need to proceed with the settings for the stream in your streaming software. Initially, you are advised to set the Encoder Settings for your stream. Set the ‘Rate Control’ to CB4, ‘Keyframe Interval’ to 2, and ‘B-frames’ to 3 for optimum results.
+
+![adjust your encoder settings](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-4.jpg)
+
+**Step 5:** Before starting the stream, you need to select the 1080p options within the video quality for the stream. Set up the bitrate according to your setup through experimentation. Once done, your streaming is enabled, which can be started whenever desired.
+
+## Part 2: How to Schedule A Facebook HD 1080p Stream?
+
+There are times that you set up a stream with different content creators, as in a cameo. While setting up such an event, you need to be very strict to the timings bringing up the stream to the real world. Under such circumstances, Facebook provides scheduling a **Facebook 1080p stream** for the viewers.
+
+Under certain circumstances, you may feel like setting up a scheduled live stream across Facebook due to your tight schedule. To avoid any discrepancies, you can work across your live stream long before its actual time. To understand how to **stream 1080p Facebook** with calibrated settings, schedule your stream across Facebook by following the steps as shown below.
+
+**Step 1:** You need to log in with your Facebook account across your browser to stream your content. Once logged in, tap on the "What's on your mind, \*\*\*\*"? Option on the top of the News Feed.
+
+![open what’s on your mind](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-6.jpg)
+
+**Step 2:** This opens up a new window on the screen. Select the “three-dotted icon” on the bottom of the window to proceed. Select “Live Video” from the available options. This leads you to a new window.
+
+![click on live video](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+**Step 3:** On the new screen, you need to select the option of “Create Live Video Event” to set up a scheduled stream on your account.
+
+![select create live video event feature](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+**Step 4:** The next window allows you to set up the stream settings as desired. Get started by setting up the preview of the stream. Add the cover photo by clicking on the "Upload Cover Photo" or "Choose Illustration." Provide the name of the event, the starting date, and time along with the privacy settings for the stream. Add a clear description for the stream to conclude setting up the stream settings.
+
+![add the details for live event](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-9.jpg)
+
+**Step 5:** Tap “Next” to proceed into the personalized settings of the stream. Set up the event settings, stream settings, and distribution of the scheduled event. Conclude by clicking on the “Create Event” button.
+
+![tap on next button](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-10.jpg)
+
+## Part 3: Add Polls to Facebook 1080p Stream
+
+**Facebook 1080p stream** provides a diverse set of options to the creators. While managing the quality of the stream, they can control their viewers with a consistent touch of connected elements. One such element is the use of polls across the stream. Polls are believed to be an interactive element for connecting with viewers. This is why it is quite common among creators who consider using Facebook to stream their videos.
+
+Polls can help you make significant improvements in the stream. However, you need to set up the appropriate poll that would be inciteful to the viewers. Setting up polls is not a difficult process as a whole. Users looking to set up a poll across their stream should look into the steps featured below.
+
+**Step 1:** To create a live poll across your stream, you need to follow the following link: <https://www.facebook.com/live/producer/>. Now, click on the option of "Go Live."
+
+![access go live option](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-11.jpg)
+
+**Step 2:** On opening this "Go Live," you would be redirected across your stream and the controlling platform. Select the "Dashboard" across the left-handed column.
+
 ![click on dashboard](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-12.jpg)
 
 **Step 3:** This opens a set of different interactive tools across the platform. Select “Polls” from the options and set up a poll question along with the options as required. Once created, tap on “Create Poll” to set it up across the preview of the live video.
@@ -132,8 +244,135 @@ Polls can help you make significant improvements in the stream. However, you nee
 ![create the poll](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-13.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## Part 4: Add Thumbnail to Facebook 1080p Stream
+
+People who consider to **stream 1080p Facebook** for designing creative content have to ensure the consistency of every element that is involved in the stream. While covering the quality of the stream, the users have to look into several other elements which are equally important to allure viewers into looking across the stream.
+
+Thumbnails provide an idea to the viewers on the genre of the live stream that the content creator is featuring. This is why it is considered important across any live stream. Before setting up a thumbnail, there are certain limitations provided by Facebook for the streamers. The platform allows uploading JPEG or PNG as a thumbnail across the video. Along with that, it needs to be less than 3MB in size.
+
+Users who wish to add a thumbnail across their stream must follow the steps explained below.
+
+**Step 1:** You need to direct yourself into the Creator Studio to go through the settings of your stream. Lead to the "Creative Tools" section from the left-hand panel and select "Set Up Live Stream" from the window featured on the front.
+
+![tap on set up live stream option](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-14.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+**Step 2:** This opens up the live stream settings on a new screen. On the new screen, you are advised to scroll down on the left-hand column and find the option of "Video Thumbnail Image." Select "Choose Image" and import the thumbnail photo.Now, tap on the “Go Live” button to start your live streaming.
+
+![choose your thumbnail image](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-15.jpg)
+
+## Conclusion
+
+This article has featured a detailed discussion on how to **stream 1080p Facebook** videos across the platform. Content creators who face difficulty working through the stream can look into the discussion to retain information on making quality live streams across their channels. To look better than the rest, follow the different steps as advised above to make your streams interactive and connected.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Live streams have been around the corner for a while. Many content creators have taken live streaming to another level and innovated multiple elements within them. To cater to the ideas of these creators, different social media platforms came up with multiple developments within their streaming systems. Facebook has been working on its live streaming feature for a while, providing several innovations to work with.
+
+As content creators look for different tools and intuitive platforms to work across their live streams, they also look for quality within the output of their video. Facebook has been striving to achieve the status of providing 1080p HD streaming across its platform. Being a new creator, you may look for the direction to achieve HD quality across your streams. This article directs readers to a guide on how to **stream 1080p Facebook** without any glitches.
+
+#### In this article
+
+Part 1: [How to Enable A Facebook HD 1080p Stream?](#step1)
+
+Part 2: [How to Schedule A Facebook HD 1080p Stream?](#step2)
+
+Part 3: [Add Polls to Facebook 1080p Stream](#step3)
+
+Part 4: [Add Thumbnail to Facebook 1080p Stream](#step4)
+
+## Part 1: How to Enable A Facebook HD 1080p Stream?
+
+**Facebook 1080p stream** provides content creators with an avenue of excellence. This potentially helps them feature exceptional results across their stream and keep their viewers happy with the quality that is being prospectively displayed across it. However, before creators lead towards their stream, an essential requirement needs to be looked into.
+
+Streaming in HD is only possible if the user sends 1080p from their side. If, by any chance, the stream is 720p, Facebook would be unable to provide 1080p quality across its output. Uniformity is extremely important before guiding towards quality. Facebook allows users to select their choice for the live streaming software. Although the platform can be directly utilized for this purpose, several other software is supported throughout the live stream.
+
+Users can consider using OBS Studio, Wirecast, or XSplit to cater to their streaming requirements. Facebook allows its users to consider any of the software mentioned above for their purpose. For going into a live stream, the user can consider going from a profile, Facebook page, group, or event. With diversity in selecting the source for going live, users can consider going live by sharing their screen, game, or external camera as the video resource.
+
+Before going to **stream 1080p Facebook,** you might need to enable stream settings for your account. To carry this out, you are advised to look into the following steps in detail.
+
+**Step 1:** Start by going to the following link <https://www.facebook.com/live/create>. Proceed by clicking on “Create Live Stream” to move into the Live Stream options of Facebook. Now, select the option of “Go Live.”
+
+![tap on create live stream](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-1.jpg)
+
+**Step 2:** On opening the dashboard, you may need to select the source for the video. Considering you are going to stream from another software, tap on the “Streaming Software” option. You can find the “Stream Key” across the option.
+
+![access your stream key](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-2.jpg)
+
+**Step 3:** On clicking the “Advanced settings” option, a drop-down appears showing the “Server URL” for the stream.
+
+![scroll down to server url](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+**Step 4:** As you obtain these keys and URLs for the stream, you need to proceed with the settings for the stream in your streaming software. Initially, you are advised to set the Encoder Settings for your stream. Set the ‘Rate Control’ to CB4, ‘Keyframe Interval’ to 2, and ‘B-frames’ to 3 for optimum results.
+
+![adjust your encoder settings](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-4.jpg)
+
+**Step 5:** Before starting the stream, you need to select the 1080p options within the video quality for the stream. Set up the bitrate according to your setup through experimentation. Once done, your streaming is enabled, which can be started whenever desired.
+
+## Part 2: How to Schedule A Facebook HD 1080p Stream?
+
+There are times that you set up a stream with different content creators, as in a cameo. While setting up such an event, you need to be very strict to the timings bringing up the stream to the real world. Under such circumstances, Facebook provides scheduling a **Facebook 1080p stream** for the viewers.
+
+Under certain circumstances, you may feel like setting up a scheduled live stream across Facebook due to your tight schedule. To avoid any discrepancies, you can work across your live stream long before its actual time. To understand how to **stream 1080p Facebook** with calibrated settings, schedule your stream across Facebook by following the steps as shown below.
+
+**Step 1:** You need to log in with your Facebook account across your browser to stream your content. Once logged in, tap on the "What's on your mind, \*\*\*\*"? Option on the top of the News Feed.
+
+![open what’s on your mind](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-6.jpg)
+
+**Step 2:** This opens up a new window on the screen. Select the “three-dotted icon” on the bottom of the window to proceed. Select “Live Video” from the available options. This leads you to a new window.
+
+![click on live video](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-7.jpg)
+
+**Step 3:** On the new screen, you need to select the option of “Create Live Video Event” to set up a scheduled stream on your account.
+
+![select create live video event feature](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+**Step 4:** The next window allows you to set up the stream settings as desired. Get started by setting up the preview of the stream. Add the cover photo by clicking on the "Upload Cover Photo" or "Choose Illustration." Provide the name of the event, the starting date, and time along with the privacy settings for the stream. Add a clear description for the stream to conclude setting up the stream settings.
+
+![add the details for live event](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+**Step 5:** Tap “Next” to proceed into the personalized settings of the stream. Set up the event settings, stream settings, and distribution of the scheduled event. Conclude by clicking on the “Create Event” button.
+
+![tap on next button](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-10.jpg)
+
+## Part 3: Add Polls to Facebook 1080p Stream
+
+**Facebook 1080p stream** provides a diverse set of options to the creators. While managing the quality of the stream, they can control their viewers with a consistent touch of connected elements. One such element is the use of polls across the stream. Polls are believed to be an interactive element for connecting with viewers. This is why it is quite common among creators who consider using Facebook to stream their videos.
+
+Polls can help you make significant improvements in the stream. However, you need to set up the appropriate poll that would be inciteful to the viewers. Setting up polls is not a difficult process as a whole. Users looking to set up a poll across their stream should look into the steps featured below.
+
+**Step 1:** To create a live poll across your stream, you need to follow the following link: <https://www.facebook.com/live/producer/>. Now, click on the option of "Go Live."
+
+![access go live option](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-11.jpg)
+
+**Step 2:** On opening this "Go Live," you would be redirected across your stream and the controlling platform. Select the "Dashboard" across the left-handed column.
+
+![click on dashboard](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-12.jpg)
+
+**Step 3:** This opens a set of different interactive tools across the platform. Select “Polls” from the options and set up a poll question along with the options as required. Once created, tap on “Create Poll” to set it up across the preview of the live video.
+
+![create the poll](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-13.jpg)
+
 ## Part 4: Add Thumbnail to Facebook 1080p Stream
 
 People who consider to **stream 1080p Facebook** for designing creative content have to ensure the consistency of every element that is involved in the stream. While covering the quality of the stream, the users have to look into several other elements which are equally important to allure viewers into looking across the stream.
@@ -208,9 +447,6 @@ Under certain circumstances, you may feel like setting up a scheduled live strea
 
 **Step 1:** You need to log in with your Facebook account across your browser to stream your content. Once logged in, tap on the "What's on your mind, \*\*\*\*"? Option on the top of the News Feed.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![open what’s on your mind](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-6.jpg)
 
 **Step 2:** This opens up a new window on the screen. Select the “three-dotted icon” on the bottom of the window to proceed. Select “Live Video” from the available options. This leads you to a new window.
@@ -227,300 +463,8 @@ Under certain circumstances, you may feel like setting up a scheduled live strea
 
 **Step 5:** Tap “Next” to proceed into the personalized settings of the stream. Set up the event settings, stream settings, and distribution of the scheduled event. Conclude by clicking on the “Create Event” button.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![tap on next button](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-10.jpg)
 
-## Part 3: Add Polls to Facebook 1080p Stream
-
-**Facebook 1080p stream** provides a diverse set of options to the creators. While managing the quality of the stream, they can control their viewers with a consistent touch of connected elements. One such element is the use of polls across the stream. Polls are believed to be an interactive element for connecting with viewers. This is why it is quite common among creators who consider using Facebook to stream their videos.
-
-Polls can help you make significant improvements in the stream. However, you need to set up the appropriate poll that would be inciteful to the viewers. Setting up polls is not a difficult process as a whole. Users looking to set up a poll across their stream should look into the steps featured below.
-
-**Step 1:** To create a live poll across your stream, you need to follow the following link: <https://www.facebook.com/live/producer/>. Now, click on the option of "Go Live."
-
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
-![access go live option](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-11.jpg)
-
-**Step 2:** On opening this "Go Live," you would be redirected across your stream and the controlling platform. Select the "Dashboard" across the left-handed column.
-
-![click on dashboard](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-12.jpg)
-
-**Step 3:** This opens a set of different interactive tools across the platform. Select “Polls” from the options and set up a poll question along with the options as required. Once created, tap on “Create Poll” to set it up across the preview of the live video.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![create the poll](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-13.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part 4: Add Thumbnail to Facebook 1080p Stream
-
-People who consider to **stream 1080p Facebook** for designing creative content have to ensure the consistency of every element that is involved in the stream. While covering the quality of the stream, the users have to look into several other elements which are equally important to allure viewers into looking across the stream.
-
-Thumbnails provide an idea to the viewers on the genre of the live stream that the content creator is featuring. This is why it is considered important across any live stream. Before setting up a thumbnail, there are certain limitations provided by Facebook for the streamers. The platform allows uploading JPEG or PNG as a thumbnail across the video. Along with that, it needs to be less than 3MB in size.
-
-Users who wish to add a thumbnail across their stream must follow the steps explained below.
-
-**Step 1:** You need to direct yourself into the Creator Studio to go through the settings of your stream. Lead to the "Creative Tools" section from the left-hand panel and select "Set Up Live Stream" from the window featured on the front.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![tap on set up live stream option](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-14.jpg)
-
-**Step 2:** This opens up the live stream settings on a new screen. On the new screen, you are advised to scroll down on the left-hand column and find the option of "Video Thumbnail Image." Select "Choose Image" and import the thumbnail photo.Now, tap on the “Go Live” button to start your live streaming.
-
-![choose your thumbnail image](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-15.jpg)
-
-## Conclusion
-
-This article has featured a detailed discussion on how to **stream 1080p Facebook** videos across the platform. Content creators who face difficulty working through the stream can look into the discussion to retain information on making quality live streams across their channels. To look better than the rest, follow the different steps as advised above to make your streams interactive and connected.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Live streams have been around the corner for a while. Many content creators have taken live streaming to another level and innovated multiple elements within them. To cater to the ideas of these creators, different social media platforms came up with multiple developments within their streaming systems. Facebook has been working on its live streaming feature for a while, providing several innovations to work with.
-
-As content creators look for different tools and intuitive platforms to work across their live streams, they also look for quality within the output of their video. Facebook has been striving to achieve the status of providing 1080p HD streaming across its platform. Being a new creator, you may look for the direction to achieve HD quality across your streams. This article directs readers to a guide on how to **stream 1080p Facebook** without any glitches.
-
-#### In this article
-
-Part 1: [How to Enable A Facebook HD 1080p Stream?](#step1)
-
-Part 2: [How to Schedule A Facebook HD 1080p Stream?](#step2)
-
-Part 3: [Add Polls to Facebook 1080p Stream](#step3)
-
-Part 4: [Add Thumbnail to Facebook 1080p Stream](#step4)
-
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part 1: How to Enable A Facebook HD 1080p Stream?
-
-**Facebook 1080p stream** provides content creators with an avenue of excellence. This potentially helps them feature exceptional results across their stream and keep their viewers happy with the quality that is being prospectively displayed across it. However, before creators lead towards their stream, an essential requirement needs to be looked into.
-
-Streaming in HD is only possible if the user sends 1080p from their side. If, by any chance, the stream is 720p, Facebook would be unable to provide 1080p quality across its output. Uniformity is extremely important before guiding towards quality. Facebook allows users to select their choice for the live streaming software. Although the platform can be directly utilized for this purpose, several other software is supported throughout the live stream.
-
-Users can consider using OBS Studio, Wirecast, or XSplit to cater to their streaming requirements. Facebook allows its users to consider any of the software mentioned above for their purpose. For going into a live stream, the user can consider going from a profile, Facebook page, group, or event. With diversity in selecting the source for going live, users can consider going live by sharing their screen, game, or external camera as the video resource.
-
-Before going to **stream 1080p Facebook,** you might need to enable stream settings for your account. To carry this out, you are advised to look into the following steps in detail.
-
-**Step 1:** Start by going to the following link <https://www.facebook.com/live/create>. Proceed by clicking on “Create Live Stream” to move into the Live Stream options of Facebook. Now, select the option of “Go Live.”
-
-![tap on create live stream](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-1.jpg)
-
-**Step 2:** On opening the dashboard, you may need to select the source for the video. Considering you are going to stream from another software, tap on the “Streaming Software” option. You can find the “Stream Key” across the option.
-
-![access your stream key](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-2.jpg)
-
-**Step 3:** On clicking the “Advanced settings” option, a drop-down appears showing the “Server URL” for the stream.
-
-![scroll down to server url](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-3.jpg)
-
-**Step 4:** As you obtain these keys and URLs for the stream, you need to proceed with the settings for the stream in your streaming software. Initially, you are advised to set the Encoder Settings for your stream. Set the ‘Rate Control’ to CB4, ‘Keyframe Interval’ to 2, and ‘B-frames’ to 3 for optimum results.
-
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![adjust your encoder settings](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-4.jpg)
-
-**Step 5:** Before starting the stream, you need to select the 1080p options within the video quality for the stream. Set up the bitrate according to your setup through experimentation. Once done, your streaming is enabled, which can be started whenever desired.
-
-## Part 2: How to Schedule A Facebook HD 1080p Stream?
-
-There are times that you set up a stream with different content creators, as in a cameo. While setting up such an event, you need to be very strict to the timings bringing up the stream to the real world. Under such circumstances, Facebook provides scheduling a **Facebook 1080p stream** for the viewers.
-
-Under certain circumstances, you may feel like setting up a scheduled live stream across Facebook due to your tight schedule. To avoid any discrepancies, you can work across your live stream long before its actual time. To understand how to **stream 1080p Facebook** with calibrated settings, schedule your stream across Facebook by following the steps as shown below.
-
-**Step 1:** You need to log in with your Facebook account across your browser to stream your content. Once logged in, tap on the "What's on your mind, \*\*\*\*"? Option on the top of the News Feed.
-
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![open what’s on your mind](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-6.jpg)
-
-**Step 2:** This opens up a new window on the screen. Select the “three-dotted icon” on the bottom of the window to proceed. Select “Live Video” from the available options. This leads you to a new window.
-
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![click on live video](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-7.jpg)
-
-**Step 3:** On the new screen, you need to select the option of “Create Live Video Event” to set up a scheduled stream on your account.
-
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
-![select create live video event feature](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-8.jpg)
-
-**Step 4:** The next window allows you to set up the stream settings as desired. Get started by setting up the preview of the stream. Add the cover photo by clicking on the "Upload Cover Photo" or "Choose Illustration." Provide the name of the event, the starting date, and time along with the privacy settings for the stream. Add a clear description for the stream to conclude setting up the stream settings.
-
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
-![add the details for live event](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-9.jpg)
-
-**Step 5:** Tap “Next” to proceed into the personalized settings of the stream. Set up the event settings, stream settings, and distribution of the scheduled event. Conclude by clicking on the “Create Event” button.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![tap on next button](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-10.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part 3: Add Polls to Facebook 1080p Stream
-
-**Facebook 1080p stream** provides a diverse set of options to the creators. While managing the quality of the stream, they can control their viewers with a consistent touch of connected elements. One such element is the use of polls across the stream. Polls are believed to be an interactive element for connecting with viewers. This is why it is quite common among creators who consider using Facebook to stream their videos.
-
-Polls can help you make significant improvements in the stream. However, you need to set up the appropriate poll that would be inciteful to the viewers. Setting up polls is not a difficult process as a whole. Users looking to set up a poll across their stream should look into the steps featured below.
-
-**Step 1:** To create a live poll across your stream, you need to follow the following link: <https://www.facebook.com/live/producer/>. Now, click on the option of "Go Live."
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![access go live option](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-11.jpg)
-
-**Step 2:** On opening this "Go Live," you would be redirected across your stream and the controlling platform. Select the "Dashboard" across the left-handed column.
-
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![click on dashboard](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-12.jpg)
-
-**Step 3:** This opens a set of different interactive tools across the platform. Select “Polls” from the options and set up a poll question along with the options as required. Once created, tap on “Create Poll” to set it up across the preview of the live video.
-
-![create the poll](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-13.jpg)
-
-## Part 4: Add Thumbnail to Facebook 1080p Stream
-
-People who consider to **stream 1080p Facebook** for designing creative content have to ensure the consistency of every element that is involved in the stream. While covering the quality of the stream, the users have to look into several other elements which are equally important to allure viewers into looking across the stream.
-
-Thumbnails provide an idea to the viewers on the genre of the live stream that the content creator is featuring. This is why it is considered important across any live stream. Before setting up a thumbnail, there are certain limitations provided by Facebook for the streamers. The platform allows uploading JPEG or PNG as a thumbnail across the video. Along with that, it needs to be less than 3MB in size.
-
-Users who wish to add a thumbnail across their stream must follow the steps explained below.
-
-**Step 1:** You need to direct yourself into the Creator Studio to go through the settings of your stream. Lead to the "Creative Tools" section from the left-hand panel and select "Set Up Live Stream" from the window featured on the front.
-
-![tap on set up live stream option](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-14.jpg)
-
-**Step 2:** This opens up the live stream settings on a new screen. On the new screen, you are advised to scroll down on the left-hand column and find the option of "Video Thumbnail Image." Select "Choose Image" and import the thumbnail photo.Now, tap on the “Go Live” button to start your live streaming.
-
-![choose your thumbnail image](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-15.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Conclusion
-
-This article has featured a detailed discussion on how to **stream 1080p Facebook** videos across the platform. Content creators who face difficulty working through the stream can look into the discussion to retain information on making quality live streams across their channels. To look better than the rest, follow the different steps as advised above to make your streams interactive and connected.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Live streams have been around the corner for a while. Many content creators have taken live streaming to another level and innovated multiple elements within them. To cater to the ideas of these creators, different social media platforms came up with multiple developments within their streaming systems. Facebook has been working on its live streaming feature for a while, providing several innovations to work with.
-
-As content creators look for different tools and intuitive platforms to work across their live streams, they also look for quality within the output of their video. Facebook has been striving to achieve the status of providing 1080p HD streaming across its platform. Being a new creator, you may look for the direction to achieve HD quality across your streams. This article directs readers to a guide on how to **stream 1080p Facebook** without any glitches.
-
-#### In this article
-
-Part 1: [How to Enable A Facebook HD 1080p Stream?](#step1)
-
-Part 2: [How to Schedule A Facebook HD 1080p Stream?](#step2)
-
-Part 3: [Add Polls to Facebook 1080p Stream](#step3)
-
-Part 4: [Add Thumbnail to Facebook 1080p Stream](#step4)
-
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
-## Part 1: How to Enable A Facebook HD 1080p Stream?
-
-**Facebook 1080p stream** provides content creators with an avenue of excellence. This potentially helps them feature exceptional results across their stream and keep their viewers happy with the quality that is being prospectively displayed across it. However, before creators lead towards their stream, an essential requirement needs to be looked into.
-
-Streaming in HD is only possible if the user sends 1080p from their side. If, by any chance, the stream is 720p, Facebook would be unable to provide 1080p quality across its output. Uniformity is extremely important before guiding towards quality. Facebook allows users to select their choice for the live streaming software. Although the platform can be directly utilized for this purpose, several other software is supported throughout the live stream.
-
-Users can consider using OBS Studio, Wirecast, or XSplit to cater to their streaming requirements. Facebook allows its users to consider any of the software mentioned above for their purpose. For going into a live stream, the user can consider going from a profile, Facebook page, group, or event. With diversity in selecting the source for going live, users can consider going live by sharing their screen, game, or external camera as the video resource.
-
-Before going to **stream 1080p Facebook,** you might need to enable stream settings for your account. To carry this out, you are advised to look into the following steps in detail.
-
-**Step 1:** Start by going to the following link <https://www.facebook.com/live/create>. Proceed by clicking on “Create Live Stream” to move into the Live Stream options of Facebook. Now, select the option of “Go Live.”
-
-![tap on create live stream](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-1.jpg)
-
-**Step 2:** On opening the dashboard, you may need to select the source for the video. Considering you are going to stream from another software, tap on the “Streaming Software” option. You can find the “Stream Key” across the option.
-
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![access your stream key](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-2.jpg)
-
-**Step 3:** On clicking the “Advanced settings” option, a drop-down appears showing the “Server URL” for the stream.
-
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![scroll down to server url](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-3.jpg)
-
-**Step 4:** As you obtain these keys and URLs for the stream, you need to proceed with the settings for the stream in your streaming software. Initially, you are advised to set the Encoder Settings for your stream. Set the ‘Rate Control’ to CB4, ‘Keyframe Interval’ to 2, and ‘B-frames’ to 3 for optimum results.
-
-![adjust your encoder settings](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-4.jpg)
-
-**Step 5:** Before starting the stream, you need to select the 1080p options within the video quality for the stream. Set up the bitrate according to your setup through experimentation. Once done, your streaming is enabled, which can be started whenever desired.
-
-## Part 2: How to Schedule A Facebook HD 1080p Stream?
-
-There are times that you set up a stream with different content creators, as in a cameo. While setting up such an event, you need to be very strict to the timings bringing up the stream to the real world. Under such circumstances, Facebook provides scheduling a **Facebook 1080p stream** for the viewers.
-
-Under certain circumstances, you may feel like setting up a scheduled live stream across Facebook due to your tight schedule. To avoid any discrepancies, you can work across your live stream long before its actual time. To understand how to **stream 1080p Facebook** with calibrated settings, schedule your stream across Facebook by following the steps as shown below.
-
-**Step 1:** You need to log in with your Facebook account across your browser to stream your content. Once logged in, tap on the "What's on your mind, \*\*\*\*"? Option on the top of the News Feed.
-
-![open what’s on your mind](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-6.jpg)
-
-**Step 2:** This opens up a new window on the screen. Select the “three-dotted icon” on the bottom of the window to proceed. Select “Live Video” from the available options. This leads you to a new window.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
-![click on live video](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-7.jpg)
-
-**Step 3:** On the new screen, you need to select the option of “Create Live Video Event” to set up a scheduled stream on your account.
-
-![select create live video event feature](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-8.jpg)
-
-**Step 4:** The next window allows you to set up the stream settings as desired. Get started by setting up the preview of the stream. Add the cover photo by clicking on the "Upload Cover Photo" or "Choose Illustration." Provide the name of the event, the starting date, and time along with the privacy settings for the stream. Add a clear description for the stream to conclude setting up the stream settings.
-
-![add the details for live event](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-9.jpg)
-
-**Step 5:** Tap “Next” to proceed into the personalized settings of the stream. Set up the event settings, stream settings, and distribution of the scheduled event. Conclude by clicking on the “Create Event” button.
-
-![tap on next button](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-10.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Add Polls to Facebook 1080p Stream
 
 **Facebook 1080p stream** provides a diverse set of options to the creators. While managing the quality of the stream, they can control their viewers with a consistent touch of connected elements. One such element is the use of polls across the stream. Polls are believed to be an interactive element for connecting with viewers. This is why it is quite common among creators who consider using Facebook to stream their videos.
@@ -537,18 +481,6 @@ Polls can help you make significant improvements in the stream. However, you nee
 
 **Step 3:** This opens a set of different interactive tools across the platform. Select “Polls” from the options and set up a poll question along with the options as required. Once created, tap on “Create Poll” to set it up across the preview of the live video.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![create the poll](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-13.jpg)
 
 ## Part 4: Add Thumbnail to Facebook 1080p Stream
@@ -561,9 +493,6 @@ Users who wish to add a thumbnail across their stream must follow the steps expl
 
 **Step 1:** You need to direct yourself into the Creator Studio to go through the settings of your stream. Lead to the "Creative Tools" section from the left-hand panel and select "Set Up Live Stream" from the window featured on the front.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![tap on set up live stream option](https://images.wondershare.com/filmora/article-images/2022/02/stream-in-hd-on-facebook-14.jpg)
 
 **Step 2:** This opens up the live stream settings on a new screen. On the new screen, you are advised to scroll down on the left-hand column and find the option of "Video Thumbnail Image." Select "Choose Image" and import the thumbnail photo.Now, tap on the “Go Live” button to start your live streaming.
@@ -587,8 +516,6 @@ This article has featured a detailed discussion on how to **stream 1080p Faceboo
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -597,7 +524,22 @@ This article has featured a detailed discussion on how to **stream 1080p Faceboo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-stop-ipadiphone-from-freezing-during-fb-playback/"><u>[New] In 2024, Stop iPad/iPhone From Freezing During FB Playback</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unlocking-the-secrets-to-altering-your-networks-showcase-picture/"><u>[Updated] 2024 Approved Unlocking the Secrets to Altering Your Network's Showcase Picture</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-dollars-and-sense-profit-driven-techniques-for-fb-video-content-for-2024/"><u>[Updated] Dollars and Sense Profit-Driven Techniques for FB Video Content for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-integrating-social-networks-sharing-fb-videos-on-whatsapp/"><u>[Updated] Integrating Social Networks Sharing FB Videos on WhatsApp</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-mastering-access-facebooks-classic-stories/"><u>2024 Approved Mastering Access Facebook's Classic Stories</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-streamlining-your-approach-to-configuring-and-gauging-fb-instream-ads/"><u>2024 Approved Streamlining Your Approach to Configuring & Gauging FB Instream Ads</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-caixun-75-inch-4k-android-tv-comprehensive-review/"><u>Affordable Caixun 75-Inch 4K Android TV - Comprehensive Review</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/dos-metodos-faciles-para-crear-respaldo-en-windows-11-usando-una-memoria-usb-externa/"><u>Dos Métodos Fáciles Para Crear Respaldo en Windows 11 Usando Una Memoria USB Externa</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/from-audience-to-advocate-strategies-for-powerful-fb-covers-for-2024/"><u>From Audience to Advocate Strategies for Powerful FB Covers for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/gratis-mkv-player-app-perfekt-fur-das-streaming-und-anschauen-von-mkv-filmen/"><u>Gratis MKV Player App: Perfekt Für Das Streaming Und Anschauen Von MKV-Filmen</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-vivo-y200-is-unlocked-by-drfone-android/"><u>How To Check if Your Vivo Y200 Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-vivo-v30-pro-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Vivo V30 Pro Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-improving-hues-a-beginners-approach-to-ps-grading/"><u>In 2024, Improving Hues A Beginner's Approach to PS Grading</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/saving-snaps-from-snapchat-on-camera-roll-a-guide/"><u>Saving Snaps From Snapchat on Camera Roll – A Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-art-of-engaging-with-the-online-gaming-community-for-2024/"><u>The Art of Engaging with the Online Gaming Community for 2024</u></a></li>
+</ul></div>
 

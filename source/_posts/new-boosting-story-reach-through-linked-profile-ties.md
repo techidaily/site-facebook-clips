@@ -1,7 +1,7 @@
 ---
 title: "[New] Boosting Story Reach Through Linked Profile Ties"
-date: 2025-01-06T18:33:04.058Z
-updated: 2025-01-13T16:57:04.014Z
+date: 2025-01-17T17:04:22.496Z
+updated: 2025-01-19T20:21:25.472Z
 tags:
   - ai video
   - ai facebook
@@ -51,15 +51,19 @@ Note: Before we share the steps that you need to follow, please keep in mind tha
 
 ![create Facebook Page story](https://images.wondershare.com/filmora/article-images/create-story-on-facebook-page.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2:** You need to type the website name and, on the top, you will see the link icon. Once you are ready with the website name, click on the link icon. Now can choose some buttons based on what kind of link you have shared. For example, shop now, book now, call now, and so on.
 
 ![add link to Facebook Page story](https://images.wondershare.com/filmora/article-images/add-link-to-facebook-story.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 And that’s it; your story will be added to Facebook Story.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Add Link to Facebook Story Using WhatsApp?
 
@@ -70,10 +74,6 @@ Facebook acquired WhatsApp in February 2014, and since both the apps are connect
 **Step 2:** Please, click on the Status tab, which will be right beside the Chats tab. Once you are there, you will see the My Status option with a + icon. You need to click on that.
 
 ![add WhatsApp status](https://images.wondershare.com/filmora/article-images/add-whatsapp-status.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3:** On your status page, you can add the link you want people to see. Now, share the link. Once done, right below your My Status, you will see an option “Share to Facebook Story.” To cross-post your WhatsApp status with the link, please click on “Share to Facebook Story.”
 
@@ -90,7 +90,7 @@ If you have found an interesting video on YouTube or want to promote your YouTub
 ![share youtube video to facebook  ](https://images.wondershare.com/filmora/article-images/youtube-share-option-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2:** Click on the Share button. You will see the embedded link and other options. Next, you need to click on the Facebook option.
@@ -115,13 +115,13 @@ Facebook stories offer another feature, which is known as the Swipe Up Link. On 
 
 ![add link to swipe up button to Facebook story](https://images.wondershare.com/filmora/article-images/add-link-to-swipe-up-button-facebook-story.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Please note that the swipe option will be visible to your audience only after you have added the link.
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Social Media Video Maker and Editor
 
@@ -141,7 +141,7 @@ For macOS 10.12 or later
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -151,7 +151,7 @@ So, that’s it. These are some ways to **add a link to** your **Facebook story.
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -169,15 +169,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ssential-tips-for-creating-compelling-free-ads-on-youtube-for-2024/"><u>[New] Essential Tips for Creating Compelling Free Ads on YouTube for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-pathway-to-earning-facebook-written-by-your-assistant/"><u>[New] In 2024, The Pathway to Earning Facebook’ Written by Your Assistant</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-discovering-the-magic-behind-youtube-shorts/"><u>[Updated] Discovering the Magic Behind Youtube Shorts</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-remove-pending-videos-from-your-youtube-history-for-2024/"><u>[Updated] How to Remove Pending Videos From Your YouTube History for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-navigating-the-world-of-online-streaming-wirecast-and-facebook/"><u>[Updated] In 2024, Navigating the World of Online Streaming Wirecast & Facebook</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-mastering-desktop-and-mobile-the-best-ways-to-download-fb-story/"><u>[Updated] Mastering Desktop & Mobile The Best Ways to Download FB Story</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/come-clonare-il-tuo-sistema-operativo-su-una-chiavetta-usb-con-facilita/"><u>Come Clonare Il Tuo Sistema Operativo Su Una Chiavetta USB Con Facilità</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-disabled-iphone-14-plusipad-without-computer-by-drfone-ios/"><u>How to Unlock Disabled iPhone 14 Plus/iPad Without Computer</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/mastering-the-marketplace-30-advanced-fb-techniques-explored/"><u>Mastering the Marketplace 30 Advanced FB Techniques Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/winning-a-share-of-the-725-million-facebook-settlement/"><u>Winning a Share of the $725 Million Facebook Settlement</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-how-to-post-a-picture-on-youtube-for-2024/"><u>[New] How to Post a Picture on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-step-by-step-perfecting-fbs-360-streams/"><u>[New] In 2024, Step-by-Step Perfecting FB's 360 Streams</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-like-factor-techniques-for-traffic-driving-facebook-content/"><u>[New] In 2024, The Like Factor Techniques for Traffic-Driving Facebook Content</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-foundations-of-facebook-video-marketing/"><u>[New] The Foundations of Facebook Video Marketing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unplugging-pauses-from-social-streams-a-2023-approach-to-fixing-livestream-issues/"><u>[Updated] 2024 Approved Unplugging Pauses From Social Streams A 2023 Approach to Fixing Livestream Issues</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unlocking-facebooks-secrets-an-introductory-guide/"><u>[Updated] In 2024, Unlocking Facebook's Secrets An Introductory Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/crafting-memorable-visual-narratives-with-instagram-captions-for-2024/"><u>Crafting Memorable Visual Narratives with Instagram Captions for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/discover-the-best-13-free-dvd-playing-software-options-compatible-with-windows-1011-in-depth-review/"><u>Discover the Best 13 Free DVD Playing Software Options Compatible with Windows 10/11 | In-Depth Review</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-oppo-reno-9a-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Oppo Reno 9A PC | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/maximizing-ipad-audio-record-best-tips-for-2024/"><u>Maximizing iPad Audio Record Best Tips for 2024</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/pantalla-azul-en-windows-11-tus-mejores-estrategias-correctivas-y-soluciones-rapidas-ahora-disponibles/"><u>Pantalla Azul en Windows 11 - Tus Mejores Estrategias Correctivas Y Soluciones Rápidas Ahora Disponibles!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/upgrading-guide-macos-mojave-versus-macos-high-sierra-which-should-you-choose-for-macos-1014-upgrade/"><u>Upgrading Guide: MacOS Mojave versus macOS High Sierra - Which Should You Choose for macOS 10.14 Upgrade?</u></a></li>
 </ul></div>
 

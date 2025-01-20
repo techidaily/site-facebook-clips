@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Fast Friending  Mastering the Art of Profile Searches\""
-date: 2025-01-09T19:50:44.329Z
-updated: 2025-01-13T19:06:26.822Z
+date: 2025-01-16T19:07:16.069Z
+updated: 2025-01-19T16:35:33.570Z
 tags:
   - ai video
   - ai facebook
@@ -36,23 +36,23 @@ Here are two ways to search people on Facebook. The second option also helps you
 
 ## Part 1: How to search people on Facebook
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 1: Log in to Facebook
 
 Open Facebook on your computer – Firstly, open a web browser and get to the Facebook website. You can find the log in fields on the top right corner of the page. Input your user ID and password and hit the login button at the side to proceed further.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 2: Check your list of Friends on Facebook
 
 On the header tool icons, click on your name and you are directed to your Facebook wall or timeline. Just below your cover image, click the friend’s tab, to reach the Friends page that shows all your friends on Facebook.
 
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 3: Friends Finder Page
 
@@ -61,7 +61,11 @@ To reach the friend’s finder page, click on “find friends” from the friend
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 4: Friends Search
@@ -72,6 +76,10 @@ On the top right of old friends search, you can find the “search for your frie
 
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to search people using Search Is Back
 
 ### 1\. Open and Select
@@ -79,10 +87,6 @@ On the left panel, you can find several names matching your search filter. You j
 On a browser open the [Search is Back site](https://searchisback.com/). You can find four tabs at the top of the page. Click on the first tab, “Find People” and a page appears to select your picks from the available options.
 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Input your Interest
 
@@ -94,16 +98,12 @@ Once you have filled in all the filters in the page, you can hit Find People but
 
 ![search is back facebook](https://images.wondershare.com/filmora/article-images/search-is-back-interest.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note**: If there are no results on the redirected Facebook page, you must get back to the Search is Back page and change your search filters to start a new round of search.
 
 Like Find People tab at the top of the page, you may also search events, posts, shares and photos from the event, post & shares, and photos tabs at the top of the page.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -135,17 +135,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-best-panzoid-intro-maker-templates-for-2024/"><u>[New] Best Panzoid Intro Maker Templates for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-the-ultimate-viewer-writers-guide-for-2024/"><u>[New] The Ultimate Viewer' Writers Guide for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-from-periscope-to-pro-livestreaming-basics-for-ios-and-android/"><u>[Updated] 2024 Approved From Periscope to Pro Livestreaming Basics for iOS and Android</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-transformative-tactics-for-skyrocketing-subscribers-on-youtube/"><u>[Updated] In 2024, Transformative Tactics for Skyrocketing Subscribers on Youtube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-masterful-free-fb-picture-and-film-producer/"><u>2024 Approved Masterful Free FB Picture & Film Producer</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-skys-best-hd-pics-top-website-guide/"><u>2024 Approved Sky's Best HD Pics Top Website Guide</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/1722897678540-discover-samsungs-next-big-thing-the-galaxy-z-fold-6-with-release-info-and-pricing-details/"><u>Discover Samsung's Next Big Thing: The Galaxy Z Fold 6 with Release Info & Pricing Details!</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1722990448600-football-manager-2022-pc-stability-fixed-no-more-crashes/"><u>Football Manager 2022 PC Stability Fixed - No More Crashes!</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/from-disruption-to-dominance-6-strategies-for-ai-ready-professionals/"><u>From Disruption to Dominance: 6 Strategies for AI-Ready Professionals</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-basic-strategy-revamping-fishy-windowspeak/"><u>In 2024, Basic Strategy Revamping Fishy Windowspeak</u></a></li>
-<li><a href="https://review-topics.techidaily.com/motorola-moto-g-5g-2023-video-recovery-recover-deleted-videos-from-motorola-moto-g-5g-2023-by-fonelab-android-recover-video/"><u>Motorola Moto G 5G (2023) Video Recovery - Recover Deleted Videos from Motorola Moto G 5G (2023)</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/study-diversity-in-fb-video-shapes-for-2024/"><u>Study Diversity in FB Video Shapes for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-mastering-the-art-of-motion-creating-engaging-profitable-fb-ads/"><u>[New] 2024 Approved Mastering the Art of Motion Creating Engaging, Profitable FB Ads</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-essential-skills-for-harvesting-and-storing-gifs-from-facebooks-feed/"><u>[New] Essential Skills for Harvesting and Storing GIFs From Facebook's Feed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-anatomy-of-apple-m1-chip-redefining-tech/"><u>[New] The Anatomy of Apple M1 Chip, Redefining Tech</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unlock-the-power-of-your-fb-lives-with-these-picks/"><u>[Updated] 2024 Approved Unlock the Power of Your Fb Lives with These Picks</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-elevate-your-experience-top-5-facebook-revelations-for-2024/"><u>[Updated] Elevate Your Experience Top 5 Facebook Revelations for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-enhancing-visual-aesthetics-adding-black-bar-and-box-to-videos-for-2024/"><u>[Updated] Enhancing Visual Aesthetics Adding Black Bar & Box to Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-ultimate-mp4-to-social-media-focus-on-facebook/"><u>[Updated] Ultimate MP4 to Social Media Focus on Facebook</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-rolling-back-macos-sierra-to-el-capitan-version/"><u>2024 Approved Rolling Back MacOS Sierra to El Capitan Version</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/apple-improves-iphone-durability-with-easier-repair-features-for-iphone-16-says-zdnet-analysis/"><u>Apple Improves iPhone Durability with Easier Repair Features for iPhone 16, Says ZDNet Analysis</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/effective-ways-share-facebook-videos-to-whatsapp-in-2024/"><u>Effective Ways | Share Facebook Videos to WhatsApp, In 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-the-security-questions-of-your-apple-id-from-your-apple-iphone-6-plus-by-drfone-ios/"><u>In 2024, How To Reset the Security Questions of Your Apple ID From Your Apple iPhone 6 Plus</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-maximizing-zoom-video-details-step-by-step-methods/"><u>In 2024, Maximizing Zoom Video Details Step-by-Step Methods</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/live-commerce-next-chapter-can-ai-unlock-its-true-potential-for-2024/"><u>Live Commerce Next Chapter Can AI Unlock Its True Potential for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unlock-the-power-of-engagement-to-monetize-facebook/"><u>Unlock the Power of Engagement to Monetize Facebook</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/yac540-yamahaaturbosound-ii-sound-module-based-on-the-ymf769ymu769-dsp-plus-midi-synthesizer-plus-codec-and-128-mb-of-spiram-for-sample-storage-instead-of-r116/"><u>YAC540 - Yamaha'aturboSound II Sound Module Based on the YMF769/YMU769 (DSP + MIDI Synthesizer + Codec) and 128 MB of SPIRAM for Sample Storage Instead of ROM. It Also Includes a Second Audio Input Connector</u></a></li>
 </ul></div>
 

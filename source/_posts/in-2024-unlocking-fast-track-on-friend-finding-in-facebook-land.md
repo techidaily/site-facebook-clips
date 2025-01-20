@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Unlocking Fast Track on Friend-Finding in Facebook Land\""
-date: 2025-01-11T19:24:42.985Z
-updated: 2025-01-13T20:58:14.183Z
+date: 2025-01-13T22:45:51.869Z
+updated: 2025-01-19T19:04:53.079Z
 tags:
   - ai video
   - ai facebook
@@ -46,6 +46,10 @@ On the header tool icons, click on your name and you are directed to your Facebo
 
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 3: Friends Finder Page
 
 To reach the friend’s finder page, click on “find friends” from the friends’ page header. Doing so takes you to the “Friends Finder” page of Facebook.
@@ -53,26 +57,26 @@ To reach the friend’s finder page, click on “find friends” from the friend
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 4: Friends Search
 
 On the top right of old friends search, you can find the “search for your friends” filters. To search your old friends by name, you have to enter their part or full names in the name field and look for them. To find your friends by their location, you may enter your friend’s hometown city’s name in the hometown field to search them by the place when they earlier lived in. To find your school friends or High school and university friends, you may enter the schools’ name and search for them. For searching your old colleagues, you may enter the company or employer’s name and find people who worked in the same organization.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 5: Check the results
 
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to search people using Search Is Back
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Open and Select
 
@@ -84,22 +88,22 @@ On a browser open the [Search is Back site](https://searchisback.com/). You can 
 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Add People as Friends
 
 Once you have filled in all the filters in the page, you can hit Find People button at the end. When you hit the button, you are directed to the Facebook page to show your friend list.
 
 ![search is back facebook](https://images.wondershare.com/filmora/article-images/search-is-back-interest.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note**: If there are no results on the redirected Facebook page, you must get back to the Search is Back page and change your search filters to start a new round of search.
 
 Like Find People tab at the top of the page, you may also search events, posts, shares and photos from the event, post & shares, and photos tabs at the top of the page.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -116,10 +120,6 @@ If you want to make Facebook videos, try to use [Filmora](https://tools.techidai
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -135,22 +135,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-the-ultimate-strategy-for-creating-viral-hashtags-on-facebook/"><u>[New] 2024 Approved The Ultimate Strategy for Creating Viral Hashtags on Facebook</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-capture-cumulative-chronicles-for-2024/"><u>[New] Capture Cumulative Chronicles for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ootball-inscriptions-premier-fifa-youtube-insights/"><u>[New] Football Inscriptions Premier FIFA YouTube Insights</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-how-to-enable-youtube-videos-to-self-play-on-facebook-for-2024/"><u>[New] How to Enable Youtube Videos to Self-Play on Facebook for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-perfecting-the-art-of-hd-broadcasting-on-facebookshiftscreenresolution-for-2024/"><u>[New] Perfecting the Art of HD Broadcasting on Facebook'shift_screen_resolution for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-free-fb-links-breeze-through-the-process-for-2024/"><u>[Updated] Free FB Links, Breeze Through the Process for 2024</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/2024-approved-videotwit-extractor-directly-download-tweeted-media-for-mobile/"><u>2024 Approved VideoTwit Extractor Directly Download Tweeted Media for Mobile</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-correctly-troubleshoot-and-solve-error-0x80n4005-a-step-by-step-guide/"><u>How to Correctly Troubleshoot and Solve Error 0X80n4005 - A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-enhancing-engagement-on-facebook-a-beginners-roadmap/"><u>In 2024, Enhancing Engagement on Facebook A Beginner’s Roadmap</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-pathway-for-pixels-transferring-data-to-computers/"><u>In 2024, Pathway for Pixels Transferring Data to Computers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-the-most-inexpensive-video-cameras-reviewed/"><u>In 2024, The Most Inexpensive Video Cameras Reviewed</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlocking-iphone-11-pro-max-passcode-without-a-computer-drfone-by-drfone-ios/"><u>In 2024, Unlocking iPhone 11 Pro Max Passcode without a Computer | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/integrating-youtube-autoplay-smoothly-into-your-facebook-experience-for-2024/"><u>Integrating Youtube Autoplay Smoothly Into Your Facebook Experience for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/maximizing-visibility-post-facebook-update/"><u>Maximizing Visibility Post-Facebook Update</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolved-how-to-address-and-correct-days-gone-not-starting-up-on-windowspc/"><u>Resolved! How To Address and Correct Days Gone Not Starting Up on Windows/PC</u></a></li>
-<li><a href="https://win-exclusive.techidaily.com/top-strategies-for-generating-secure-protected-pdf-files-with-passwords/"><u>Top Strategies for Generating Secure, Protected PDF Files with Passwords</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/transform-ordinary-to-outstanding-creating-captivating-square-videos-on-fb/"><u>Transform Ordinary to Outstanding Creating Captivating Square Videos on FB</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expertly-curated-animated-type-library/"><u>[New] Expertly Curated Animated Type Library</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-introducing-top-tier-facebook-update-insights/"><u>[New] Introducing Top-Tier Facebook Update Insights</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-master-the-art-of-downloading-gifs-from-facebook-on-multiple-devices-effortlessly/"><u>[New] Master the Art of Downloading GIFs From Facebook on Multiple Devices Effortlessly</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-ultimate-obs-studio-guide-to-facebook-live-broadcasts-for-2024/"><u>[New] The Ultimate OBS Studio Guide to Facebook Live Broadcasts for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-tips-resolving-microsoft-print-to-pdf-problems-across-windows-1011-systems/"><u>Expert Tips: Resolving Microsoft Print to PDF Problems Across Windows 10/11 Systems</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-xiaomi-14-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Xiaomi 14 | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-free-and-fantastic-the-best-vob-video-editors/"><u>Updated In 2024, Free and Fantastic The Best VOB Video Editors</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-the-ultimate-filmora-coupon-code-resource-7-ways-to-save-for-2024/"><u>Updated The Ultimate Filmora Coupon Code Resource 7 Ways to Save for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/youtube-video-dimension-standards-for-2024/"><u>YouTube Video Dimension Standards for 2024</u></a></li>
 </ul></div>
 

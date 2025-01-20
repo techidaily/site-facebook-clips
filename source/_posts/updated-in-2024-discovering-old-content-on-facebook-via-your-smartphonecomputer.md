@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Discovering Old Content on Facebook via Your Smartphone/Computer"
-date: 2025-01-06T16:09:13.721Z
-updated: 2025-01-13T16:23:25.761Z
+date: 2025-01-12T16:23:52.510Z
+updated: 2025-01-19T20:00:18.124Z
 tags:
   - ai video
   - ai facebook
@@ -38,7 +38,7 @@ Facebook has a complex interface, but it will be much easier to navigate it once
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to View Old Stories on iPhone/Android Facebook App?
@@ -60,7 +60,7 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -78,7 +78,7 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -99,6 +99,10 @@ People make a **series of highlights** and name them accordingly. If the story i
 
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -116,7 +120,7 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
@@ -141,10 +145,6 @@ Facebook is an excellent platform to interact with your audience, and the story 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -160,22 +160,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-conciseness-in-content-editing-your-youtube-videos-smartly/"><u>[New] 2024 Approved Conciseness in Content Editing Your YouTube Videos Smartly</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-mastering-in-stream-fb-ad-configurations-and-impact-assessment/"><u>[New] 2024 Approved Mastering In-Stream FB Ad Configurations & Impact Assessment</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-rhythm-and-reels-posting-melodies-on-social-media/"><u>[New] 2024 Approved Rhythm & Reels Posting Melodies on Social Media</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-sharecast-extracting-fb-media/"><u>[New] 2024 Approved ShareCast Extracting Fb Media</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-bridge-between-platforms-sharing-facebook-videos-on-whatsapp-for-2024/"><u>[New] Bridge Between Platforms Sharing Facebook Videos on WhatsApp for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-unlocking-the-full-potential-of-pc-sound-capture/"><u>[New] Unlocking the Full Potential of PC Sound Capture</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-ultimate-guide-to-winning-with-facebook-videos/"><u>2024 Approved The Ultimate Guide to Winning with Facebook Videos</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/coming-soon-windows-10-eol-approaches-explore-alternative-operating-systems/"><u>Coming Soon: Windows 10 EOL Approaches – Explore Alternative Operating Systems</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/decoding-facebooks-in-stream-ad-setup-process-from-basics-to-advanced-strategies/"><u>Decoding Facebook's In-Stream Ad Setup Process From Basics to Advanced Strategies</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Oppo K11x | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-grab-and-reel-the-essential-5-apps-for-social-media-video-capture/"><u>In 2024, Grab & Reel The Essential 5 Apps for Social Media Video Capture</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-uncover-top-8-sites-offering-free-3d-text-psd-images-and-files/"><u>In 2024, Uncover Top 8 Sites Offering FREE 3D Text PSD Images and Files</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/innovating-your-fb-experience-with-stunning-video-covers/"><u>Innovating Your FB Experience with Stunning Video Covers</u></a></li>
-<li><a href="https://win11.techidaily.com/navigating-error-with-windows-previous-credentials/"><u>Navigating Error with Windows Previous Credentials</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/olympic-thrills-amidst-snowy-bliss-in-beijing-2022-for-2024/"><u>Olympic Thrills Amidst Snowy Bliss in Beijing 2022 for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-10-best-free-video-flipper-tools-to-rotate-your-clips-for-2024/"><u>Updated 10 Best Free Video Flipper Tools to Rotate Your Clips for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Motorola Moto G13? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-best-practices-for-creating-compelling-hash-tags-on-facebook-for-2024/"><u>[New] Best Practices for Creating Compelling Hash Tags on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-enhanced-visual-content-incorporate-bb-overlays-in-fb-video-frames/"><u>[New] Enhanced Visual Content Incorporate BB Overlays in FB Video Frames</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-autoplay-facebook-videos-for-2024/"><u>[New] How to Autoplay Facebook Videos for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-infusing-impact-best-practices-for-podcast-graphics/"><u>[New] Infusing Impact Best Practices for Podcast Graphics</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-top-mac-studio-for-exceptional-video-and-audiophile-recordings/"><u>[New] Top Mac Studio for Exceptional Video & Audiophile Recordings</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-essential-tips-for-navigating-zoom-on-windows-11/"><u>[Updated] 2024 Approved Essential Tips for Navigating Zoom on Windows 11</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-whatsapp-friendly-broadcasting-facebook-videos/"><u>[Updated] WhatsApp-Friendly Broadcasting Facebook Videos</u></a></li>
+<li><a href="https://common-error.techidaily.com/efficiently-tackle-wudfhostexe-high-resource-drain-on-windows-11-devices/"><u>Efficiently Tackle wudfhost.exe High Resource Drain on Windows 11 Devices</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/epicmosaic-insta-video-fusion-for-iosandroid/"><u>EpicMosaic Insta Video Fusion for iOS/Android</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-resolve-oppo-reno-9a-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Oppo Reno 9A Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-essential-tactics-for-viral-fb-video-marketing/"><u>In 2024, Essential Tactics for Viral FB Video Marketing</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-guide-overcoming-the-red-screen-challenge-in-windows-11/"><u>Step-by-Step Guide: Overcoming the Red Screen Challenge in Windows 11</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-tips-to-correct-laptop-mouse-malfunctions-and-freezes/"><u>Troubleshooting Tips to Correct Laptop Mouse Malfunctions and Freezes</u></a></li>
 </ul></div>
 

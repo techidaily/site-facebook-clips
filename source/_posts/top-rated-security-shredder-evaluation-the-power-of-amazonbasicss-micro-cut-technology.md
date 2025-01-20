@@ -1,7 +1,7 @@
 ---
 title: "Top Rated Security Shredder Evaluation: The Power of AmazonBasics's Micro-Cut Technology"
-date: 2025-01-06T20:24:03.366Z
-updated: 2025-01-13T20:31:31.690Z
+date: 2025-01-13T21:38:59.004Z
+updated: 2025-01-19T22:35:10.965Z
 categories:
   - BestProducts
 description: "This Article Describes Top Rated Security Shredder Evaluation: The Power of AmazonBasics's Micro-Cut Technology"
@@ -14,7 +14,7 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
@@ -71,7 +71,7 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Pretty awkward**
@@ -81,10 +81,6 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
  With very large sides, the front is really just a small panel with light-up LED indicators showing connectivity details and which Ethernet ports are in use. There’s also a small WPS button beneath the LED panel for easy connectivity with a router. On the wider back panel are the four wired[Ethernet ports](https://www.lifewire.com/what-is-an-ethernet-port-817546) for plugging in devices such as game consoles and computers, as well as a USB 3.0 port, DC power port, and the power button itself.
 
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Avoid the app**
 
@@ -98,7 +94,15 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Connectivity: Smooth sailing**
 
@@ -115,10 +119,6 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
  Given the high max speeds, it wasn’t surprising to see strong gaming performance, as well. While playing Rocket League, I saw smooth gameplay across the wired Ethernet connection as well as both wireless networks, with a ping as low as 33 via the wired connection. The wireless ping was only a few points higher.
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -145,7 +145,7 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -174,22 +174,22 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-easy-start-exploring-vectors-world-essentials-and-tools/"><u>[New] 2024 Approved Easy Start Exploring Vectors' World - Essentials & Tools</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-fusing-data-and-design-for-dynamic-fb-video-campaigns/"><u>[New] 2024 Approved Fusing Data & Design for Dynamic FB Video Campaigns</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-ultimate-collection-best-zero-price-photo-editing-software/"><u>[New] 2024 Approved The Ultimate Collection Best Zero-Price Photo Editing Software</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-effective-social-crossposting-from-twitch-to-fb/"><u>[Updated] Effective Social Crossposting From Twitch to FB</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-mastering-the-science-proven-methods-for-effective-hashtagging-on-fb/"><u>[Updated] In 2024, Mastering the Science Proven Methods for Effective Hashtagging on FB</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-invest-in-quality-top-5-handhoced-stabilizers-review/"><u>[Updated] Invest in Quality Top 5 Handhoced Stabilizers Review</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-from-clicks-to-coins-mastering-the-art-of-earnings-through-fb-videos/"><u>2024 Approved From Clicks to Coins Mastering the Art of Earnings Through FB Videos</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-in-depth-analysis-top-9-freeware-logo-designers-unveiled/"><u>2024 Approved In-Depth Analysis Top 9 Freeware Logo Designers Unveiled</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-scan-for-collective-shared-content-on-messenger/"><u>2024 Approved Scan for Collective Shared Content on Messenger</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/amp-up-the-sound-beat-downloads-on-fb-for-2024/"><u>Amp Up the Sound Beat Downloads on FB for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/facebook-featured-best-10-music-clips-today/"><u>Facebook Featured Best 10 Music Clips Today</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-vivo-x90s-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Vivo X90S to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Infinix Note 30 VIP | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-snapsnatcher-live-stream-repository/"><u>In 2024, SnapSnatcher - Live Stream Repository</u></a></li>
-<li><a href="https://win-latest.techidaily.com/intuitive-multilingual-layouts-with-tailored-templates-on-flipbuildercom-elevate-your-contents-clarity-and-reach/"><u>Intuitive, Multilingual Layouts with Tailored Templates on FlipBuilder.com - Elevate Your Content's Clarity and Reach</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/syncing-songs-with-your-facebook-chronicles/"><u>Syncing Songs with Your Facebook Chronicles</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/top-performant-mp4-video-encoders-of-202n-a-comprehensive-guide/"><u>Top Performant MP4 Video Encoders of 202N: A Comprehensive Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-leading-edge-top-10-webcams-in-the-latest-os/"><u>[New] 2024 Approved Leading Edge Top 10 Webcams in the Latest OS</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-mastering-your-content-on-facebook-after-algorithms-change/"><u>[New] 2024 Approved Mastering Your Content on Facebook After Algorithms Change</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-macbook-air-vs-pro-evaluating-the-m1-advantage/"><u>[New] In 2024, MacBook Air Vs. Pro Evaluating the M1 Advantage</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-navigating-the-best-practices-for-fb-video-advertising/"><u>[New] In 2024, Navigating the Best Practices for FB Video Advertising</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-set-up-facebook-streaming-pcmaclaptop-tutorial-with-obs-for-2024/"><u>[New] Set Up Facebook Streaming PC/Mac/Laptop Tutorial with OBS for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-understanding-and-executing-photo-gender-modification-across-platforms-for-2024/"><u>[New] Understanding and Executing Photo Gender Modification Across Platforms for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-fb-content-extraction-mastered-discover-the-5-apps/"><u>[Updated] 2024 Approved FB Content Extraction Mastered - Discover the #5 Apps</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-transform-your-chronicles-free-extensions-and-mobile-apps-galore/"><u>[Updated] 2024 Approved Transform Your Chronicles FREE Extensions & Mobile Apps Galore</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-a-beginners-key-to-mastering-social-media-metrics/"><u>[Updated] A Beginner's Key to Mastering Social Media Metrics</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-engage-audience-directly-from-xbox-with-fb-live/"><u>[Updated] In 2024, Engage Audience Directly From Xbox with FB Live</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2023-facebook-short-videos-and-everything-about-them/"><u>2023 | Facebook Short Videos and Everything About Them</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/adjusting-your-mouse-configurations-a-guide-using-the-windows-control-panel-by-yl-software/"><u>Adjusting Your Mouse Configurations: A Guide Using the Windows Control Panel by YL Software</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-integration-with-bing-app-top-tips-for-android-smartphone-owners/"><u>AI Integration with Bing App: Top Tips for Android Smartphone Owners</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722959258743-fix-hp-envy-7640-driver-issues-easily/"><u>Fix HP ENVY 7640 Driver Issues. Easily!</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-rewind-and-play-instagrams-backwards-videos-unveiled/"><u>In 2024, Rewind and Play Instagram's Backwards Videos Unveiled</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/navigating-facebooks-copyright-enforcement-on-live-feeds-for-2024/"><u>Navigating Facebook's Copyright Enforcement on Live Feeds for 2024</u></a></li>
+<li><a href="https://win-guides.techidaily.com/understanding-link-farms-a-comprehensive-guide-with-essential-seo-strategies/"><u>Understanding Link Farms: A Comprehensive Guide with Essential SEO Strategies</u></a></li>
 </ul></div>
 

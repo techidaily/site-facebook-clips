@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unmarked Eyes  Facebook Story Viewer\""
-date: 2025-01-11T16:31:35.805Z
-updated: 2025-01-13T19:24:05.663Z
+date: 2025-01-17T22:10:49.019Z
+updated: 2025-01-19T20:20:00.623Z
 tags:
   - ai video
   - ai facebook
@@ -38,13 +38,13 @@ Just like you can upload something on your story for others to see, you can also
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -63,10 +63,6 @@ Just like you can upload something on your story for others to see, you can also
 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to View Someone's Facebook Story Anonymously? \[ 4 Ways\]
 
 ### Method 1: Turn on the Airplane Mode
@@ -81,10 +77,6 @@ When you turn on the airplane mode of your device, your phone will no longer be 
 
 Once you are done, force close the Facebook application so that it doesn't run in the background when you disable the Airplane Mode. Because if you do that, your name can get registered. So, close the app completely. Please note that when the Airplane mode is on, some stories will not load. To watch them, you need to turn on and off the airplane mode again.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 2: Half Swipe
 
 As the name suggests, rather than watching the entire story, you need to stop watching it halfway through. The only apparent disadvantage of this method is you won't be able to see the whole story. The step that you will have to follow will be similar to watching a story normally. Follow these steps:
@@ -94,6 +86,10 @@ As the name suggests, rather than watching the entire story, you need to stop wa
 **Step 2:** While viewing, put the finger on the story right before the story is about to end.
 
 **Step 3:** Quickly swipe right or left and make sure the story doesn't end. This way, Facebook won't register you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 3: Block Them
 
@@ -117,12 +113,16 @@ For the last resort, you can deactivate your account and reactivate it after a w
 
 Once 24 hours is over, you can log in to reactive your account.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How Do I See Someone's Story on Facebook?
 
 There are three easy ways to see someone's story on Facebook. One way is to use the web browser of your pc or Mac, the second is exploring Facebook stories on Facebook Messenger, and the third is by using the Facebook mobile app. We will discuss these three methods below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 1: View Facebook Stories through the Website Browser
@@ -130,6 +130,10 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 **Step 1:** Use any of the browsers on your computer and visit Facebook.Log in, and the home page will be displayed. On the top, you will see the stories.
 
 **Step 2:** Click on any of the stories to view them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: View Facebook Story Through Facebook Messenger
 
@@ -148,7 +152,7 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 ![View Facebok Story on mobile](https://images.wondershare.com/filmora/article-images/view-facebook-story-mobile-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Check Facebook Story Views?
@@ -161,11 +165,11 @@ Facebook allows you to check who viewed your stories. This is known as **Faceboo
 
 ![View who have seen my Facebok Story  ](https://images.wondershare.com/filmora/article-images/check-who-viewed-facebook-story.jpg)
 
-Now, you can see the list of people's names who have seen your story. This step will remain the same for both computer and mobile app users.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Now, you can see the list of people's names who have seen your story. This step will remain the same for both computer and mobile app users.
 
 ## Part 4: FAQs About Viewing Facebook Story
 
@@ -195,10 +199,6 @@ Yes, just like you can see who viewed your Facebook story, others can also check
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -214,17 +214,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-2023s-undisclosed-video-download-tools-1-8-rankings/"><u>[New] 2024 Approved 2023'S Undisclosed Video Download Tools #1-8 Rankings</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-5-top-tier-gaming-displays-in-4k-quality/"><u>[New] 2024 Approved 5 Top-Tier Gaming Displays in 4K Quality</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-mystery-reader-fb-narratives-explorer/"><u>[New] 2024 Approved Mystery Reader FB Narratives Explorer</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-transforming-daily-routine-into-a-social-media-journey-on-fb/"><u>[New] Transforming Daily Routine Into a Social Media Journey on FB</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-invisible-enthusiast-of-facebook-episodes/"><u>[Updated] 2024 Approved Invisible Enthusiast of Facebook Episodes</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-investing-in-quality-the-path-to-top-tier-fb-video-ads-for-2024/"><u>[Updated] Investing in Quality The Path to Top-Tier FB Video Ads for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-mastering-low-audio-levels-in-logic-pro/"><u>[Updated] Mastering Low Audio Levels in Logic Pro</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-overview-fb-video-dimension-categories-for-2024/"><u>[Updated] Overview FB Video Dimension Categories for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-unlock-windows-xp-professional-for-media-development/"><u>2024 Approved Unlock Windows XP Professional for Media Development</u></a></li>
-<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-itel-p55t-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Itel P55T Isnt Compatible | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/effective-guide-to-cast-apple-iphone-13-pro-max-to-macbook-without-hindrance-drfone-by-drfone-ios/"><u>Effective Guide to Cast Apple iPhone 13 Pro Max to MacBook without Hindrance | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/how-to-assess-if-your-iphone-fits-in-upgrade-echelons/"><u>How to Assess if Your iPhone Fits in Upgrade Echelons</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-exploring-mac-best-sniping-tools-ranked-for-2024/"><u>[New] Exploring Mac Best Sniping Tools Ranked for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-rescue-absent-watch-thumbnail-icon/"><u>[New] In 2024, Rescue Absent Watch Thumbnail Icon</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-best-of-the-best-yts-premier-unboxing-sites/"><u>[New] The Best of the Best YT's Premier Unboxing Sites</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-mastering-the-self-play-feature-in-facebook-videos/"><u>[Updated] In 2024, Mastering the Self-Play Feature in Facebook Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-stop-facebook-ad-popups-for-peaceful-browsing-for-2024/"><u>[Updated] Stop Facebook Ad Popups for Peaceful Browsing for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-tips-to-nail-every-green-screen-scene/"><u>[Updated] Top Tips to Nail Every Green Screen Scene</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-fix-mobile-device-errors-fb-vids-not-loading/"><u>2024 Approved Fix Mobile Device Errors FB Vids Not Loading</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-turn-social-media-audio-into-mp3/"><u>2024 Approved Turn Social Media Audio Into MP3</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/achieving-elite-visual-results-a-guide-to-advanced-color-correction-methods/"><u>Achieving Elite Visual Results: A Guide to Advanced Color Correction Methods</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/enhance-live-footage-overcoming-blurry-video-issues-in-chrome/"><u>Enhance Live Footage Overcoming Blurry Video Issues in Chrome</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/i-tried-both-apple-watch-series-9-vs-fitbit-charge-6/"><u>I Tried Both: Apple Watch Series 9 vs Fitbit Charge 6</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-infinix-zero-30-5g-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Infinix Zero 30 5G</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/software-gratis-para-restaurar-archivos-de-respaldo/"><u>Software Gratis Para Restaurar Archivos De Respaldo</u></a></li>
 </ul></div>
 
