@@ -1,7 +1,7 @@
 ---
 title: "[New] Making a Lasting Impression with Profile Clips"
-date: 2025-01-12T16:24:44.402Z
-updated: 2025-01-19T19:03:10.228Z
+date: 2025-01-20T22:36:46.146Z
+updated: 2025-01-25T17:26:00.914Z
 tags:
   - ai video
   - ai facebook
@@ -47,21 +47,21 @@ thumbnail: https://thmb.techidaily.com/eda53d482272507886f33101cf7c17fbcff2ff9c0
 
 ![filmora elements](https://images.wondershare.com/filmora/article-images/elements-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * First you need to hit the Elements tab in the tool bar and then choose the elements you want to use and drag them to the PIP track. For instance here I am selecting Element Emoji 8.
 
 ![filmora elements emoji](https://images.wondershare.com/filmora/article-images/elements-emoji.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Now you need to double click the above mentioned element on the timeline and then choose an animated effect for the Emoji effect. Now hit the OK button. One can also choose to hit the Advanced button for editing the Mask and Green Screen effect from the PIP edit.
 
 ![emoji animated effects](https://images.wondershare.com/filmora/article-images/emoji-animated-effects.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * The size and the position of the Emoji element needs to be adjusted accordingly.
 
@@ -72,7 +72,7 @@ thumbnail: https://thmb.techidaily.com/eda53d482272507886f33101cf7c17fbcff2ff9c0
 ![emoji element preview](https://images.wondershare.com/filmora/article-images/emoji-preview.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Note: It needs to be noted here that you will be able to zoom in and zoom out the timeline so as to view all the clips in the timeline with clarity. In case the duration of the video is lengthy then you can alter the duration of the still photos or cut some of the clips from the video footage. In order to use other effects like overlays and filters you just need to depend on Filmora.
@@ -84,7 +84,7 @@ thumbnail: https://thmb.techidaily.com/eda53d482272507886f33101cf7c17fbcff2ff9c0
 ![export output](https://images.wondershare.com/filmora/article-images/export-output.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Note: Remember that the export isn’t going to transfer the videos to your mobile device directly. The video is going to be stored in the local hard disk.
@@ -110,7 +110,7 @@ thumbnail: https://thmb.techidaily.com/eda53d482272507886f33101cf7c17fbcff2ff9c0
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -128,22 +128,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-humorhub-generate-hilarious-jokes-and-gifs-easily/"><u>[New] 2024 Approved HumorHub Generate Hilarious Jokes and GIFs Easily</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-mastering-facebook-cover-videos-essential-insights/"><u>[New] 2024 Approved Mastering Facebook Cover Videos Essential Insights</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-become-a-gif-whisperer-crafting-images-from-vimeo-videos/"><u>[New] In 2024, Become a GIF Whisperer Crafting Images From Vimeo Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-the-ultimate-guide-to-linking-fb-stories/"><u>[New] The Ultimate Guide to Linking FB Stories</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-10-key-devices-for-effective-zoom-sessions/"><u>[Updated] 2024 Approved 10 Key Devices for Effective Zoom Sessions</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-elite-facebook-file-fetcher-for-firefox-users/"><u>[Updated] 2024 Approved Elite Facebook File Fetcher For Firefox Users</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-quick-tips-for-posting-videos-on-instagram/"><u>[Updated] 2024 Approved Quick Tips for Posting Videos on Instagram</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-grasping-video-clarity-the-first-lessons-on-hd/"><u>[Updated] Grasping Video Clarity The First Lessons on HD</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-hottest-8-video-clips-trending-today-online/"><u>[Updated] In 2024, The Hottest 8 Video Clips Trending Today Online</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-leading-talents-top-instagram-hlv-constructors-for-2024/"><u>[Updated] Leading Talents Top Instagram HLV Constructors for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/cutting-edge-tactics-for-grabbing-your-favorite-fb-vids/"><u>Cutting Edge Tactics for Grabbing Your Favorite FB Vids</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/decoding-the-micro-video-phenomenon-on-facebook/"><u>Decoding the Micro-Video Phenomenon on Facebook</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-maximizing-your-marketing-mettle-on-youtube/"><u>In 2024, Maximizing Your Marketing Mettle on Youtube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-unveiling-the-secrets-of-fb-video-full-screen/"><u>In 2024, Unveiling the Secrets of FB Video Full-Screen</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-video-privacy-made-easy-face-blurring-with-top-editing-tools-for-2024/"><u>New Video Privacy Made Easy Face Blurring with Top Editing Tools for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/no-itunes-needed-how-to-perform-a-fresh-start-on-your-iphone/"><u>No iTunes Needed: How to Perform a Fresh Start on Your iPhone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unveiling-techniques-to-reconstruct-damaged-windows-registry-sections/"><u>Unveiling Techniques to Reconstruct Damaged Windows Registry Sections</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-televising-fb-live-top-methods-explored/"><u>[New] 2024 Approved Televising FB Live Top Methods Explored</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-economical-camera-options-best-deals-for-diy-vloggers/"><u>[New] In 2024, Economical Camera Options Best Deals for DIY Vloggers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unveil-secrets-to-speedy-caption-design-in-facebook-media-for-2024/"><u>[New] Unveil Secrets to Speedy Caption Design in Facebook Media for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-clearing-up-cloudy-content-on-androidiphone/"><u>[Updated] 2024 Approved Clearing Up Cloudy Content on Android/iPhone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-skyrocket-to-1000-subscribers-in-days/"><u>[Updated] 2024 Approved Skyrocket to 1,000 Subscribers in Days</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-from-zero-to-hero-establishing-a-new-social-media-presence-facebook/"><u>[Updated] In 2024, From Zero to Hero Establishing a New Social Media Presence (Facebook)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-snap-youtube-to-mp4-now-facebook-too/"><u>[Updated] In 2024, Snap YouTube to MP4, Now Facebook Too</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-the-secrets-of-successfully-posting-imovie-videos-on-vimeo/"><u>[Updated] In 2024, The Secrets of Successfully Posting iMovie Videos on Vimeo</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unmasking-phony-fans-in-social-media/"><u>[Updated] Unmasking Phony Fans in Social Media</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/getting-windows-10-driver-updates-done-in-a-flash-tips-and-tricks/"><u>Getting Windows 10 Driver Updates Done in a Flash: Tips & Tricks</u></a></li>
+<li><a href="https://some-tips.techidaily.com/guide-to-revamping-apps-on-macos-with-ease-learn-the-dual-approaches-by-experts-at-zdnet/"><u>Guide to Revamping Apps on macOS with Ease – Learn the Dual Approaches by Experts at ZDNet</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-vivo-x90s-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Vivo X90S to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-xiaomi-13t-pro-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Xiaomi 13T Pro</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-xiaomi-redmi-k70-pro-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Xiaomi Redmi K70 Pro Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/streamline-your-watch-time-enable-youtube-autoplay-on-fb/"><u>Streamline Your Watch Time Enable YouTube Autoplay on FB</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-premier-choices-for-ups-battery-backups-this-year/"><u>The Premier Choices for UPS Battery Backups This Year</u></a></li>
 </ul></div>
 

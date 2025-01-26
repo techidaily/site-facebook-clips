@@ -1,7 +1,7 @@
 ---
 title: "Taking Your Tweets Public on Facebook for 2024"
-date: 2025-01-12T19:30:31.832Z
-updated: 2025-01-19T22:19:19.241Z
+date: 2025-01-19T22:02:56.870Z
+updated: 2025-01-25T16:05:47.717Z
 tags:
   - ai video
   - ai facebook
@@ -30,7 +30,7 @@ thumbnail: https://www.lifewire.com/thmb/qx60cS4CmTRezctL0-71-tWrmCg=/400x300/fi
  In today's fast paced life, it's time-consuming to manage multiple accounts on different social media platforms manually. Fortunately, you can set your Twitter account and sync it with Facebook to kill two birds with a single stone. You can post Tweets to Facebook automatically as updates, sparing your personal intervention. Automatic posting of Tweets on Facebook ensures your friends on both platforms get your updates without the extra work.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Post Tweets to Facebook – Step by Step guide
@@ -43,33 +43,33 @@ thumbnail: https://www.lifewire.com/thmb/qx60cS4CmTRezctL0-71-tWrmCg=/400x300/fi
 
 ![post tweet on facebook 1](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Once you login to your Twitter account, tap on your profile picture on the top right corner of the screen, next to the ‘Tweet' tab.
 2. Now, from the dropdown list shown to you, click ‘Settings and privacy' and then open the ‘Apps' tab from the left panel.
 
 ![post tweet on facebook 2](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Now, hit the ‘Connect to Facebook' option under Applications. You will be prompted with a popup to log in, in case you haven't logged in to Facebook on the same browser. Enter the details and log in.
 
 ![post tweet on facebook 3](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Upon being prompted for permission from Twitter to access your Facebook information, click ‘Continue as \[Facebook Profile/user name\]' to continue.
 
 ![post tweet on facebook 4](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Now you need to configure the ‘Select the privacy settings' to decide who is going to receive your Twitter updates on Facebook. When you post Tweets to Facebook, by default your friends will get to see them.
 2. Now, you need to tap ‘OK' and finish the process. The Tweets and Retweets will be posted to your Facebook with your Twitter username, though the replies for the Tweets won't be posted in Facebook.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Tools for managing your social media accounts
 
@@ -182,7 +182,7 @@ thumbnail: https://www.lifewire.com/thmb/qx60cS4CmTRezctL0-71-tWrmCg=/400x300/fi
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -200,22 +200,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-break-free-the-chuckles-ranking-20-hilarious-fb-detention-scenes/"><u>[New] 2024 Approved Break Free the Chuckles Ranking 20 Hilarious FB Detention Scenes</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-typology-of-fb-video-dimensions/"><u>[New] 2024 Approved Typology of FB Video Dimensions</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-transform-your-tactics-exclusive-free-voice-change-tool-for-valorant-gamers/"><u>[New] Transform Your Tactics Exclusive Free Voice Change Tool for Valorant Gamers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-master-the-art-of-choosing-best-rated-church-streams/"><u>[Updated] 2024 Approved Master the Art of Choosing Best-Rated Church Streams</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-beginners-ultimate-gear-list-for-film-shooting/"><u>[Updated] Beginner's Ultimate Gear List for Film Shooting</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-directing-rhythms-integrating-sounds-into-youtube/"><u>[Updated] Directing Rhythms Integrating Sounds Into Youtube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-rapidly-crafting-valorant-image-highlights-for-gamers-for-2024/"><u>[Updated] Rapidly Crafting Valorant Image Highlights for Gamers for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-unlocking-potential-secrets-to-successful-fb-video-ads/"><u>[Updated] Unlocking Potential Secrets to Successful FB Video Ads</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-decoding-srt-a-detailed-reference-guide/"><u>2024 Approved Decoding SRT A Detailed Reference Guide</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-how-do-i-explore-every-shared-piece-by-friends-on-messages/"><u>2024 Approved How Do I Explore Every Shared Piece by Friends on Messages?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/embrace-the-future-facebook-video-autoplay-for-2024/"><u>Embrace the Future Facebook Video Autoplay for 2024</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/enabling-windows-defender-firewall-in-windows-10-a-step-by-step-guide-by-yl-computing/"><u>Enabling Windows Defender Firewall in Windows 10: A Step-by-Step Guide by YL Computing</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-itel-a60s-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Itel A60s to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/instantaneous-identification-in-the-social-media-jungle/"><u>Instantaneous Identification in the Social Media Jungle</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/reclaim-inaccessible-watch-icon-for-2024/"><u>Reclaim Inaccessible Watch Icon for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/scribing-success-engaging-examples-for-podcasts/"><u>Scribing Success Engaging Examples for Podcasts</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/social-medias-best-video-enhancing-programs-2023/"><u>Social Media's Best Video Enhancing Programs, 2023</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-10-proven-methods-for-boosting-fb-search-rankings-for-2024/"><u>[New] 10 Proven Methods for Boosting FB Search Rankings for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-lightweight-recording-tool-windows-compatible/"><u>[New] 2024 Approved Lightweight Recording Tool, Windows Compatible</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-premium-live-video-conferencing-systems/"><u>[New] 2024 Approved Premium Live Video Conferencing Systems</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-elevating-your-social-signature-top-tips-and-tricks-for-impressive-biographies-on-fb-for-2024/"><u>[New] Elevating Your Social Signature Top Tips and Tricks for Impressive Biographies on FB for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-solutions-to-clear-up-fuzzy-videos-for-mobile-users/"><u>[New] Solutions to Clear Up Fuzzy Videos for Mobile Users</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-clarity-champions-top-10-smartphones-with-high-res-4k-cameras/"><u>[Updated] Clarity Champions Top 10 Smartphones with High-Res 4K Cameras</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-impressive-analysis-and-rival-proposals/"><u>[Updated] Impressive Analysis & Rival Proposals</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-solutions-for-non-deliverable-facebook-messenger-videos-on-androidios-for-2024/"><u>[Updated] Solutions for Non-Deliverable Facebook Messenger Videos on Android/iOS for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-techniques-for-gh-video-logging-for-2024/"><u>[Updated] Techniques for GH Video Logging for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/identifying-the-creator-of-chatgpt-whos-behind-it/"><u>Identifying the Creator of ChatGPT: Who's Behind It?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-the-complete-breakdown-of-facebooks-changes/"><u>In 2024, The Complete Breakdown of Facebook's Changes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-unveiling-the-top-5-facebook-video-downloaders-today/"><u>In 2024, Unveiling the Top 5 Facebook Video Downloaders Today</u></a></li>
+<li><a href="https://win-premium.techidaily.com/microsoft-to-implement-significant-security-enhancements-following-severe-criticism-insights-from-zdnet/"><u>Microsoft to Implement Significant Security Enhancements Following Severe Criticism - Insights From ZDNet</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/polnyj-obzor-vedushih-seo-konsultantov-gamburga-germaniya-proverennaya-kvalifikaciya-i-innovacionnye-strategii/"><u>Полный Обзор Ведущих SEO-Консультантов Гамбурга, Германия: Проверенная Квалификация И Инновационные Стратегии!</u></a></li>
 </ul></div>
 
