@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Discover Unlimited Stories – FREE Extensions & Mobile Marvels\""
-date: 2025-01-24T00:13:11.624Z
-updated: 2025-01-25T19:04:38.877Z
+date: 2025-02-01T16:40:14.873Z
+updated: 2025-02-07T19:42:56.759Z
 tags:
   - ai video
   - ai facebook
@@ -43,6 +43,10 @@ Facebook stories are always short, but you may find some interesting and save th
 
 ![facebook story saver - extensions](https://images.wondershare.com/filmora/article-images/facebook-story-saver-extension.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 For those who want a sure-shot way to download Facebook stories on their PC, you can download the Google Chrome extension named Story Saver. Then, you can go to the extensions page and search for Story Saver. **Facebook story saver** not only works on Facebook stories but WhatsApp and Instagram stories as well.
 
 **Step 1:** Visit the Chrome extension page.
@@ -60,7 +64,7 @@ And that's how the **Facebook Story Saver** for **Chrome** extension works.
 ![facebook story saver - extensions](https://images.wondershare.com/filmora/article-images/swift-video-downloader-for-facebook-story-extension.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Just like Story Saver, there is another extension that you can try. Swift Video Downloader for Facebook is the extension's name that will let you view all the stories in a jiffy and download them to watch them again later. Here are the steps that you need to follow:
@@ -74,12 +78,16 @@ Just like Story Saver, there is another extension that you can try. Swift Video 
 **Step 4:** The stories will be saved in your computer's download folder.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\.  Download Facebook Videos
 
 ![facebook story saver - extensions](https://images.wondershare.com/filmora/article-images/download-facebook-videos-extension-story.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This is an extension essentially to save Facebook videos, but the best part about using it is it lets you save stories, gif images, videos, and more. One extension, but multiple features.
 
@@ -92,12 +100,16 @@ This is an extension essentially to save Facebook videos, but the best part abou
 **Step 4:** Paste the URL, and the video will be saved.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Part 2: Best Story Saver for Facebook Online**
 
 Apart from the Google Chrome extensions, you can try some online tools to download Facebook videos. Although not many online tools can help you save Facebook stories, this section will cover the best ways to do that.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\.  YouTuFab
 
@@ -111,17 +123,9 @@ YouTuFab is a **Facebook story saver** **online** tool that will let you save Fa
 
 **Step 3:** The story will be saved in the download folder.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\.  Facebook Video Downloader
 
 ![facebook story saver - online ](https://images.wondershare.com/filmora/article-images/facebook-video-downloader-story-online.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Just like YouTuFab, here's Facebook Video Downloader, which can help you save Facebook videos, stories, and live streaming. However, it's a cloud-based tool, meaning you will not have to download or install it. Moreover, the stories will be saved in 480p quality.
 
@@ -159,17 +163,9 @@ The last tool that you can try is Wondershare Filmora. It will let you record th
 
 Now, let's find out about the best apps to use to save Facebook stories on iPhone and Android.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\.  Friendly Social Browser
 
 ![facebook story saver - record with filmora ](https://images.wondershare.com/filmora/article-images/friendly-social-browser-facebook-story-saver.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Friendly Social Browser lets you browse through multiple apps, setting you free from downloading numerous apps on your device. One distinctive feature that separates it from all the other similar apps is its' story saver feature.
 
@@ -178,6 +174,10 @@ Friendly Social Browser lets you browse through multiple apps, setting you free 
 **Step 2:** Use the same app to log in to your Facebook account.
 
 **Step 3:** Tap on any Facebook story and click on the download option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\.  Save Story for Facebook Stories
 
@@ -195,10 +195,6 @@ Save Story for Facebook Stories is an excellent tool to download and save Facebo
 
 ![facebook story saver app on iPhone and Android  ](https://images.wondershare.com/filmora/article-images/save-story-for-facebook-stories-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The last app to try is Story Saver For Facebook Stories Downloader For FB, available for Android users. This tool allows you to download Facebook stories with just one click.
 
 **Step 1:** Visit Play Store and search for Story Saver For Facebook Stories Downloader For FB.
@@ -212,6 +208,10 @@ The last app to try is Story Saver For Facebook Stories Downloader For FB, avail
 Now you know the different ways to save Facebook stories. You can download extensions, and use an online tool, or mobile app to save stories. Choose an option that suits you. All the ways will enable you to save your favorite Facebook stories.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -230,19 +230,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-deciphering-authenticity-in-your-facebook-brand-community/"><u>[New] In 2024, Deciphering Authenticity in Your Facebook Brand Community</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-integrating-textual-descriptions-into-videos-on-photos-windows-11/"><u>[Updated] 2024 Approved Integrating Textual Descriptions Into Videos on Photos (Windows 11)</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-online-guide-converting-fb-videos-to-mp4-at-hd-resolutions-for-free/"><u>[Updated] 2024 Approved Online Guide Converting FB Videos to MP4 at HD Resolutions for Free</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-swiftly-overcome-video-send-errors-in-facebook-chat-for-iphones-android/"><u>[Updated] 2024 Approved Swiftly Overcome Video Send Errors in Facebook Chat for iPhones, Android</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-social-media-post-resolution-guide/"><u>[Updated] In 2024, Social Media Post Resolution Guide</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-mastering-hands-free-motion-an-overview-for-2024/"><u>[Updated] Mastering Hands-Free Motion An Overview for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-dos-and-donts-of-youtube-promo-video-making-for-2024/"><u>[Updated] The Do's and Don’ts of YouTube Promo Video Making for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/broadcasting-facebook-videos-through-your-tv-setup-for-2024/"><u>Broadcasting Facebook Videos Through Your TV Setup for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/chromecast-versus-roku-showdown-which-device-reigns-supreme-for-content-lovers/"><u>Chromecast Versus Roku Showdown: Which Device Reigns Supreme for Content Lovers?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/harnessing-youtube-and-fb-techniques-for-maximum-engagement-for-2024/"><u>Harnessing YouTube & FB Techniques for Maximum Engagement for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Samsung Galaxy S23 FE | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-upgrading-visual-appeal-a-how-to-guide-for-twitter-video-image-changes/"><u>In 2024, Upgrading Visual Appeal A How-To Guide for Twitter Video Image Changes</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/memorial-day-special-save-big-with-this-mighty-gaming-laptop-now-at-a-whopping-250-discount-zdnet/"><u>Memorial Day Special: Save Big with This Mighty Gaming Laptop Now at a Whopping $250 Discount - ZDNET</u></a></li>
-<li><a href="https://os-tips.techidaily.com/1723620257493-missing-iphone-images-swift-recovery-strategies-inside/"><u>Missing iPhone Images? Swift Recovery Strategies Inside!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-step-by-step-instructions-for-finding-recent-facebook-views/"><u>[New] In 2024, Step-by-Step Instructions for Finding Recent Facebook Views</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-top-5-hidden-media-extractor-apps-for-2024/"><u>[New] Top 5 Hidden Media Extractor Apps for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-deciphering-genuine-connections-in-social-networks/"><u>[Updated] 2024 Approved Deciphering Genuine Connections in Social Networks</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-amplify-your-voice-on-twitter-top-video-uploading-solutions/"><u>[Updated] Amplify Your Voice on Twitter Top Video Uploading Solutions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/649-macbook-air-m1-laptop-sale-secure-your-ultimate-bargain-today-pcmag/"><u>$649 MacBook Air M1 Laptop Sale: Secure Your Ultimate Bargain Today! | PCMag</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-harness-the-power-of-storytelling-making-captivating-reels-on-facebook/"><u>2024 Approved Harness the Power of Storytelling Making Captivating Reels on Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-live-broadcasting-on-fb-tips-for-success/"><u>2024 Approved Live Broadcasting on FB Tips for Success</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-mastering-the-marketplace-30-advanced-fb-techniques-explored/"><u>2024 Approved Mastering the Marketplace 30 Advanced FB Techniques Explored</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ng-edge-templates-unlocking-your-videos-potential-for-2024/"><u>Cutting-Edge Templates Unlocking Your Video's Potential for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ce-your-content-filmmaking-for-youtube-trailers-with-filmora/"><u>Enhance Your Content Filmmaking for YouTube Trailers with Filmora</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-vivo-s18-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-editors-expert-analysis-videdit-pro-a-2023-overview/"><u>In 2024, Editor's Expert Analysis VidEdit Pro – A 2023 Overview</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/navigating-chatgpt-in-a-portable-world/"><u>Navigating ChatGPT in a Portable World</u></a></li>
 </ul></div>
 

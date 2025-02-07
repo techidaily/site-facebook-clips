@@ -1,7 +1,7 @@
 ---
 title: "\"Unleash Creative FB Ad Videos - Access FREE Video Tools Now for 2024\""
-date: 2025-01-21T23:01:09.769Z
-updated: 2025-01-25T20:41:11.860Z
+date: 2025-02-03T17:19:39.662Z
+updated: 2025-02-07T18:30:25.469Z
 tags:
   - ai video
   - ai facebook
@@ -31,10 +31,6 @@ If you have little to no experience with video ads, don’t feel stressed. We’
 
 **You may also like:** [Facebook Jail: 10 Secrets to Avoid Being Blocked / Get Out of It >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Create Video Using the Facebook Video Creation Kit \[step by step tutorial\]
 
 Wondershare Filmora is one of the [best video editing software](https://tools.techidaily.com/wondershare/filmora/download/) for making and editing social media videos sharing on YouTube, Facebook, or Instagram. It features lots of effects, transitions, templates and elements for creating video with fun. You can create videos in different aspect ratio such as 1:1, 9:16, 16:9, 4:3 or [customize the aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/) as you like.
@@ -55,13 +51,13 @@ You’ll need to start in [Ads Manager](https://www.facebook.com/business/help/2
 
 ![where to find Facebook Ads Manager ](https://images.wondershare.com/filmora/article-images/facebook-ads-manager.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Click on the   **Ads**  tab, and the **Create** button to get started. You can’t miss it - it’s **bright green**! You’ll be asked if you want to choose Guided Creation or Quick Creation. Either way is pretty easy to do, and you can experiment with both when you begin to see which works best for you.
 
 ![Facebook Campaign Creation Guide Types ](https://images.wondershare.com/filmora/article-images/how-do-you-want-to-create-ad-campaigns.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 In the following part, I’ll show you the steps after clicking Select Guided Creation for detailed explanation.
 
@@ -90,10 +86,6 @@ Once you’ve gone through the initial info, you need to choose a format for you
 
 ![create Facebook ads - choose format ](https://images.wondershare.com/filmora/article-images/create-ad-choose-format.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Note: if you’ve enabled the Dynamic Creative option under Conversion in Ad Set tab, you’ll see the Single Image or Video format option only, since the Dynamic Creative allows you to upload individual images and headlines and generate combination automatically. Here, we’ll choose Single Image or Video format to show the next steps. Once you’ve got the hang of it, you can experiment with the other two.
 
 #### 3\.  Adding Your Media & Elements
@@ -105,6 +97,10 @@ Go to the **Media** section and now you can upload up to 10 images or videos and
 Once you’ve begun to create your vid, you’ll find a button under the **Media** tab. Click Add Image and a window will open for you to select images - you can choose from the images on your account, your particular Facebook page you’re creating the ad for, your Instagram, or upload stock images.
 
 ![add Facebook ads image assets ](https://images.wondershare.com/filmora/article-images/add-image-assets.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 When adding images to media, remember to choose images that are the same size and orientation. This will make your life easier and your ad look more appealing!
 
@@ -119,10 +115,6 @@ If you want to create a video, the process is a little different, but not much m
 If you choose use [video ad template](https://tools.techidaily.com/wondershare/filmora/download/) to create a video, you will see lot of different options for you to choose from. There are square and vertical templates, you don’t need to worry about it too much because you can take the Square template and the Video Creation Kit will make a Vertical video as well.
 
 ![video creation kit  templates ](https://images.wondershare.com/filmora/article-images/video-creation-kit-available-template.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The template names are quite specific to what each one does, so you should have no problem choosing what would suit you:
 
@@ -150,17 +142,21 @@ You can also add your own logo, and if you’re feeling inspired or want to conv
 
 ![video creation kit  stickers ](https://images.wondershare.com/filmora/article-images/video-creation-kit-stickers.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can also **add text** on this screen and adjust the text color, font and positon based on your needs.
 
 ![add text on video creation kit   ](https://images.wondershare.com/filmora/article-images/add-text-on-video-creation-kit.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once you click on **Use Video**, and it will start creating it for you in the background.
 
 You’ll be sent back to the original page where you can add text and links, and once you click on **Confirm**, your video ad will be ready!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tips & Tricks to Consider when creating video ads for Facebook
 
@@ -197,6 +193,10 @@ As we said before, Facebook has billions daily users, and here are just a few re
 
 No matter what your business, video is a tool you should be taking advantage of, and with stats like these, Facebook is a great place to start getting your video ads out there!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What Could You Use the Creation Kit For?
 
 Whatever the purpose of your video, you’ll find the Facebook Video Creation Kit to be quite useful for you. You can create your ad using video footage, or simply add some photos for a slideshow effect.
@@ -206,7 +206,7 @@ This is great for **promoting products and services, introducing new businesses 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -232,19 +232,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-freedom-in-fun-10-excellent-offline-gaming-on-android-devices/"><u>[New] In 2024, Freedom in Fun 10 Excellent Offline Gaming on Android Devices</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-visualize-for-a-friendly-facebook/"><u>[New] Visualize for a Friendly Facebook</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unveiling-techniques-from-recording-room-to-facebook-lives/"><u>[Updated] 2024 Approved Unveiling Techniques From Recording Room to Facebook Lives</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-mastering-youtube-standard-studio-or-beta-progress/"><u>2024 Approved Mastering YouTube Standard Studio or Beta Progress</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/3-ways-to-unlock-iphone-6-without-passcode-or-face-id-by-drfone-ios/"><u>3 Ways to Unlock iPhone 6 without Passcode or Face ID</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/atic-dialogue-assembler-for-2024/"><u>Cinematic Dialogue Assembler for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-motorola-moto-e13-is-unlocked-by-drfone-android/"><u>How To Check if Your Motorola Moto E13 Is Unlocked</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-access-all-nba-games-effortlessly-top-15-streaming-methods/"><u>In 2024, Access All NBA Games Effortlessly Top 15 Streaming Methods</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-revitalize-disappearing-watch-thumbnail/"><u>In 2024, Revitalize Disappearing Watch Thumbnail</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-visual-vault-verifier/"><u>In 2024, Visual Vault Verifier</u></a></li>
-<li><a href="https://howto.techidaily.com/play-store-not-working-on-asus-rog-phone-8-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Asus ROG Phone 8? 8 Solutions Inside | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/top-10-youtube-video-grabber-apps-best-in-class-compatibility/"><u>Top 10 YouTube Video Grabber Apps, Best-in-Class Compatibility</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-free-divx-video-editors-with-cutting-capability-2023-list-for-2024/"><u>Updated Free Divx Video Editors with Cutting Capability (2023 List) for 2024</u></a></li>
-<li><a href="https://discover-able.techidaily.com/1728509100932-windows-server/"><u>Windows Serverバックアップに関する重要知識:最大容量制限</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-boosting-profile-videos-a-guide-to-allure/"><u>[New] 2024 Approved Boosting Profile Videos A Guide to Allure</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-seamless-media-exchange-transferring-facebook-content-to-whatsapp/"><u>[New] 2024 Approved Seamless Media Exchange Transferring Facebook Content to WhatsApp</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-pixelation-portraiture-sketching-a-playful-virtual-emblem/"><u>[New] In 2024, Pixelation Portraiture Sketching a Playful Virtual Emblem</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-streamline-video-shoot-excellent-camera-tripods-reviewed/"><u>[New] Streamline Video Shoot Excellent Camera Tripods Reviewed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-quickly-adapt-to-changing-video-speeds-on-youtube/"><u>[Updated] 2024 Approved Quickly Adapt to Changing Video Speeds on YouTube</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-android-and-iphones-leading-social-apps-to-skyrocket-likes-on-fb/"><u>[Updated] Android & iPhone's Leading Social Apps to Skyrocket Likes on FB</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-bringing-dialogue-to-life-writing-for-youtube-videos/"><u>[Updated] In 2024, Bringing Dialogue to Life Writing for YouTube Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-navigating-facebooks-fresh-features-and-changes-for-2024/"><u>[Updated] Navigating Facebook's Fresh Features & Changes for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-setting-up-and-managing-discord-channels-step-by-step-guide-for-2024/"><u>[Updated] Setting Up and Managing Discord Channels Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-animation-advantage-boosting-profits-in-social-media-ads/"><u>[Updated] The Animation Advantage Boosting Profits in Social Media Ads</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/get-your-tech-essentials-iphone-ipad-apple-watch-airpods-and-mac-at-half-price-with-vision-pro-see-how-on-zdnet/"><u>Get Your Tech Essentials: IPhone, iPad, Apple Watch, AirPods & Mac at Half Price with Vision Pro - See How on ZDNet!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-samsung-galaxy-a15-5g-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Samsung Galaxy A15 5G by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-mastering-the-social-media-lands-point-10-secrets-for-fb-optimization/"><u>In 2024, Mastering the Social Media Lands Point 10 Secrets for FB Optimization</u></a></li>
+<li><a href="https://common-error.techidaily.com/navigating-server-downtime-in-destiny-2-strategies-to-restore-your-gameplay-experience/"><u>Navigating Server Downtime in Destiny 2: Strategies to Restore Your Gameplay Experience</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/upgrade-the-comfort-of-your-apple-vision-pro-with-easy-diy-adjustments/"><u>Upgrade the Comfort of Your Apple Vision Pro with Easy DIY Adjustments!</u></a></li>
 </ul></div>
 

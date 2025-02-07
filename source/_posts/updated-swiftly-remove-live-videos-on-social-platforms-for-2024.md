@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Swiftly Remove Live Videos on Social Platforms for 2024"
-date: 2025-01-21T19:45:27.504Z
-updated: 2025-01-25T18:46:06.415Z
+date: 2025-02-02T16:57:01.064Z
+updated: 2025-02-07T16:56:11.196Z
 tags:
   - ai video
   - ai facebook
@@ -48,10 +48,6 @@ Let's begin with the mobile Facebook application:
 
 ![delete Facebook Story from mobile](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Delete Facebook Story from Desktop**
 
 **Step 1:** Visit Facebook via a browser. As the mobile app, it will show "your story" on the home page. Please click on that.
@@ -60,19 +56,11 @@ Let's begin with the mobile Facebook application:
 
 ![Facebook Story 3 dots](https://images.wondershare.com/filmora/article-images/facebook-story-three-dots.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: There will be a Delete Photo option. You need to select that.**
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-desktop.jpg)
 
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to Delete A Story from Facebook Story Archive?
 
@@ -84,11 +72,23 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
 
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is how you will remove the stories from Facebook archived.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
 
@@ -102,10 +102,6 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How to Control Who Can View Your Facebook Stories?
 
 You can make your stories visible to your friends, customize the viewers, or keep them public. Facebook allows you to control how and with whom you want to share your stories with.
@@ -114,13 +110,13 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to Hide Facebook Story from Specific People?
 
@@ -130,10 +126,14 @@ Facebook has made sharing stories easy because of the multiple features it offer
 
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
@@ -165,21 +165,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-downloading-facebook-videos-ultimate-5-list-ranked/"><u>[New] 2024 Approved Downloading Facebook Videos Ultimate 5 List Ranked</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-your-favorite-top-10-youtube-and-facebooks-music-gems/"><u>[New] 2024 Approved Your Favorite Top 10 YouTube & Facebook's Music Gems</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-avoidance-techniques-no-more-fb-vlogs-for-2024/"><u>[New] Avoidance Techniques No More FB Vlogs for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-essential-empowerment-packages-top-trending-products-for-todays-entrepreneur/"><u>[New] Essential Empowerment Packages Top Trending Products for Today's Entrepreneur</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-top-8-sites-with-easy-access-to-free-3d-text-psd-images-for-2024/"><u>[New] Top 8 Sites with Easy Access to Free 3D Text PSD Images for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-discover-5-premier-mac-livestream-tools/"><u>[Updated] 2024 Approved Discover 5 Premier Mac Livestream Tools</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-finding-the-most-economical-streaming-apps-for-your-phone/"><u>[Updated] Finding the Most Economical Streaming Apps for Your Phone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-hack-your-channels-identity-with-these-11-budget-tools-for-2024/"><u>[Updated] Hack Your Channel's Identity with These 11 Budget Tools for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-spring-to-the-future-innovations-in-screen-capture-tech/"><u>[Updated] Spring to the Future Innovations in Screen Capture Tech</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-twitter-live-sound-solving-partially-muted-audio-issues-for-2024/"><u>[Updated] Twitter Live Sound Solving Partially Muted Audio Issues for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Itel P55+ | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/apple-issues-alert-on-increasing-threat-of-mercenary-spyware-targeting-iphones-what-you-need-to-know-and-do/"><u>Apple Issues Alert on Increasing Threat of Mercenary Spyware Targeting iPhones: What You Need to Know and Do</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/circular-captures-iphone-filmmaking-tips-for-social-media/"><u>Circular Captures IPhone Filmmaking Tips for Social Media</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/complete-step-by-step-tutorial-for-recording-the-entire-screen-on-a-windows-11-pc/"><u>Complete Step-by-Step Tutorial for Recording the Entire Screen on a Windows 11 PC</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/skyrocketing-sales-with-high-roi-in-dynamic-fb-ad-creations-for-2024/"><u>Skyrocketing Sales with High ROI in Dynamic FB Ad Creations for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/the-landscape-of-augmented-reality-stickers-spotlight-on-google-for-2024/"><u>The Landscape of Augmented Reality Stickers Spotlight on Google for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-exploring-automatic-aspect-ratios-in-imovie/"><u>[New] 2024 Approved Exploring Automatic Aspect Ratios in iMovie</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-maximizing-your-dslr-footage-with-pc-or-mac-for-social-media/"><u>[New] 2024 Approved Maximizing Your DSLR Footage with PC or Mac for Social Media</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-identifying-optimal-frame-rate-in-slow-motion-film-production/"><u>[New] Identifying Optimal Frame Rate in Slow Motion Film Production</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-producers-playbook-for-mixing-audio-and-visuals-on-fb-platform/"><u>[New] In 2024, The Producer's Playbook for Mixing Audio and Visuals on FB Platform</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-proven-tactic-combining-gopro-footage-in-seamless-virtual-reality-experience/"><u>[New] Proven Tactic Combining GoPro Footage in Seamless Virtual Reality Experience</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-facebook-live-video-downloaders-how-to-download-live-videos/"><u>[Updated] 2024 Approved Facebook Live Video Downloaders | How to Download Live Videos?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-revolutionize-facebook-ads-creative-video-tactics-revealed/"><u>[Updated] 2024 Approved Revolutionize Facebook Ads Creative Video Tactics Revealed</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-interrupt-free-live-streaming-your-2023-solution-to-facebooks-glitches/"><u>[Updated] In 2024, Interrupt-Free Live Streaming Your 2023 Solution to Facebook's Glitches</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-successfully-sending-videos-in-facebook-chat-a-quick-fix-guide-for-iphoneandroid/"><u>[Updated] Successfully Sending Videos in Facebook Chat A Quick Fix Guide for iPhone/Android</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-bridging-social-gaps-efficiently-share-video-content-between-platforms/"><u>2024 Approved Bridging Social Gaps Efficiently Share Video Content Between Platforms</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-get-facebook-links-fetched-top-8-free-tools-for-23/"><u>2024 Approved Get Facebook Links Fetched Top 8 Free Tools for '23</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/23-key-metaverse-implementations-unveiling-future-prospects-for-2024/"><u>23 Key Metaverse Implementations Unveiling Future Prospects for 2024</u></a></li>
+<li><a href="https://win-webster.techidaily.com/discover-fresh-dj-takes-with-the-pcdj-newsletter/"><u>Discover Fresh DJ Takes with the PCDJ Newsletter</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/elevate-your-social-media-game-producing-powerful-fb-reels/"><u>Elevate Your Social Media Game Producing Powerful FB Reels</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/global-smartphone-market-witnesses-apple-surpassing-samsung-historic-leadership-switch-examined-by-zdnet/"><u>Global Smartphone Market Witnesses Apple Surpassing Samsung: Historic Leadership Switch Examined by ZDNet</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Vivo V29? | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/optimizing-lost-ark-play-overcoming-fps-decrease-for-a-seamless-adventure/"><u>Optimizing Lost Ark Play - Overcoming FPS Decrease for a Seamless Adventure</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-best-ispoofer-alternative-to-try-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Vivo Y200 | Dr.fone</u></a></li>
 </ul></div>
 

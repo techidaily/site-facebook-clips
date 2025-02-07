@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Complete Breakdown of Facebook's Changes"
-date: 2025-01-23T23:26:58.776Z
-updated: 2025-01-25T18:31:08.870Z
+date: 2025-02-06T19:57:00.310Z
+updated: 2025-02-07T18:48:58.602Z
 tags:
   - ai video
   - ai facebook
@@ -26,7 +26,7 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
  Mar 27, 2024• Proven solutions
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What is Facebook
@@ -42,7 +42,7 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 **Events:** These encourage boosting engagement, get people talking, and provide helpful information and links for an upcoming event and ultimately planning and tracking who plans to attend. 650+ million users make use of Facebook Events and 100 million on an average every day to publicize the event!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Common Facebook Terms which you should know
@@ -61,10 +61,6 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 
 **Notification:** It is like an update from Facebook of the events and occasions where someone has interacted with you. It might be through reacting on what you shared or by posting something on your wall etc.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Exploring Facebook
 
  Facebook is user friendly and once you create your account, you will feel like exploring all its options and becoming familiar with its adorable features. Here is a quick guide to Homepage and timeline:
@@ -81,6 +77,10 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 
 ![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### The Timeline
 
  The Timeline which represents your profile and is visible to your friends and public (subject to your privacy settings) contains inventory of everything which you have shared and which people has tagged you. You can set your profile picture by simply browsing through your picture library. Profile picture is the one which your friends will see when you will comment anything on Facebook. Coverphoto is a picture which can be seen by anybody when they visit your timeline. You can set your personal picture or wallpaper also to express your personality and interests. You can make your profile more informative by adding your school, college, workplace, relationship status and your location etc.
@@ -90,7 +90,7 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 ![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Facebook usage is diversified?
@@ -107,10 +107,6 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 * Share your feelings for your friends and tag them to pictures which suit their personality
 * Play games and enhance your circle
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Does Facebook Sharing Work?
 
  Facebook is unique and so are the sharing norms! While your conversations at email or IM’s are private, the content that you share on Facebook including photos and links are public. This is because Facebook has emerged as an open network for communication without any sort of limitations and is thus inclined towards being public although you can define privacy and sharing settings for some shared posts.
@@ -118,6 +114,10 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
  The privacy tools can be applied on few posts and information, the remaining information (such as your cover picture) is visible to everybody. Facebook is designed to be more open and social than traditional communication tools. You will learn more in this Facebook tutorial.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -134,24 +134,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-unleash-hd-playback-with-av1-on-youtube/"><u>[New] 2024 Approved Unleash HD Playback with AV1 on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-recording-youtube-videos-effortlessly-the-free-way-to-screencasts/"><u>[New] In 2024, Recording YouTube Videos Effortlessly - The Free Way to Screencasts</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-streamline-your-content-a-tutorial-for-instagram-video-sharing-for-2024/"><u>[New] Streamline Your Content A Tutorial for Instagram Video Sharing for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-analyzing-aurora-hdr-quality-for-2024/"><u>[Updated] Analyzing Aurora HDR Quality for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-connect-worlds-quickly-sharing-tiktoks-with-facebook/"><u>[Updated] In 2024, Connect Worlds Quickly Sharing TikToks with Facebook</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-step-by-step-iphone-360-degrees-and-fb-sharing/"><u>[Updated] In 2024, Step-by-Step IPhone, 360 Degrees, & FB Sharing</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-innovating-content-creation-vimeo-edition/"><u>[Updated] Innovating Content Creation Vimeo Edition</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-masterclass-setting-up-your-first-facebook-page/"><u>[Updated] Masterclass Setting Up Your First Facebook Page</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-enhance-your-fb-ads-reach-embrace-the-no-cost-kit-innovations/"><u>2024 Approved Enhance Your FB Ads Reach Embrace the No-Cost Kit Innovations</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-fb-stream-downloading-on-different-operating-systems/"><u>2024 Approved FB Stream Downloading on Different Operating Systems</u></a></li>
-<li><a href="https://article-helps.techidaily.com/balancing-soundtracks-with-visual-storytelling-in-trailers/"><u>Balancing Soundtracks with Visual Storytelling in Trailers</u></a></li>
-<li><a href="https://win-blog.techidaily.com/guilty-gear-strive-update-fixes-previous-lag-complaints/"><u>Guilty Gear Strive Update Fixes Previous Lag Complaints</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-analyzing-vlc-screen-captures/"><u>In 2024, Analyzing VLC Screen Captures</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-facebook-today-the-updated-guide/"><u>In 2024, Facebook Today The Updated Guide</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-tackling-the-challenge-of-locating-fbs-most-watched-videos-2e23/"><u>In 2024, Tackling the Challenge of Locating Fb's Most-Watched Videos (2E23)</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-transform-your-facebook-vids-to-mp3-easy-and-fast/"><u>In 2024, Transform Your Facebook Vids to MP3 - Easy & Fast</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/mastering-in-stream-ads-on-facebook-configuration-and-analysis-guide/"><u>Mastering In-Stream Ads on Facebook Configuration & Analysis Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/streamlining-access-to-subscriber-information/"><u>Streamlining Access to Subscriber Information</u></a></li>
-<li><a href="https://some-skills.techidaily.com/taking-solo-shots-from-videos-in-windows-10-photos-interface-for-2024/"><u>Taking Solo Shots From Videos in Windows 10 Photos Interface for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-end-live-recording-mode-immediately-in-qt-app/"><u>[New] 2024 Approved End Live Recording Mode Immediately in QT App</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-how-to-repost-photos-and-video-on-instagram/"><u>[New] 2024 Approved How to Repost Photos and Video on Instagram</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-sculptive-strategies-in-creating-striking-fb-video-ads/"><u>[New] 2024 Approved Sculptive Strategies in Creating Striking Fb Video Ads</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-snapsnatcher-fb-media-extraction/"><u>[New] SnapSnatcher FB Media Extraction</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-top-8-facebook-link-exporters-download-and-manage-effortlessly-for-2024/"><u>[New] Top 8 Facebook Link Exporters Download & Manage Effortlessly for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-everything-about-facebook-live-split-screen-you-should-know-for-2024/"><u>[Updated] Everything About Facebook Live Split Screen You Should Know for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-straightforward-stories-essence/"><u>[Updated] Straightforward Stories' Essence</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-cutting-edge-tips-for-using-colored-backdrops-in-video-making/"><u>2024 Approved Cutting-Edge Tips for Using Colored Backdrops in Video Making</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-lava-blaze-pro-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ng-edge-mp4-utilities-choosing-the-right-one-for-mac/"><u>Cutting Edge MP4 Utilities Choosing the Right One for Mac</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/elevate-your-video-speed-on-instagram-desktop-guide-for-2024/"><u>Elevate Your Video Speed on Instagram Desktop Guide for 2024</u></a></li>
 </ul></div>
 
