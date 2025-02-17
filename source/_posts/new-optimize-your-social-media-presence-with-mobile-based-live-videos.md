@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Optimize Your Social Media Presence with Mobile-Based Live Videos\""
-date: 2024-07-19T02:35:20.673Z
-updated: 2024-07-20T02:35:20.673Z
+date: 2025-02-12T18:11:32.655Z
+updated: 2025-02-16T18:30:39.507Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/292b65daa58a3cb7189f78d0565b817f09110724b
 
 # How to livestream on facebook from android and iOS?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/292b65daa58a3cb7189f78d0565b817f09110724b
  Mar 27, 2024• Proven solutions
 
  Facebook has recently launched a live feature which would allow the users to broadcast the important moments of their live to a large audience. The live feature on Facebook would allow you to reach out to the maximum number of audience who would be able to watch your videos live on Facebook. Every time you go live on Facebook your followers will be receiving notifications so that tune in to your broadcast just on time. There are loads of filters which you can apply to make your videos even more engaging.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Steps to go live using Facebook for Android and iOS
 
@@ -40,14 +41,15 @@ thumbnail: https://thmb.techidaily.com/292b65daa58a3cb7189f78d0565b817f09110724b
 
  3\. In the 3rd step you are required to type a brief description of the video you are posting. (However this is optional).
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![optional description ](https://images.wondershare.com/filmora/article-images/optional-description.jpg)
 
  4\. Now you need to select an audience for your video- you can make it public, friends or customize your audience.
 
 ![audience ](https://images.wondershare.com/filmora/article-images/audience.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  5\. Now you just need to tap on the **‘Go Live’** icon and start broadcasting.
 
@@ -57,14 +59,15 @@ thumbnail: https://thmb.techidaily.com/292b65daa58a3cb7189f78d0565b817f09110724b
 
  7\. The camera can be changed with the help of the switch button on the top right.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![switch ](https://images.wondershare.com/filmora/article-images/switch.jpg)
 
  8\. When you tap the top left button you get access to all the filters and colour overlays for you video.
 
 ![ video](https://images.wondershare.com/filmora/article-images/video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  9\. Once you are finished with your broadcasting just tap on the **‘Finish’** button. You can choose to play your video, save it to your computer or upload it somewhere else. Now click on done and you will be directed to another page for editing.
 
@@ -80,9 +83,6 @@ thumbnail: https://thmb.techidaily.com/292b65daa58a3cb7189f78d0565b817f09110724b
 
  4\. Once the broadcast is done the video is going to appear on your Facebook profile page and can be seen by your selected audience. However you can choose to remove the video at any time if your want.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -107,9 +107,6 @@ Follow @Richard Bennett
 
  3\. In the 3rd step you are required to type a brief description of the video you are posting. (However this is optional).
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![optional description ](https://images.wondershare.com/filmora/article-images/optional-description.jpg)
 
  4\. Now you need to select an audience for your video- you can make it public, friends or customize your audience.
@@ -118,9 +115,6 @@ Follow @Richard Bennett
 
  5\. Now you just need to tap on the **‘Go Live’** icon and start broadcasting.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![broadcast ](https://images.wondershare.com/filmora/article-images/broadcast.jpg)
 
  6\. While streaming you will see a **‘Live’** button in red colour right on top. Clicking on this button would allow you to see the length of your broadcast. Just below this you will be seeing the comments from your viewers.
@@ -131,21 +125,12 @@ Follow @Richard Bennett
 
  8\. When you tap the top left button you get access to all the filters and colour overlays for you video.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ video](https://images.wondershare.com/filmora/article-images/video.jpg)
 
  9\. Once you are finished with your broadcasting just tap on the **‘Finish’** button. You can choose to play your video, save it to your computer or upload it somewhere else. Now click on done and you will be directed to another page for editing.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![further editng ](https://images.wondershare.com/filmora/article-images/further-editng.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Notes and tips
 
  1\. You need to keep in mind that the maximum time limit for broadcasting on Facebook is 30 minutes.
@@ -156,10 +141,11 @@ Follow @Richard Bennett
 
  4\. Once the broadcast is done the video is going to appear on your Facebook profile page and can be seen by your selected audience. However you can choose to remove the video at any time if your want.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -177,9 +163,6 @@ Follow @Richard Bennett
 
  1\. The first thing you need to do is log on to your Facebook account and click the **'whats on your mind'** button right above the Newsfeed icon on the FB app.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![News Feed ](https://images.wondershare.com/filmora/article-images/news-feed.jpg)
 
  2\. Now click the **‘Live Video’** button which comes in the shape of a person icon with a broadcast sign on the head. If you are using iOS then tap on **‘Live Video’**.
@@ -192,17 +175,22 @@ Follow @Richard Bennett
 
 ![audience ](https://images.wondershare.com/filmora/article-images/audience.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  5\. Now you just need to tap on the **‘Go Live’** icon and start broadcasting.
 
 ![broadcast ](https://images.wondershare.com/filmora/article-images/broadcast.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  6\. While streaming you will see a **‘Live’** button in red colour right on top. Clicking on this button would allow you to see the length of your broadcast. Just below this you will be seeing the comments from your viewers.
 
  7\. The camera can be changed with the help of the switch button on the top right.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![switch ](https://images.wondershare.com/filmora/article-images/switch.jpg)
 
  8\. When you tap the top left button you get access to all the filters and colour overlays for you video.
@@ -211,23 +199,8 @@ Follow @Richard Bennett
 
  9\. Once you are finished with your broadcasting just tap on the **‘Finish’** button. You can choose to play your video, save it to your computer or upload it somewhere else. Now click on done and you will be directed to another page for editing.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![further editng ](https://images.wondershare.com/filmora/article-images/further-editng.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Notes and tips
 
  1\. You need to keep in mind that the maximum time limit for broadcasting on Facebook is 30 minutes.
@@ -252,9 +225,6 @@ Follow @Richard Bennett
 
  Facebook has recently launched a live feature which would allow the users to broadcast the important moments of their live to a large audience. The live feature on Facebook would allow you to reach out to the maximum number of audience who would be able to watch your videos live on Facebook. Every time you go live on Facebook your followers will be receiving notifications so that tune in to your broadcast just on time. There are loads of filters which you can apply to make your videos even more engaging.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Steps to go live using Facebook for Android and iOS
 
  1\. The first thing you need to do is log on to your Facebook account and click the **'whats on your mind'** button right above the Newsfeed icon on the FB app.
@@ -266,6 +236,10 @@ Follow @Richard Bennett
  3\. In the 3rd step you are required to type a brief description of the video you are posting. (However this is optional).
 
 ![optional description ](https://images.wondershare.com/filmora/article-images/optional-description.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  4\. Now you need to select an audience for your video- you can make it public, friends or customize your audience.
 
@@ -279,10 +253,11 @@ Follow @Richard Bennett
 
  7\. The camera can be changed with the help of the switch button on the top right.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![switch ](https://images.wondershare.com/filmora/article-images/switch.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  8\. When you tap the top left button you get access to all the filters and colour overlays for you video.
 
@@ -290,10 +265,15 @@ Follow @Richard Bennett
 
  9\. Once you are finished with your broadcasting just tap on the **‘Finish’** button. You can choose to play your video, save it to your computer or upload it somewhere else. Now click on done and you will be directed to another page for editing.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![further editng ](https://images.wondershare.com/filmora/article-images/further-editng.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Notes and tips
 
@@ -324,8 +304,6 @@ Follow @Richard Bennett
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -334,7 +312,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-a-comprehensive-guide-to-achieving-smooth-color-keying-for-2024/"><u>[New] A Comprehensive Guide to Achieving Smooth Color-Keying for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-anonymous-glimpse-into-fb-flashbacks/"><u>[New] Anonymous Glimpse Into FB Flashbacks</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unleash-the-potential-of-video-marketing-on-facebook/"><u>[New] Unleash the Potential of Video Marketing on Facebook</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-notes-navigated-steps-for-sound-submissions-to-youtube/"><u>[Updated] 2024 Approved Notes Navigated Steps for Sound Submissions to YouTube</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-simplified-techniques-for-crafting-captions-on-fb-videos/"><u>[Updated] 2024 Approved Simplified Techniques for Crafting Captions on FB Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-pcandroid-friendly-methods-to-post-videos-on-facebook-successfully/"><u>[Updated] In 2024, PC/Android-Friendly Methods to Post Videos on Facebook Successfully</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-social-storytelling-revolutionized-for-no-charge/"><u>[Updated] In 2024, Social Storytelling Revolutionized for No Charge</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-bypass-the-required-apple-store-verification-for-iphone-6-plus-by-drfone-ios/"><u>How To Bypass the Required Apple Store Verification For iPhone 6 Plus</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-from-flat-to-fabulous-best-tools-for-converting-videos-to-vr/"><u>In 2024, From Flat to Fabulous Best Tools for Converting Videos to VR</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-premier-4k-recorder-apps-reviewed/"><u>In 2024, Premier 4K Recorder Apps Reviewed</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/quelle-sono-le-migliori-applicazioni-di-ottimizzazione-delle-foto-per-i-vostri-album-digitali/"><u>Quelle Sono Le Migliori Applicazioni Di Ottimizzazione Delle Foto per I Vostri Album Digitali?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/user-insights-on-the-imperfect-and-overpriced-microsoft-surface-duo-experience/"><u>User Insights on the Imperfect and Overpriced Microsoft Surface Duo Experience</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/virtual-reality-technology-current-state-and-future-challenges-for-2024/"><u>Virtual Reality Technology Current State and Future Challenges for 2024</u></a></li>
+</ul></div>
 

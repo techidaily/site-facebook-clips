@@ -1,7 +1,7 @@
 ---
 title: "\"Interactive Photography  Sharing Immersive 360 Photos via Mobile Devices for 2024\""
-date: 2025-02-06T18:05:24.774Z
-updated: 2025-02-07T17:35:24.037Z
+date: 2025-02-11T04:23:57.179Z
+updated: 2025-02-16T19:29:07.059Z
 tags:
   - ai video
   - ai facebook
@@ -32,7 +32,7 @@ thumbnail: https://www.lifewire.com/thmb/NVjeqUnDOKW0ZcfVsrhkG3e3dnM=/888x296/fi
  Probably you have a tablet or phone that support Facebook live 360 video feature. Actually as per the recent announcement made by Facebook professionals regarding its updated applications, live 360 is compatible with all devices launched after iPad Pro. iPad Air, iPad Mini 2 or iPhone 4S models. Till now Facebook has not revealed any news related to compatibility of new features over Android devices and chances are that Android users need to wait so long to enjoy this feature on their device. However, they made a useful statement that Galaxy devices launched after Galaxy Note 3 and Galaxy S5 will support this feature.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Taking 360 Photos on iPhone and iPad With Built in Camera App
@@ -44,7 +44,7 @@ thumbnail: https://www.lifewire.com/thmb/NVjeqUnDOKW0ZcfVsrhkG3e3dnM=/888x296/fi
  As soon as you have captured your desired shot, move to your Facebook account and browse photo library. Choose your recently captured panorama photo and then follow instructions provided on screen to update your video. You can also preview your content, now add desired caption and publish your content online. Soon your will start receiving interesting comments and reviews from audience. Users can also delete their 360 degree photos after few hours as per their need. Such types of videos are being commonly used for entertainment and marketing purpose throughout the world.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Taking 360 Photos on Android Smartphone with Google Street View
@@ -57,7 +57,7 @@ thumbnail: https://www.lifewire.com/thmb/NVjeqUnDOKW0ZcfVsrhkG3e3dnM=/888x296/fi
 * These captured 360 videos can be uploaded on Facebook same as the regular posts. Simply go to your account, move to status update and select your image, add caption and update.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Viewing 360 Photos on Facebook
@@ -69,7 +69,7 @@ thumbnail: https://www.lifewire.com/thmb/NVjeqUnDOKW0ZcfVsrhkG3e3dnM=/888x296/fi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -87,21 +87,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-broadcasting-with-gopro-tips-for-facebookperiscope-integration/"><u>[New] Broadcasting with GoPro Tips for Facebook/Periscope Integration</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-crafty-impostors-exposed-spotting-fabricated-followers/"><u>[Updated] 2024 Approved Crafty Impostors Exposed Spotting Fabricated Followers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-understanding-ffpm-in-firefox-today/"><u>[Updated] 2024 Approved Understanding FFPM in Firefox Today</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-enhance-your-video-watching-with-top-fire-browser-extensions-for-facebook-videos-2023-edition/"><u>[Updated] Enhance Your Video Watching with Top Fire-Browser Extensions for Facebook Videos, 2023 Edition</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-fast-track-to-facebooks-latest-viewing-history-2e23/"><u>[Updated] In 2024, Fast Track to Facebook’s Latest Viewing History (2E23)</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/advanced-tips-for-sending-fb-videos-via-whatsapp-for-2024/"><u>Advanced Tips for Sending FB Videos via WhatsApp for 2024</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/expert-tips-on-protecting-your-mysql-database-free-backup-tools-and-strategies/"><u>Expert Tips on Protecting Your MySQL Database - Free Backup Tools & Strategies</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/how-to-create-animated-facebook-ads-with-high-roi-for-2024/"><u>How to Create Animated Facebook Ads With High ROI for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-forgotten-pin-of-your-infinix-smart-8-pro-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Infinix Smart 8 Pro</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-realme-v30-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Realme V30 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-forgot-your-apple-id-password-and-email-from-iphone-xs-max-heres-the-best-fixes-by-drfone-ios/"><u>In 2024, Forgot Your Apple ID Password and Email From iPhone XS Max? Heres the Best Fixes</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-vcs-vidcapture-review-full-examination/"><u>In 2024, VCS VidCapture Review Full Examination</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/masterful-content-creation-with-these-top-editing-tools-for-2024/"><u>Masterful Content Creation with These Top Editing Tools for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/seamless-download-experience-top-8-fb-film-extractors-for-2024/"><u>Seamless Download Experience Top 8 FB Film Extractors for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/visual-cohesion-through-simple-fading-techniques-for-2024/"><u>Visual Cohesion Through Simple Fading Techniques for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/why-are-instavids-tilted-upside-down-for-2024/"><u>Why Are InstaVids Tilted Upside Down for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-profiling-success-a-step-by-step-guide/"><u>[New] 2024 Approved Profiling Success A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-revamping-videography-the-story-of-nikon-1j5s-4k-achievement/"><u>[New] 2024 Approved Revamping Videography The Story of Nikon 1J5’s 4K Achievement</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-content-layout-on-social-networks-facebooks-perspective/"><u>[New] Content Layout on Social Networks Facebook’s Perspective</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-fb-quick-views-snap-and-share/"><u>[New] In 2024, FB Quick Views Snap & Share</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-unlocking-the-power-of-facebook-slideshows-in-digital-marketing/"><u>[New] In 2024, Unlocking the Power of Facebook Slideshows in Digital Marketing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-top-8-facebook-planners-for-enhanced-team-productivity/"><u>[New] Top 8 Facebook Planners for Enhanced Team Productivity</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-transform-online-sales-with-these-premier-15-facebook-monitoring-tools/"><u>[New] Transform Online Sales with These Premier 15 Facebook Monitoring Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-flash-vids-unpacked-whats-inside-in-2024/"><u>[Updated] Flash Vids Unpacked What's Inside, In 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-3-elemental-strategies-for-writing-effective-social-media-promotions/"><u>[Updated] The 3 Elemental Strategies for Writing Effective Social Media Promotions</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/audience-enchantment-advanced-audacity-crossfading/"><u>Audience Enchantment Advanced Audacity Crossfading</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-vivo-v29-pro-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Vivo V29 Pro to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-vivo-y78-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Vivo Y78 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-delving-into-vidmas-toolkit-for-digital-recording/"><u>In 2024, Delving Into Vidma’s Toolkit for Digital Recording</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-pinnacle-video-artist-audio-visual-choreography/"><u>In 2024, Pinnacle Video Artist Audio-Visual Choreography</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-the-hidden-dangers-of-high-follower-bloat-avoidance-tactics/"><u>In 2024, The Hidden Dangers of High-Follower Bloat Avoidance Tactics</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-unlock-ultimate-performance-with-best-video-controller-add-ons/"><u>In 2024, Unlock Ultimate Performance with Best Video Controller Add-Ons</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Poco F5 5G? | Dr.fone</u></a></li>
 </ul></div>
 
