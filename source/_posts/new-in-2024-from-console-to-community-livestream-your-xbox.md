@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, From Console to Community  Livestream Your Xbox\""
-date: 2024-07-19T02:29:52.229Z
-updated: 2024-07-20T02:29:52.229Z
+date: 2025-03-02T17:08:33.433Z
+updated: 2025-03-05T22:23:05.564Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://www.lifewire.com/thmb/5uOSiEES2M2TQcFnoRKJPmKs58Y=/400x300/fi
 
 # How to live stream xbox to facebook live
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -39,9 +36,6 @@ After living streaming videos to Facebook, you may want to [analyze the data of 
 
 ## Stream your Xbox to your computer
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 1: Streaming Xbox to Windows 10 computer
 
 The Windows 10 OS comes with special Xbox features which includes the capacity to stream live games from Xbox to your Windows 10 PC.
@@ -54,9 +48,6 @@ a. For this you need to go to the settings of your Xbox and then choose Preferen
 
 b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
 
 **Step 2: Connect the Xbox one to the Windows 10 computer**
@@ -67,25 +58,16 @@ b. Now go to the panel on the left hand side and click on **‘connect’**.
 
 c. Your home network is going to be scanned by the Xbox software for any Xbox console present. Select the name of the console with which you would like to connect. Ensure that the console and the Windows pc are on one network.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
 
 d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
 
 ### Method 2:Streaming Xbox to computer with a capture card
 
 You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Use Wirecast or OBS to stream your desktop to Facebook
 
 Once all is set up you can live stream you desktop screen to facebook, we are not going to give a full introdcution here, you can check _OBS setup here,_ and _Wirecast setup here._
@@ -104,9 +86,6 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 **Cons** It is way too expensive for normal gamers.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -154,9 +133,6 @@ b. Now go to the panel on the left hand side and click on **‘connect’**.
 
 c. Your home network is going to be scanned by the Xbox software for any Xbox console present. Select the name of the console with which you would like to connect. Ensure that the console and the Windows pc are on one network.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
 
 d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
@@ -167,9 +143,6 @@ d. Once the connection is established the icons would indicate that and you will
 
 You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## Use Wirecast or OBS to stream your desktop to Facebook
 
 Once all is set up you can live stream you desktop screen to facebook, we are not going to give a full introdcution here, you can check _OBS setup here,_ and _Wirecast setup here._
@@ -180,9 +153,6 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 **Cons**\- It doesn’t offer any support and it would take you a long time to master the settings.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
 
 [Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
@@ -191,9 +161,6 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 **Cons** It is way too expensive for normal gamers.
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -227,9 +194,6 @@ The Windows 10 OS comes with special Xbox features which includes the capacity t
 
 a. For this you need to go to the settings of your Xbox and then choose Preferences. Now click on the box where it says “Allow game streaming to other devices”.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
 
 b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
@@ -244,30 +208,12 @@ b. Now go to the panel on the left hand side and click on **‘connect’**.
 
 c. Your home network is going to be scanned by the Xbox software for any Xbox console present. Select the name of the console with which you would like to connect. Ensure that the console and the Windows pc are on one network.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
 
 d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 2:Streaming Xbox to computer with a capture card
 
 You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
@@ -290,9 +236,6 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 **Cons** It is way too expensive for normal gamers.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -326,9 +269,6 @@ The Windows 10 OS comes with special Xbox features which includes the capacity t
 
 a. For this you need to go to the settings of your Xbox and then choose Preferences. Now click on the box where it says “Allow game streaming to other devices”.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
 
 b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
@@ -343,9 +283,6 @@ b. Now go to the panel on the left hand side and click on **‘connect’**.
 
 c. Your home network is going to be scanned by the Xbox software for any Xbox console present. Select the name of the console with which you would like to connect. Ensure that the console and the Windows pc are on one network.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
 
 d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
@@ -376,9 +313,6 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 ![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -398,8 +332,6 @@ Follow @Richard Bennett
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -408,7 +340,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-explore-10-youtube-creators-accelerating-their-popularity-for-2024/"><u>[New] Explore 10 YouTube Creators Accelerating Their Popularity for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-new-gamer-era-starts-djis-mavic-air-versus-spark-battle/"><u>[New] New Gamer Era Starts DJI’s Mavic Air Versus Spark Battle</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-adjust-your-timeline-facebook-look-back-guide/"><u>[Updated] 2024 Approved Adjust Your Timeline Facebook Look Back Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-boost-engagement-sharing-streams-from-twitch-on-fb-for-2024/"><u>[Updated] Boost Engagement Sharing Streams From Twitch on FB for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-seize-high-def-online-videos-a-facebook-strategy/"><u>2024 Approved Seize High-Def Online Videos A Facebook Strategy</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/effortless-instagram-media-export-top-20-free-mp4-converters-online-for-2024/"><u>Effortless Instagram Media Export Top 20 Free MP4 Converters Online for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/flashs-legacy-continues-how-to-keep-playing-post-adobe/"><u>Flash's Legacy Continues: How to Keep Playing Post-Adobe</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastering-fbs-viral-hits-10-songs-that-scored-big/"><u>Mastering FB's Viral Hits - 10 Songs That Scored Big</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/tactics-for-trimming-outside-fb-ads/"><u>Tactics for Trimming Outside FB Ads</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-honor-70-lite-5g-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Honor 70 Lite 5G for Streaming | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-15-sites-offering-free-mp3-downloads/"><u>Top 15 Sites Offering Free MP3 Downloads</u></a></li>
+</ul></div>
 

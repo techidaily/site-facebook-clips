@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Exiting Facebook Livestreams  Device-Specific Methods\""
-date: 2025-01-23T16:34:23.453Z
-updated: 2025-01-25T20:52:45.938Z
+date: 2025-03-05T01:35:36.846Z
+updated: 2025-03-05T17:19:33.965Z
 tags:
   - ai video
   - ai facebook
@@ -48,10 +48,6 @@ Let's begin with the mobile Facebook application:
 
 ![delete Facebook Story from mobile](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Delete Facebook Story from Desktop**
 
 **Step 1:** Visit Facebook via a browser. As the mobile app, it will show "your story" on the home page. Please click on that.
@@ -80,10 +76,6 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This is how you will remove the stories from Facebook archived.
 
 ## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
@@ -106,10 +98,6 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
@@ -122,10 +110,6 @@ Facebook has made sharing stories easy because of the multiple features it offer
 
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
@@ -136,19 +120,11 @@ Visit the Stories section, and then tap on a story of a person that you don't wa
 
 ![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Facebook stories are a great way to let people know what you are up to. It's short and does the job perfectly. But there will be moments when you will want to remove the story early, and to do that, we have shared all the essential tips that will help you. Now that you have learned **how to remove** a **story from Facebook, go on and delete your stories early**.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -165,15 +141,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-security-victory-making-your-fb-available-again-for-2024/"><u>[New] Security Victory Making Your FB Available Again for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2023s-ideal-app-for-unmatched-intro-edits-on-various-gadgets-for-2024/"><u>2023’S Ideal App for Unmatched Intro Edits on Various Gadgets for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-automatic-youtube-video-transition-tips-for-facebook-users/"><u>2024 Approved Automatic YouTube Video Transition Tips for Facebook Users</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-scale-up-achieving-extended-facebook-coverage/"><u>2024 Approved Scale Up Achieving Extended Facebook Coverage</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-from-apple-iphone-se-2020ipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock from Apple iPhone SE (2020)/iPad/iPod</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-tecno-camon-20-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on Tecno Camon 20</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-use-special-features-virtual-location-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Motorola Edge 2023? | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-from-novice-to-visionary-the-ultimate-reddit-marketing-blueprint/"><u>In 2024, From Novice to Visionary The Ultimate Reddit Marketing Blueprint</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-7-plus-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 7 Plus With an Apple Watch & What to Do if It Doesnt Work</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/top-cover-photo-creators-facebook-edition-top-11-list/"><u>Top Cover Photo Creators Facebook Edition - Top 11 List</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-introductory-tutorial-utilizing-video-chat-features-on-insta/"><u>[New] 2024 Approved Introductory Tutorial Utilizing Video Chat Features on Insta</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-synthesizing-google-trends-insights-for-videography-ideas/"><u>[New] 2024 Approved Synthesizing Google Trends Insights for Videography Ideas</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-unveiling-the-secrets-of-auto-played-youtube-content-on-facebook-platform/"><u>[New] 2024 Approved Unveiling the Secrets of Auto-Played YouTube Content on Facebook Platform</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-fb-video-downloader-seamless-mp4-conversion-for-2024/"><u>[New] FB Video Downloader Seamless MP4 Conversion for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-step-by-step-to-becoming-a-9gag-meme-genius/"><u>[New] Step-by-Step to Becoming a 9GAG Meme Genius</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-steps-to-resume-interrupted-stream-on-fb/"><u>[New] Steps to Resume Interrupted Stream on FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-archive-adventure-revisiting-classic-facebook/"><u>[Updated] 2024 Approved Archive Adventure Revisiting Classic Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-guide-to-sharing-on-instagram-videos-and-more/"><u>[Updated] 2024 Approved Guide to Sharing on Instagram Videos & More</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-gamers-guide-expert-advice-on-capturing-your-minecraft-adventures/"><u>2024 Approved Gamer's Guide Expert Advice on Capturing Your Minecraft Adventures</u></a></li>
+<li><a href="https://win-able.techidaily.com/expert-advice-on-eliminating-the-annoying-black-screen-troubles-youve-encountered/"><u>Expert Advice On Eliminating The Annoying Black Screen Troubles You've Encountered</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/fb-livestream-success-on-television-four-pathways/"><u>FB Livestream Success on Television Four Pathways</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-driving-down-the-charts-a-compreranble-seo-approach-for-podcasters/"><u>In 2024, Driving Down the Charts A Compreranble Seo Approach for Podcasters</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-facebooks-shift-to-short-videos-a-look-into-2023-trends/"><u>In 2024, Facebook's Shift to Short Videos A Look Into 2023 Trends</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-the-real-world-usability-of-photoshops-motion-reduction/"><u>In 2024, The Real-World Usability of Photoshop’s Motion Reduction</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/skyrocket-your-grades-essential-8-windows-based-study-tips/"><u>Skyrocket Your Grades: Essential 8 Windows-Based Study Tips</u></a></li>
 </ul></div>
 

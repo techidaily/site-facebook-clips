@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Simplified Tech Livestreaming of Facebook Using OBS Studio\""
-date: 2025-02-11T06:20:52.299Z
-updated: 2025-02-17T06:40:28.214Z
+date: 2025-03-02T17:11:47.033Z
+updated: 2025-03-05T22:43:15.120Z
 tags:
   - ai video
   - ai facebook
@@ -34,10 +34,6 @@ Here is the step by step guide to go live from PC to facebook with OBS
 * [Part3.Preview and Test your before go live](#part3)
 * [Part4.Video tutorial](#part4)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## A. Setting the OBS Scenes
 
 Step 1: Make your scenes perfectly ready before starting the actual streaming process.
@@ -56,10 +52,6 @@ Step 4: Prefer to use default settings for source and then press OK.
 
 ![default  ](<https://images.wondershare.com/filmora/article-images/default> .jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 5: Once you have done settings for all sources then they must be adjusted on screen in right order.
 
 ![adjust ](https://images.wondershare.com/filmora/article-images/adjust.jpg)
@@ -76,10 +68,6 @@ Step 1: First of all you need to go to the settings.
 
 ![setting ](https://images.wondershare.com/filmora/article-images/setting.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 2: Now adjust the bit rate, it must be kept below 4000 Kbps and then choose your preferred recording format.
 
 ![ bitrate ](https://images.wondershare.com/filmora/article-images/bitrate.jpg)
@@ -88,17 +76,9 @@ Step 3: Make settings for resolution as well as FPS. The desired maximum resolut
 
 ![resolution ](https://images.wondershare.com/filmora/article-images/resolution.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 4: Now you need to visit the facebook page and then click on the video, go to publishing tools and then from top right corner hit +Live option.
 
 ![ facebook](https://images.wondershare.com/filmora/article-images/facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 5: It is time to move to the ‘create live video’ page. You have to copy the stream key from the specified location. Prefer to keep this page open.
 
@@ -107,10 +87,6 @@ Step 5: It is time to move to the ‘create live video’ page. You have to copy
 Step 6: Now come back to your OBS settings page and choose stream option. From list of services, prefer to choose Facebook Live option and then simply paste the stream key in the specified field on your screen.
 
 ![service ](https://images.wondershare.com/filmora/article-images/service.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## C. Preview and Test your before go live
 
@@ -122,17 +98,9 @@ Step 2: Now move back to your facebook page and then choose to preview.
 
 ![click preview ](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 3: It is time to add your title as per preferences, make selection for your targeted audience and once you have finished all settings and testing process then hit button “Go Live”.
 
 ![Click Go1 ](https://images.wondershare.com/filmora/article-images/click-go1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Click Go2](https://images.wondershare.com/filmora/article-images/click-go2.jpg)
 
@@ -171,22 +139,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-access-youtube-beats-freshly-split-with-this-compelling-list-of-17-crackers/"><u>[New] 2024 Approved Access YouTube Beats Freshly Split With This Compelling List of 17 Crackers</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-facebook-today-unpacking-the-recent-updates/"><u>[New] Facebook Today Unpacking the Recent Updates</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-personalized-timeline-presentation-facebook-lookback-tips/"><u>[New] In 2024, Personalized Timeline Presentation Facebook Lookback Tips</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-100plus-best-examples-and-tips-to-craft-your-facebook-bios-for-2024/"><u>[Updated] 100+ Best Examples & Tips to Craft Your Facebook Bios for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-driving-traffic-tactics-for-top-ranked-fb-pages/"><u>[Updated] 2024 Approved Driving Traffic Tactics for Top-Ranked FB Pages</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-navigating-networks-generating-social-media-sensations/"><u>[Updated] 2024 Approved Navigating Networks Generating Social Media Sensations</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-dismantling-youtube-ranks-factors-and-their-effects/"><u>[Updated] Dismantling YouTube Ranks Factors and Their Effects</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-how-to-find-videos-on-facebook-for-2024/"><u>[Updated] How to Find Videos on Facebook for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-seamlessly-record-your-screen-while-watching-netflix/"><u>2024 Approved Seamlessly Record Your Screen While Watching Netflix</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-virtual-reality-therapy-breakthroughs/"><u>2024 Approved Virtual Reality Therapy Breakthroughs</u></a></li>
-<li><a href="https://win-able.techidaily.com/fix-your-sea-of-thieves-boot-up-problem-top-strategies-explored/"><u>Fix Your Sea of Thieves Boot Up Problem: Top Strategies Explored!</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-draft-distinctive-visual-identities-from-templates-for-free/"><u>In 2024, Draft Distinctive Visual Identities From Templates for Free</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-from-idea-to-execution-creating-must-watch-fb-reels/"><u>In 2024, From Idea to Execution Creating Must-Watch FB Reels</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-protect-and-enhance-images-with-top-tools/"><u>In 2024, Protect & Enhance Images with Top Tools</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-the-comprehensible-guide-to-leveraging-videos-for-social-media-success/"><u>In 2024, The Comprehensible Guide to Leveraging Videos for Social Media Success</u></a></li>
-<li><a href="https://fox-links.techidaily.com/mac-and-pcs-top-10-supercharged-srt-systems-unveiled-for-2024/"><u>Mac & PC's Top 10 Supercharged SRT Systems Unveiled for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/pattern-locks-are-unsafe-secure-your-asus-rog-phone-7-ultimate-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Asus ROG Phone 7 Ultimate Phone Now with These Tips</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-scouring-social-media-locating-facebook-videos/"><u>[New] 2024 Approved Scouring Social Media Locating Facebook Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-sketch-whimsical-graphics-on-giphy/"><u>[New] In 2024, Sketch Whimsical Graphics on Giphy</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-achieve-stardom-in-the-digital-world-by-growing-your-facebook-followers/"><u>[Updated] 2024 Approved Achieve Stardom in the Digital World by Growing Your Facebook Followers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-assessing-common-fb-video-formats/"><u>[Updated] Assessing Common FB Video Formats</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-mp4-conversion-made-simple-fb-video-to-720p-1080p-at-zero-charge/"><u>[Updated] MP4 Conversion Made Simple FB Video to 720P, 1080P at Zero Charge</u></a></li>
+<li><a href="https://media-tips.techidaily.com/1-successful-guide-streaming-your-favorite-twitch-channels-via-roku/"><u>1. Successful Guide: Streaming Your Favorite Twitch Channels via Roku</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-boosting-social-media-presence-with-effective-fb-instream-ad-plans/"><u>2024 Approved Boosting Social Media Presence with Effective FB Instream Ad Plans</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-breaking-down-gopros-burst-capture-feature/"><u>2024 Approved Breaking Down GoPro's Burst Capture Feature</u></a></li>
+<li><a href="https://win-net.techidaily.com/6-proven-solutions-for-iphones-with-hidden-or-zeroed-out-internal-storage/"><u>6 Proven Solutions for iPhones with Hidden or Zeroed-Out Internal Storage</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-oppo-k11-5g-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Oppo K11 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Infinix Smart 7? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-infinix-note-30-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Infinix Note 30 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-lock-apps-on-motorola-moto-g73-5g-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Motorola Moto G73 5G to Protect Your Individual Information</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-understanding-facebooks-chat-language-through-its-blue-signature-marker/"><u>In 2024, Understanding Facebook's Chat Language Through Its Blue Signature Marker</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/never-compromise-on-security-try-our-list-of-top-10-secure-free-video-calling-apps-for-2024/"><u>Never Compromise on Security – Try Our List of Top 10 Secure, Free Video Calling Apps for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/streamline-social-sharing-integrate-your-fb-story-for-2024/"><u>Streamline Social Sharing Integrate Your FB Story for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/textual-enhancement-techniques-for-instagram-live-and-igtv/"><u>Textual Enhancement Techniques for Instagram Live and IGTV</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-insiders-tips-for-sharing-videos-on-instagram-for-2024/"><u>The Insider's Tips for Sharing Videos on Instagram for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/thriving-in-the-digital-age-mastering-facebook-interaction/"><u>Thriving in the Digital Age Mastering Facebook Interaction</u></a></li>
 </ul></div>
 

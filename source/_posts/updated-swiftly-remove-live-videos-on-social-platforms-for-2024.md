@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Swiftly Remove Live Videos on Social Platforms for 2024"
-date: 2025-02-11T04:24:59.579Z
-updated: 2025-02-17T00:11:45.745Z
+date: 2025-02-26T16:16:37.650Z
+updated: 2025-03-05T17:10:54.336Z
 tags:
   - ai video
   - ai facebook
@@ -35,10 +35,6 @@ A Facebook story will last for 24 hours. Once the 24 hours timeline is over, you
 * [Part 6: How to Delete Someone Else's Story on Your Facebook?](#part6)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: How to Delete A Photo or Video from Facebook Story?
 
@@ -94,14 +90,6 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How to Control Who Can View Your Facebook Stories?
 
 You can make your stories visible to your friends, customize the viewers, or keep them public. Facebook allows you to control how and with whom you want to share your stories with.
@@ -109,10 +97,6 @@ You can make your stories visible to your friends, customize the viewers, or kee
 **Step 1:** Go to your Facebook home page and click on Your Story. Upload a story, but please click on the privacy option before clicking on the share option.
 
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
@@ -136,19 +120,11 @@ Visit the Stories section, and then tap on a story of a person that you don't wa
 
 ![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Facebook stories are a great way to let people know what you are up to. It's short and does the job perfectly. But there will be moments when you will want to remove the story early, and to do that, we have shared all the essential tips that will help you. Now that you have learned **how to remove** a **story from Facebook, go on and delete your stories early**.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -165,19 +141,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-unveiling-creativity-making-striking-slideshows-for-fb-friends/"><u>[New] 2024 Approved Unveiling Creativity Making Striking SlideShows for FB Friends</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-5-essential-ios-downloader-apps-for-your-favorite-facebook-videos-for-2024/"><u>[New] 5 Essential iOS Downloader Apps for Your Favorite Facebook Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-discovering-if-quick-youtube-subscriptions-really-work/"><u>[New] In 2024, Discovering if Quick YouTube Subscriptions Really Work</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-real-time-broadcasts-at-your-fingertips-roku-and-fb-live/"><u>[New] In 2024, Real-Time Broadcasts at Your Fingertips Roku and FB Live</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-innovative-advertising-on-fb-unlocking-your-brands-potential-for-2024/"><u>[New] Innovative Advertising on FB Unlocking Your Brand's Potential for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-rewind-to-glory-with-top-5-pc-ps1-emulation-tools/"><u>[Updated] 2024 Approved Rewind to Glory with Top 5 PC PS1 Emulation Tools</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-elevate-your-channel-hit-the-10000-view-mark-fast-for-2024/"><u>[Updated] Elevate Your Channel Hit the 10,000 View Mark Fast for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-exploring-echoes-in-social-space-an-old-fb-content-pathway-for-2024/"><u>[Updated] Exploring Echoes in Social Space An Old FB Content Pathway for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-how-to-make-a-cooking-video-in-steps-an-ultimate-guide-for-2024/"><u>[Updated] How to Make a Cooking Video in Steps - an Ultimate Guide for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-unveiling-underground-favorites-in-the-world-of-memes-for-2024/"><u>[Updated] Unveiling Underground Favorites in the World of Memes for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/apeaksoft-scrutiny-mastering-the-art-of-screen-capture-review-for-2024/"><u>Apeaksoft Scrutiny – Mastering the Art of Screen Capture Review for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-the-soundtrack-strategy-elevating-facebook-videos-with-music/"><u>In 2024, The Soundtrack Strategy Elevating Facebook Videos with Music</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/navigating-the-selection-of-ai-chatbots-understanding-7-important-considerations/"><u>Navigating the Selection of AI Chatbots: Understanding 7 Important Considerations</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/the-roadmap-to-fame-unleashing-instagrams-9-powerful-techniques-for-2024/"><u>The Roadmap to Fame Unleashing Instagram's #9 Powerful Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-your-content-strategy-premier-ranks-apps-explored/"><u>[New] 2024 Approved Elevate Your Content Strategy - Premier Ranks Apps Explored</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-groundbreaking-no-cost-image-editors-unveiled/"><u>[New] In 2024, Groundbreaking No-Cost Image Editors Unveiled</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-how-to-use-dslr-for-facebook-live-on-your-pc/"><u>[New] In 2024, How to Use DSLR for Facebook Live on Your PC?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-mastering-editing-skills-for-professional-facebook-reels/"><u>[New] In 2024, Mastering Editing Skills for Professional Facebook Reels</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-connect-and-conquer-tips-for-eternal-snapstreaks/"><u>[Updated] Connect and Conquer Tips for Eternal Snapstreaks</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-fv-downloader-for-social-networking-videos-for-2024/"><u>[Updated] FV-Downloader for Social Networking Videos for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-game-speed-controls-unveiled-a-comprehensible-guide-for-2024/"><u>[Updated] Game Speed Controls Unveiled A Comprehensible Guide for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-master-the-metaverse-humor-scene-with-our-top-meme-ideas/"><u>[Updated] Master the Metaverse Humor Scene with Our Top Meme Ideas</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-revive-missing-social-media-watch-icon-for-2024/"><u>[Updated] Revive Missing Social Media Watch Icon for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unlocking-fast-track-on-friend-finding-in-facebook-land/"><u>[Updated] Unlocking Fast Track on Friend-Finding in Facebook Land</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-creative-video-editing-for-fb-techniques-of-lc-and-bb-overlay/"><u>2024 Approved Creative Video Editing for FB Techniques of LC and BB Overlay</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-xiaomi-redmi-note-13-pro-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Xiaomi Redmi Note 13 Pro 5G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-amplify-sales-discover-the-leading-15-facebook-monitoring-tools/"><u>In 2024, Amplify Sales Discover the Leading 15 Facebook Monitoring Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/perfectly-preserve-facebook-films-with-top-5-chrome-plugs-for-2024/"><u>Perfectly Preserve Facebook Films with Top 5 Chrome Plugs for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/prevalent-iphone-visual-glitches-fixes-you-cant-miss/"><u>Prevalent iPhone Visual Glitches: Fixes You Can't Miss</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/seafarers-choice-top-5-pro-fish-cameras-for-2024/"><u>Seafarer's Choice Top 5 Pro-Fish Cameras for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/unmasking-imagerys-origins-a-complete-guide-to-reverse-picture-searching-in-instagram-for-2024/"><u>Unmasking Imagery's Origins A Complete Guide to Reverse Picture Searching in Instagram for 2024</u></a></li>
 </ul></div>
 

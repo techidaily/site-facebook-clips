@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastery in Muting Facebook Videos (Mobile/Laptop)"
-date: 2025-01-22T17:45:20.284Z
-updated: 2025-01-25T16:21:27.882Z
+date: 2025-03-01T00:18:59.714Z
+updated: 2025-03-05T17:53:38.114Z
 tags:
   - ai video
   - ai facebook
@@ -36,10 +36,6 @@ A Facebook story will last for 24 hours. Once the 24 hours timeline is over, you
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Delete A Photo or Video from Facebook Story?
 
 So, you can remove your Facebook story either by opening your Facebook account on your desktop browser or through your mobile app.
@@ -65,10 +61,6 @@ Let's begin with the mobile Facebook application:
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-desktop.jpg)
 
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to Delete A Story from Facebook Story Archive?
 
@@ -110,14 +102,6 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 5: How to Hide Facebook Story from Specific People?
 
 Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
@@ -125,10 +109,6 @@ Facebook has made sharing stories easy because of the multiple features it offer
 **Step 1:** Launch your Facebook account, and then upload something on your story and set the privacy to Friends. After that, you need to click on the Hide Story From option.
 
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
@@ -146,10 +126,6 @@ Facebook stories are a great way to let people know what you are up to. It's sho
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -165,21 +141,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-ultimate-guide-to-capturing-life-in-sync-with-music/"><u>[New] 2024 Approved Ultimate Guide to Capturing Life in Sync With Music</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ise-of-the-alternative-top-3-video-sharing-websites/"><u>[New] Rise of the Alternative Top 3 Video Sharing Websites</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-facebook-video-vanishing-act-heres-how-to-perform-the-counter-with-12-steps/"><u>[Updated] 2024 Approved Facebook Video Vanishing Act? Here's How to Perform the Counter with 12 Steps</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-stop-chrome-from-skipping-playback-of-facebook-videos/"><u>[Updated] 2024 Approved Stop Chrome From Skipping Playback of Facebook Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-different-fb-video-proportions-for-2024/"><u>[Updated] Different FB Video Proportions for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-step-into-the-rhythm-of-social-video-editing-with-music/"><u>2024 Approved Step Into the Rhythm of Social Video Editing with Music</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/2024-approved-transform-your-fb-vids-to-full-screen/"><u>2024 Approved Transform Your FB Vids to Full Screen</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatgpt-versus-google-bard-an-in-depth-review-of-their-capabilities/"><u>ChatGPT Versus Google Bard: An In-Depth Review of Their Capabilities</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/cross-platform-sync-made-simple-post-tiktok-vids-on-fb-for-2024/"><u>Cross-Platform Sync Made Simple Post TikTok Vids on FB for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/factory-reset-on-iphone-15-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>Factory Reset on iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-fb-media-migration-tools-for-windowsmacos-users/"><u>In 2024, FB Media Migration Tools for Windows/macOS Users</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-subtle-reduction-of-volume-in-fl-studio/"><u>In 2024, Subtle Reduction of Volume in FL Studio</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/inside-look-a-detailed-review-of-the-android-lightroom-app/"><u>Inside Look A Detailed Review of the Android Lightroom App</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/minecraft-branding-resources-for-youtubers/"><u>Minecraft Branding Resources for YouTubers</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/seamless-access-watching-fb-videos-on-apple-tv-explained/"><u>Seamless Access Watching FB Videos on Apple TV Explained</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unpacking-gptbot-revolutionizing-text-generation-vs-censorship-fears/"><u>Unpacking GPTBot: Revolutionizing Text Generation Vs. Censorship Fears</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-breakthroughs-in-fb-advertising-with-a-focus-on-video-content-mastery/"><u>[New] 2024 Approved Breakthroughs in FB Advertising with a Focus on Video Content Mastery</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-elevate-your-video-game-with-fb-upload-on-pc-and-android/"><u>[New] Elevate Your Video Game with FB Upload on PC and Android</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-engage-broadly-embedding-twitch-videos-on-fb/"><u>[New] Engage Broadly Embedding Twitch Videos on FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-beginners-guide-to-watching-and-broadcasting-fb-live/"><u>[New] In 2024, The Beginner’s Guide to Watching & Broadcasting FB Live</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-your-passport-to-popularity-9-essential-instagram-secrets-for-success/"><u>[New] Your Passport to Popularity 9 Essential Instagram Secrets for Success</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-understanding-facebooks-policy-on-media-content-sharing/"><u>2024 Approved Understanding Facebook's Policy on Media Content Sharing</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/expert-tutorial-on-transitioning-from-mbr-to-gpt-for-samsung-drives-effective-data-migration-and-clone-strategies-included/"><u>Expert Tutorial on Transitioning From MBR to GPT for Samsung Drives: Effective Data Migration and Clone Strategies Included</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-add-music-to-facebook-videos-in-2024/"><u>How to Add Music to Facebook Videos, In 2024</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/how-to-fix-ntfssys-failed-bsod-error-in-windows-10/"><u>How To Fix Ntfs.sys Failed BSOD Error In Windows 10</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/imagetangle-the-premier-montage-engineer-for-2024/"><u>ImageTangle The Premier Montage Engineer for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722877930219-immersive-indie-gaming-experiences-on-iphoneipad-beyond-the-room-explore-more/"><u>Immersive Indie Gaming Experiences on iPhone/iPad: Beyond 'The Room,' Explore More</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-oppo-a79-5g-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Oppo A79 5G Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/navigating-facebook-live-your-2023-playbook/"><u>Navigating Facebook Live Your 2023 Playbook</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/toms-tech-hub-the-ultimate-guide/"><u>Tom's Tech Hub: The Ultimate Guide</u></a></li>
 </ul></div>
 

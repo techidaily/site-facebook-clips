@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Creative Video Editing for FB  Techniques of LC and BB Overlay\""
-date: 2025-02-16T05:13:30.069Z
-updated: 2025-02-17T00:27:49.860Z
+date: 2025-02-27T20:43:25.696Z
+updated: 2025-03-05T20:57:06.344Z
 tags:
   - ai video
   - ai facebook
@@ -37,10 +37,6 @@ Want to have a try? Come on!
 
 A square video in a **1:1 aspect ratio** is preferred by Facebook. There are varieties of video editing apps available in the market that allows you to create a square video and add a letterbox on it. But most of them have a complicated interface and you might need to watch a lot of video tutorials to make head and tail of it. If you want to add such a letterbox for your Facebook video, Wondershare Filmora may be a good choice for you. Currently, Filmora offers two ways to add a letterbox for your square Facebook video.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 1: Make a Letterbox by Project Ratio Mismatch
 
 This method is suitable for users whose source videos are not in square format (1:1). It is a simple method in which the aspect ratios of the source and project videos are compared. In this method, a letterbox will be created automatically when there is a mismatch between the aspect ratio of the original video and the project you are creating using the Filmora application. Let us see how this can be done:
@@ -73,10 +69,6 @@ And you can also go to the **Elements** tab, and add some creative elements such
 
 ![post-on-facebook](https://images.wondershare.com/filmora/article-images/post-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 2: Create a Letterbox by Adding Text Shapes
 
 This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). Let us see the steps below:
@@ -84,10 +76,6 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 * 1\. Start the project at 1:1 square or Instagram mode, and import your source video
 
 ![import-square-video](https://images.wondershare.com/filmora/article-images/import-square-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 2\. Then drag and drop your source video to the timeline. No black bars will appear automatically like in Method 1
 
@@ -98,17 +86,9 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![add-doll-subtitle](https://images.wondershare.com/filmora/article-images/add-doll-subtitle.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 5\. You will see that the subtitle appears on the video in real time. Here you can adjust the width and height of the subtitle. Make it so that that black bar covers the lower end of the video completely and delete the text
 
 ![custom-letterbox](https://images.wondershare.com/filmora/article-images/custom-letterbox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 6\. Drag and drop the subtitle again from the Titles-Subtitles option. This time for the top section of the video
 
@@ -117,10 +97,6 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 * 7\. You can input your own texts in the box or delete the text as you want, and you will be left with a video that has black bars on the top and bottom
 
 ![get-both-letterbox](https://images.wondershare.com/filmora/article-images/get-both-letterbox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 8\. Export the video to your computer or phone in mp4, then upload it to Facebook, and finally, you will see the magic!
 
@@ -133,10 +109,6 @@ Adding a letterbox, then designing your own texts, elements and filters will bri
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -153,17 +125,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-facebook-cover-video-aspect-ratio/"><u>[New] 2024 Approved Facebook Cover Video Aspect Ratio</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-designing-epilogues-made-simple-no-charges-included/"><u>[New] In 2024, Designing Epilogues Made Simple - No Charges Included</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-instantaneous-identification-in-the-social-media-jungle/"><u>[New] Instantaneous Identification in the Social Media Jungle</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-seamless-soundscapes-youtube-music-integration-tips/"><u>[Updated] 2024 Approved Seamless Soundscapes YouTube Music Integration Tips</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-social-simulacrum-sketches-designing-distorted-digital-selves/"><u>[Updated] 2024 Approved Social Simulacrum Sketches Designing Distorted Digital Selves</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-the-basics-of-designing-your-own-facebook-reel-experience/"><u>[Updated] The Basics of Designing Your Own Facebook Reel Experience</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-unleash-windowsmac-premium-pc-and-mac-screen-capture-tools/"><u>2024 Approved Unleash Windows/Mac Premium PC and MAC Screen Capture Tools</u></a></li>
-<li><a href="https://discover-best.techidaily.com/comparing-winx-dvd-ripper-platinum-and-dvd-copy-pro-key-feature-distinctions/"><u>Comparing WinX DVD Ripper Platinum & DVD Copy Pro - Key Feature Distinctions</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/exclusive-offer-snag-the-new-expanded-512gb-meta-quest-storage-top-october-prime-day-deal-in-virtual-reality-zdnet/"><u>Exclusive Offer: Snag the New, Expanded 512GB Meta Quest Storage - Top October Prime Day Deal in Virtual Reality! [ZDNET</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Honor Magic 5 Lite | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/revolutionize-your-podcast-with-these-ai-name-makers-for-2024/"><u>Revolutionize Your Podcast with These AI Name Makers for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unraveling-windows-1011-unsigned-updates-flaw/"><u>Unraveling Windows 10/11 Unsigned Updates Flaw</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-breaking-down-the-new-normal-facebook-short-videos/"><u>[New] 2024 Approved Breaking Down the New Normal Facebook Short Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-share-videos-to-instagram-in-2024/"><u>[New] How to Share Videos to Instagram, In 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-supreme-display-quality-top-10-ranking-of-4k-screens/"><u>[New] Supreme Display Quality #Top 10 Ranking of 4K Screens</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-the-ultimate-tutorial-for-musical-harmony-in-your-facebook-feed/"><u>[Updated] 2024 Approved The Ultimate Tutorial for Musical Harmony in Your Facebook Feed</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-best-practice-video-placement-on-facebook-vh-for-2024/"><u>[Updated] Best Practice Video Placement on Facebook (V/H) for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-cutting-the-clutter-eschewing-fb-video-ads-for-2024/"><u>[Updated] Cutting the Clutter Eschewing FB Video Ads for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-igtv-to-fb-exposure-strategies-6-essential-tips/"><u>[Updated] IGTV to FB Exposure Strategies (6 Essential Tips)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-how-to-share-tiktok-videos-to-facebook/"><u>[Updated] In 2024, How to Share TikTok Videos to Facebook?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unlocking-the-secrets-of-success-top-strategies-for-fb-video-growth/"><u>[Updated] In 2024, Unlocking the Secrets of Success Top Strategies for FB Video Growth</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/1-exploring-the-advantages-a-comprehensive-guide-on-cryptocurrency-investment-opportunities-with-yl-computing/"><u>1. Exploring the Advantages: A Comprehensive Guide on Cryptocurrency Investment Opportunities with YL Computing</u></a></li>
+<li><a href="https://win11.techidaily.com/ensuring-clear-sound-fixing-xbox-mic-in-windows/"><u>Ensuring Clear Sound: Fixing Xbox Mic in Windows</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/heroblack-vs-yi-4k-updates-gopro-and-yi-showcase-their-best-for-2024/"><u>HeroBlack Vs. Yi 4K Updates - GoPro and Yi Showcase Their Best for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/social-media-savvy-unlock-the-secrets-of-crafting-winning-bios-on-facebook/"><u>Social Media Savvy Unlock the Secrets of Crafting Winning Bios on Facebook</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877211-9781609257835-the-rosicrucians/"><u>The Rosicrucians | Free Book</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/toms-tech-insights-comprehensive-guides-on-latest-hardware/"><u>Tom's Tech Insights: Comprehensive Guides on Latest Hardware</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transforma-tus-mp3-sin-costo-alguno-con-la-herramienta-online-de-conversion-gratuita-de-movavi/"><u>Transforma Tus MP3 Sin Costo Alguno Con La Herramienta Online De Conversión Gratuita De Movavi</u></a></li>
 </ul></div>
 

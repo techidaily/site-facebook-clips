@@ -1,7 +1,7 @@
 ---
 title: "[New] Unveiling the World of Wide Web Watching via FB"
-date: 2025-02-10T05:29:44.099Z
-updated: 2025-02-17T04:15:08.438Z
+date: 2025-03-01T17:32:59.161Z
+updated: 2025-03-05T23:35:39.852Z
 tags:
   - ai video
   - ai facebook
@@ -131,10 +131,6 @@ Open the browser and then go to the Facebook website. Log into your account.
 
 ![Log in to your Facebook ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Go to Your Profile**
 
 On the top right corner of the screen, you will see your name; click on it to go to your profile.
@@ -531,10 +527,6 @@ On the left of your screen, you will see an Activity log panel. Click on "Logged
 
 ![Select “Logged actions and other activity”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-11.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 6: Select “Videos you’ve watched”**
 
 From the list of activities, select “Videos you’ve watched.” This will display all the videos you’ve watched recently.
@@ -579,10 +571,6 @@ From the list of activities, tap on “Videos you’ve watched.”
 
 ![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
 
 ## Side note
@@ -615,10 +603,6 @@ Part 1: [How to Find Saved Videos on Facebook on PC or Mobile?](#step1)
 
 Part 2: [How to Find Videos on Facebook You Recently Watched?](#step2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. How to Find Saved Videos on Facebook on PC or Mobile?
 
 Since you can use Facebook on both PC and mobile, we will give you instructions with respect to both.
@@ -632,10 +616,6 @@ Following is a step-by-step guide for finding saved Facebook videos on your PC.
 From your browser, access Facebook by going to the [website](https://www.facebook.com/).
 
 ![Go to Facebook website](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-1.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2: Log in to Your Account**
 
@@ -699,19 +679,11 @@ Scroll through the videos to find the one you want.
 
 The steps given above will lead you to your Saved videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. How to Find Videos on Facebook You Recently Watched?
 
 Suppose you were watching a video that you wanted to save, but somehow it got displaced, and you cannot find it again. In that case, you can go to Facebook's recently watched videos.
 
 Here, we will help you find the Recently Watched Videos on PC and phone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Finding Recently Watched Videos on Computer
 
@@ -733,10 +705,6 @@ Under your profile, on the right, you will see three dots. Click on them to acce
 
 ![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-10.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4: Go to Activity Log**
 
 From the dropdown menu, click on “Activity Log.”
@@ -753,10 +721,6 @@ From the list of activities, select “Videos you’ve watched.” This will dis
 
 ![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Finding Recently Watched Videos on Phone
 
 Now, let's see how it works on the mobile. Follow the step-by-step guideline.
@@ -770,10 +734,6 @@ Open the Facebook app and log in if you are not already logged in from your home
 On the top right corner of the screen, click on the three bars that you see. This will take you to the Menu.
 
 ![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-13.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3: Go to Your Profile**
 
@@ -838,16 +798,19 @@ We hope it helps!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-enabling-instant-access-to-youtube-videos-in-your-facebook-browsing/"><u>[New] 2024 Approved Enabling Instant Access to YouTube Videos in Your Facebook Browsing</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-unveiling-a-world-of-live-content-roku-and-facebook-integration/"><u>[New] 2024 Approved Unveiling a World of Live Content Roku and Facebook Integration</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-comprehensive-screen-capture-and-synchronization-techniques/"><u>[New] In 2024, Comprehensive Screen Capture and Synchronization Techniques</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-quick-content-in-a-facebook-frame/"><u>[New] Quick Content in a Facebook Frame</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-navigating-the-square-wave-of-facebook-video-popularity/"><u>[Updated] 2024 Approved Navigating the Square Wave of Facebook Video Popularity</u></a></li>
-<li><a href="https://win-ratings.techidaily.com/windowspc3/"><u>失われた音楽を回復!WindowsPCで使える3つのシンプル方法</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/free-online-conversion-webp-to-bmp-with-movavis-instant-tools/"><u>Free Online Conversion: WebP to BMP with Movavi's Instant Tools</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/from-bert-to-gpt-analyzing-distinctive-aspects-of-advanced-language-models/"><u>From BERT to GPT: Analyzing Distinctive Aspects of Advanced Language Models</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/making-the-most-of-your-television-with-fb-live-for-2024/"><u>Making the Most of Your Television with FB Live for 2024</u></a></li>
-<li><a href="https://fox-making.techidaily.com/resolved-troubleshooting-steps-for-a-non-functioning-bootable-usb-on-windows-10-and-11-top-5-methods/"><u>Resolved: Troubleshooting Steps for a Non-Functioning Bootable USB on Windows 10 and 11 - Top 5 Methods</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/windows-users-guide-sendingreceiving-imessages-made-easy-with-step-by-step-tips/"><u>Windows Users' Guide: Sending/Receiving iMessages Made Easy with Step-by-Step Tips</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-escaping-boredom-with-laughter-20-wit-infused-jailmates-tales-from-fb/"><u>[New] In 2024, Escaping Boredom with Laughter 20 Wit-Infused Jailmates' Tales From Fb</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-innovative-approach-to-revamping-your-videos-cover-images-on-fb-for-2024/"><u>[New] Innovative Approach to Revamping Your Videos' Cover Images on FB for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-social-network-synergy-enhancing-story-sharing/"><u>[New] Social Network Synergy Enhancing Story Sharing</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-strategic-broadcast-planning-youtube-and-the-top-30-networks/"><u>[New] Strategic Broadcast Planning YouTube & The Top 30 Networks</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024s-finest-virtual-economy-and-management-games/"><u>[Updated] 2024’S Finest Virtual Economy and Management Games</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-social-media-wiz-how-to-create-captivating-slideshow-stories-for-facebook/"><u>[Updated] In 2024, Social Media Wiz How to Create Captivating Slideshow Stories for Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-simplifying-the-process-of-watching-fb-live-on-roku/"><u>[Updated] Simplifying the Process of Watching FB Live on Roku</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-swift-action-on-slow-footage-with-best-apps/"><u>2024 Approved Swift Action on Slow Footage with Best Apps</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/54sh5paz44oe44o844or44ks5rs755so44gx44gm5yuv55s744gu44ot44k444ol44ki44or44go44kq44o844oh44kj44kq44ks5a6m55kn44gr44oq44oz44kv44gz44kl5pa55rov/"><u>無料ツールを活用して動画のビジュアルとオーディオを完璧にリンクする方法</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/franska-snappverktyg-bast-i-202-infobox/"><u>Franska Snappverktyg: Bäst I 202 [Infobox]</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/guia-rapido-e-facil-converter-arquivos-ts-em-mp4-com-o-movavi/"><u>Guia Rápido E Fácil: Converter Arquivos TS Em MP4 Com O Movavi</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-apple-iphone-12-mini-find-my-friends-no-location-found-drfone-by-drfone-virtual-ios/"><u>How to Fix Apple iPhone 12 mini Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/ideal-video-player-apps-for-windows-os-enthusiasts/"><u>Ideal Video Player Apps for Windows OS Enthusiasts</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Oppo Reno 9A | Dr.fone</u></a></li>
 </ul></div>
 

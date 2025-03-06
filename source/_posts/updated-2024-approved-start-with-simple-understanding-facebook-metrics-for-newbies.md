@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Start with Simple  Understanding Facebook Metrics for Newbies\""
-date: 2025-01-20T17:19:07.365Z
-updated: 2025-01-25T17:25:42.041Z
+date: 2025-02-26T22:15:11.852Z
+updated: 2025-03-05T23:07:06.940Z
 tags:
   - ai video
   - ai facebook
@@ -47,10 +47,6 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 
  By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: How to Use Facebook Insights for Beginners
 
 ### 1\. Overview
@@ -58,10 +54,6 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
 
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Page Likes
 
@@ -72,10 +64,6 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
  Secondly, the **net likes**, which captures the total new likes on your page subtracted by the total dislikes.
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Post Reach
 
@@ -88,10 +76,6 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
  In Hide, Report as Spam, and Unlikes, you may check the negative people count on your page. When the negative engagement of the people is more, lesser people can view your post in future.
 
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Post Promotion
 
@@ -121,19 +105,11 @@ thumbnail: https://www.lifewire.com/thmb/B4KfDNM2Gr1PuD_gwNipX4k71Vk=/540x405/fi
 
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
  Measuring the success of your Facebook page and posts is now easy with Facebook Insights. Keep a track of your posts and preferences of your audiences and run the campaigns successfully. Follow the above points to use the Facebook Insights without any confusion.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -152,15 +128,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-securely-accessing-insta-stories-anon-pcandroidios-guide/"><u>[New] Securely Accessing Insta Stories Anon PC/Android/iOS Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-designing-unique-instagram-post-cover-texts/"><u>[Updated] 2024 Approved Designing Unique Instagram Post Cover Texts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-exploring-profit-sharing-in-youtube-short-creation/"><u>[Updated] 2024 Approved Exploring Profit Sharing in YouTube Short Creation</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-exploring-roku-watching-facebook-live-effortlessly/"><u>[Updated] 2024 Approved Exploring Roku Watching Facebook Live Effortlessly</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-boosting-your-fb-pages-advanced-ranking-strategies-for-2024/"><u>[Updated] Boosting Your FB Pages Advanced Ranking Strategies for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/discreetly-streaming-top-8-video-tools-of-the-year-2023-for-2024/"><u>Discreetly Streaming Top 8 Video Tools of the Year, 2023 for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/fb-live-demystified-how-to-watch-2023-update-for-2024/"><u>FB Live Demystified How to Watch, 2023 Update for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-delete-icloud-account-with-or-without-password-from-your-apple-iphone-7-pluswindowsmac-by-drfone-ios/"><u>How to Delete iCloud Account with or without Password from your Apple iPhone 7 Plus/Windows/Mac</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-poco-c65-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Poco C65 Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/protecting-your-privacy-how-to-remove-apple-id-from-iphone-12-by-drfone-ios/"><u>Protecting Your Privacy How To Remove Apple ID From iPhone 12</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-making-the-most-out-of-your-films-b-roll/"><u>[New] In 2024, Making the Most Out of Your Film's B-Roll</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-mastering-the-art-of-transferring-instagram-footage-to-pcmac-for-2024/"><u>[New] Mastering the Art of Transferring Instagram Footage to PC/Mac for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-ultimate-guide-for-a-solo-show-that-stands-out/"><u>[New] The Ultimate Guide for a Solo Show that Stands Out</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-ideal-choices-priority-6-fb-lite-vids/"><u>[Updated] Ideal Choices Priority 6 FB Lite Vids</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-save-your-fb-pages-download-8-best-tools-online-and-free/"><u>[Updated] In 2024, Save Your FB Pages Download 8 Best Tools Online & Free</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-trendsetting-techniques-going-viral-in-the-digital-world/"><u>[Updated] Trendsetting Techniques Going Viral in the Digital World</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-video-selfie-verification-on-instagram-helpful-or-hype/"><u>[Updated] Video Selfie Verification on Instagram - Helpful or Hype?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-socialmediarecorder-toolkit/"><u>2024 Approved SocialMediaRecorder Toolkit</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/darklight-studio-lightrooms-cheap-equivalents/"><u>Darklight Studio Lightroom's Cheap Equivalents</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/funniest-memes-born-select-the-best-generators-for-2024/"><u>Funniest Memes Born Select the Best Generators for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-get-professional-results-for-free-8-online-video-stabilizers-you-need-to-try/"><u>New In 2024, Get Professional Results for Free 8 Online Video Stabilizers You Need to Try</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-pictures-from-samsung-galaxy-m34-by-fonelab-android-recover-pictures/"><u>Possible solutions to restore deleted pictures from Samsung Galaxy M34.</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/us-stock-futures-edge-up-following-fed-chair-powells-inflation-stance-anticipating-additional-rate-hikes/"><u>US Stock Futures Edge Up Following Fed Chair Powell's Inflation Stance: Anticipating Additional Rate Hikes</u></a></li>
 </ul></div>
 

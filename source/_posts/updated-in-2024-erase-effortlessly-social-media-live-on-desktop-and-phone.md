@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Erase Effortlessly  Social Media Live on Desktop & Phone\""
-date: 2025-01-24T18:12:13.933Z
-updated: 2025-01-25T23:14:16.786Z
+date: 2025-02-26T20:40:22.987Z
+updated: 2025-03-05T21:36:26.183Z
 tags:
   - ai video
   - ai facebook
@@ -76,15 +76,7 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This is how you will remove the stories from Facebook archived.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
 
@@ -98,14 +90,6 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How to Control Who Can View Your Facebook Stories?
 
 You can make your stories visible to your friends, customize the viewers, or keep them public. Facebook allows you to control how and with whom you want to share your stories with.
@@ -117,10 +101,6 @@ You can make your stories visible to your friends, customize the viewers, or kee
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5: How to Hide Facebook Story from Specific People?
 
@@ -139,10 +119,6 @@ If you don't want to see someone else’s story, then you can mute their stories
 Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
 
 ![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -165,14 +141,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-expert-guide-to-overcoming-instagrams-video-obstacles/"><u>[New] 2024 Approved Expert Guide to Overcoming Instagram's Video Obstacles</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-how-to-for-transforming-your-profile-photo-on-major-social-platforms/"><u>[New] How-To for Transforming Your Profile Photo on Major Social Platforms</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-navigating-the-landscape-of-fb-video-advertising-with-best-practices-for-2024/"><u>[New] Navigating the Landscape of FB Video Advertising with Best Practices for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-tactics-to-triple-your-youtube-subscription-numbers/"><u>[New] Tactics to Triple Your YouTube Subscription Numbers</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-ultimate-strategies-for-leveraging-the-question-sticker-on-instagram/"><u>[New] The Ultimate Strategies for Leveraging the Question Sticker on Instagram</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-unlocking-the-secrets-of-youtube-video-comments-for-2024/"><u>[New] Unlocking the Secrets of YouTube Video Comments for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-musical-spectacles-the-best-top-10-videos-on-facebook/"><u>[Updated] 2024 Approved Musical Spectacles The Best Top 10 Videos on Facebook</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-mastering-social-media-creating-your-first-facebook-reel/"><u>[Updated] Mastering Social Media Creating Your First Facebook Reel</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-step-by-step-guide-to-effective-screen-recording-with-mobizen/"><u>[Updated] Step-by-Step Guide to Effective Screen Recording with Mobizen</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-free-tools-to-save-big-screen-fb-video/"><u>[New] Free Tools to Save Big Screen FB Video</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-seamless-social-streams-link-instagram-and-facebook-for-2024/"><u>[New] Seamless Social Streams Link Instagram & Facebook for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-seamless-sharing-twitch-links-on-your-fb-page/"><u>[Updated] 2024 Approved Seamless Sharing Twitch Links on Your FB Page</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-are-there-restrictions-in-saving-youtube-videos/"><u>[Updated] Are There Restrictions in Saving YouTube Videos?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/frontier-fantasies-selecting-the-most-impressive-titles-for-2024/"><u>Frontier Fantasies Selecting the Most Impressive Titles for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/insiders-look-at-instagram-viewership-metrics/"><u>Insider's Look at Instagram Viewership Metrics</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/tips-for-dynamic-and-engaging-video-covers-on-the-worlds-largest-social-media-network-for-2024/"><u>Tips for Dynamic & Engaging Video Covers on the World's Largest Social Media Network for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/ultimate-collection-optimal-fb-lite-videos-for-2024/"><u>Ultimate Collection Optimal FB Lite Videos for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-the-5-best-free-m4a-audio-editors-you-need-to-try/"><u>Updated In 2024, The 5 Best Free M4A Audio Editors You Need to Try</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-update-hardware-drivers-on-windows-10-and-7-by-drivereasy-guide/"><u>Use Device Manager to update hardware drivers on Windows 10 & 7</u></a></li>
 </ul></div>
 

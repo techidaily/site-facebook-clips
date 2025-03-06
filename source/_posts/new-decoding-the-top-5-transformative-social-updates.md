@@ -1,7 +1,7 @@
 ---
 title: "[New] Decoding the Top 5 Transformative Social Updates"
-date: 2025-02-13T02:08:50.540Z
-updated: 2025-02-17T02:16:09.290Z
+date: 2025-02-26T23:43:50.984Z
+updated: 2025-03-05T19:25:30.368Z
 tags:
   - ai video
   - ai facebook
@@ -29,10 +29,6 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
@@ -43,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Messenger Day – The Snapchat Way
 
  This app was also launched in the month of March and surprisingly it appeared like biggest competitor against Instagram Stories and Snapchat. However, few features like stickers, filters and posts disappearing within 24 hours etc are also same as that of other competing platforms.
@@ -55,19 +47,11 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
  One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. Facebook Live
 
  Earlier, Facebook users were utilizing Facebook Live API to live stream on Facebook from their smartphone or tablet. But now it is possible to start broadcasting directly from your Laptop or Personal desktop computer using Facebook Live Feature. Further, Admins can also tag others as Live Contributors during streaming process on pages. You can also add comments to live broadcasts which were not possible earlier. So it is right time to explore the new Facebook Live feature on your device, you will easily find it on top of the news feeds.
 
  Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Advertising Capabilities
 
@@ -77,10 +61,6 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 * It is now possible to merge ad breaks of about 25 seconds into live videos. That’s really impressive.
 
 [How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Group Videos
 
@@ -103,21 +83,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-cured-non-appearance-of-tiny-vid-content/"><u>[New] 2024 Approved Cured Non-Appearance of Tiny Vid Content</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-the-ultimate-guide-to-aspect-ratios-on-fb-videos/"><u>[New] 2024 Approved The Ultimate Guide to Aspect Ratios on FB Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-how-to-upload-video-to-facebook-from-pc-and-android-for-2024/"><u>[New] How to Upload Video to Facebook From PC and Android for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-ultimate-guide-to-easy-youtube-subtitle-and-closed-caption-addition/"><u>[New] In 2024, Ultimate Guide to Easy YouTube Subtitle and Closed Caption Addition</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-navigating-the-netizens-realm-youtube-videos-fb/"><u>[New] Navigating the Netizen's Realm YouTube Videos FB</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-ace-your-fb-video-campaigns-with-these-powerful-tricks/"><u>[Updated] 2024 Approved Ace Your FB Video Campaigns with These Powerful Tricks</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-crafting-an-engaging-online-presence-with-fb/"><u>[Updated] 2024 Approved Crafting an Engaging Online Presence with FB</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-in-depth-guide-obs-for-gamers/"><u>[Updated] 2024 Approved In-Depth Guide OBS for Gamers</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-maximize-engagement-with-facebook-posting-360-degree-photos-on-mobile/"><u>[Updated] 2024 Approved Maximize Engagement with Facebook Posting 360-Degree Photos on Mobile</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-how-to-add-music-to-facebook-profile-iphone-and-android-for-2024/"><u>[Updated] How to Add Music to Facebook Profile (iPhone & Android)？ for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-reel-it-in-techs-video-harvest/"><u>2024 Approved Reel It In Tech's Video Harvest</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-add-my-signature-to-wpd-file-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to add my signature to .wpd file</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-professionalscreenx-insiders-take-on-software/"><u>In 2024, ProfessionalScreenX Insider’s Take on Software</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ation-in-action-youtube-split-screen-techniques/"><u>Innovation in Action YouTube Split-Screen Techniques</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-realme-gt-5-pro-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Realme GT 5 Pro FRP Bypass</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/unlock-the-power-of-voice-chat-fix-speaker-and-microphone-issues-on-your-sea-of-thieves-game/"><u>Unlock the Power of Voice Chat: Fix Speaker and Microphone Issues on Your Sea of Thieves Game</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2023-techniques-for-harvesting-fb-status-video-content/"><u>[New] 2023 Techniques for Harvesting FB Status Video Content</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-best-websites-and-software-to-add-frames-to-photos/"><u>[New] In 2024, Best Websites and Software to Add Frames to Photos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-capture-360-degree-scenes-on-iphone-share-with-fb/"><u>[New] In 2024, Capture 360-Degree Scenes on iPhone, Share with FB</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-direct-match-twitchs-battle-against-youtubes-dominance/"><u>[New] In 2024, Direct Match Twitch's Battle Against YouTube's Dominance</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-leap-into-a-bigger-view-the-new-full-screen-fb-video-trend-for-2024/"><u>[New] Leap Into a Bigger View The New Full-Screen FB Video Trend for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/astering-engagement-a-compendium-of-the-top-20-youtube-hacks-for-2024/"><u>[New] Mastering Engagement A Compendium of the Top 20 YouTube Hacks for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-mastering-the-art-of-locating-fb-lately-seen-videos/"><u>[New] Mastering the Art of Locating Fb Lately Seen Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-animation-advantage-boosting-profits-in-social-media-ads/"><u>[New] The Animation Advantage Boosting Profits in Social Media Ads</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-facebook-registration-simplified/"><u>[Updated] 2024 Approved Facebook Registration Simplified</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-facebook-fanfare-unveiled-android-and-iphones-most-liked-apps/"><u>[Updated] In 2024, Facebook Fanfare Unveiled Android & iPhone's Most Liked Apps</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-profiling-perfection-a-visual-guide/"><u>[Updated] In 2024, Profiling Perfection A Visual Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-ultimate-guide-to-economical-high-performance-asmr-microphones/"><u>[Updated] In 2024, Ultimate Guide to Economical, High-Performance ASMR Microphones</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unleashing-shareability-secrets-of-trending-on-fb/"><u>[Updated] In 2024, Unleashing Shareability Secrets of Trending on Fb</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-perfect-peace-mastering-the-art-of-muting-individuals-on-gomeet/"><u>2024 Approved Perfect Peace Mastering the Art of Muting Individuals on GoMeet</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1726227254445-mpegmovavi/"><u>完全無料のオンラインMPEG変換器:簡単操作で高画質を実現するMovaviシミュレート</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/advance-repair-for-bad-and-corrupt-video-files-of-oneplus-by-stellar-video-repair-mobile-video-repair/"><u>Advance Repair for Bad and Corrupt Video Files of OnePlus</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-poco-c55-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Poco C55? | Dr.fone</u></a></li>
 </ul></div>
 

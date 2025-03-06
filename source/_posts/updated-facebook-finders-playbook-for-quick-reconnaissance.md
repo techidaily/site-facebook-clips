@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Facebook Finder’s Playbook for Quick Reconnaissance"
-date: 2025-01-21T18:56:46.863Z
-updated: 2025-01-25T22:13:02.770Z
+date: 2025-03-02T18:20:13.646Z
+updated: 2025-03-05T21:49:24.547Z
 tags:
   - ai video
   - ai facebook
@@ -46,35 +46,15 @@ On the header tool icons, click on your name and you are directed to your Facebo
 
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 3: Friends Finder Page
 
 To reach the friend’s finder page, click on “find friends” from the friends’ page header. Doing so takes you to the “Friends Finder” page of Facebook.
 
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 4: Friends Search
 
 On the top right of old friends search, you can find the “search for your friends” filters. To search your old friends by name, you have to enter their part or full names in the name field and look for them. To find your friends by their location, you may enter your friend’s hometown city’s name in the hometown field to search them by the place when they earlier lived in. To find your school friends or High school and university friends, you may enter the schools’ name and search for them. For searching your old colleagues, you may enter the company or employer’s name and find people who worked in the same organization.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 5: Check the results
 
@@ -91,10 +71,6 @@ On a browser open the [Search is Back site](https://searchisback.com/). You can 
 ### 2\. Input your Interest
 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Add People as Friends
 
@@ -135,20 +111,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-clearshot-suite-high-quality-windows/"><u>[New] In 2024, ClearShot Suite - High-Quality Windows</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-navigating-xbox-broadcasts-to-facebook-streams/"><u>[Updated] 2024 Approved Navigating Xbox Broadcasts to Facebook Streams</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-navigating-audio-capture-in-minecraft-a-mac-experts-handbook/"><u>[Updated] Navigating Audio Capture in Minecraft A Mac Expert's Handbook</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-optimal-budget-free-fb-picturemotion-designer/"><u>[Updated] Optimal Budget-Free FB Picture/Motion Designer</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-the-complete-laptop-and-mobile-manual-for-old-fb-stories-for-2024/"><u>[Updated] The Complete Laptop & Mobile Manual for Old FB Stories for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-social-sensation-skills-making-a-buzz-on-your-profiles-wall/"><u>2024 Approved Social Sensation Skills Making a Buzz on Your Profile's Wall</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easy-guide-obtaining-your-logitech-m525-driver-and-setup-programs/"><u>Easy Guide: Obtaining Your Logitech M525 Driver and Setup Programs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/financial-justification-for-purchasing-apple-tv/"><u>Financial Justification for Purchasing Apple TV</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-manually-install-a-hardware-driver-on-windows-11-and-10-and-7-by-drivereasy-guide/"><u>How to Manually Install a Hardware Driver on Windows 11 & 10 & 7</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/leading-edge-discover-the-5-emerging-ai-hardware-technologies/"><u>Leading Edge: Discover the 5 Emerging AI Hardware Technologies</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/master-facebooks-hd-livestreaming-techniques-for-2024/"><u>Master Facebook’s HD Livestreaming Techniques for 2024</u></a></li>
-<li><a href="https://techidaily.com/unlock-android-phone-if-you-dont-have-vivo-y78plus-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you don't have Vivo Y78+ fingerprint</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/unlocking-the-potential-of-your-online-persona-on-facebook-for-2024/"><u>Unlocking the Potential of Your Online Persona on Facebook for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/what-is-a-watermark-how-to-watermark-your-facebook-photosvideos-for-2024/"><u>What Is a Watermark? How to Watermark Your Facebook Photos/Videos for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/1725287583888-winx-dvd/"><u>익명 WinX 비디오 컨버터 소프트웨어 리소스: 무료 DVD 사용자가 필요로하는 도구 다운로드</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-engaging-audiences-facebook-live-meets-tv-for-2024/"><u>[New] Engaging Audiences Facebook Live Meets TV for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-create-hit-facebook-song-vids-10-edition-for-2024/"><u>[New] How to Create Hit Facebook Song Vids - #10 Edition for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-dynamic-dividends-boosting-social-media-roi-with-fb-ad-animations/"><u>[New] In 2024, Dynamic Dividends Boosting Social Media ROI with FB Ad Animations</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-odins-revenge-ragnarok-coming-soon/"><u>[New] In 2024, Odin's Revenge Ragnarök - Coming Soon</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-inquiry-exploring-shared-videos-and-images-in-direct-conversations/"><u>[New] Inquiry Exploring Shared Videos & Images in Direct Conversations</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-net-booster-fb-stories-repository-app-for-2024/"><u>[New] Net Booster FB Stories Repository App for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-user-generated-content-harnessing-community-influence/"><u>[New] Unlocking User-Generated Content Harnessing Community Influence</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-beat-the-hurdle-best-video-extractors-for-your-iphoneipad-from-fb/"><u>[Updated] Beat the Hurdle Best Video Extractors for Your iPhone/iPad From FB</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-efficient-audio-extraction-from-youtube-top-picks-for-your-favorite-free-crackers/"><u>[Updated] In 2024, Efficient Audio Extraction From YouTube Top Picks for Your Favorite Free Crackers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-initiate-online-interactions-with-this-guide-to-facebook-registration/"><u>[Updated] In 2024, Initiate Online Interactions with This Guide to Facebook Registration</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-depth-analysis-the-top-7-android-apps-to-combat-ads-effectively/"><u>[Updated] In-Depth Analysis The Top 7 Android Apps to Combat Ads Effectively</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-tailored-walkthrough-watching-facebook-videos-seamlessly-on-apple-tv-for-2024/"><u>[Updated] Tailored Walkthrough Watching Facebook Videos Seamlessly on Apple TV for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/easier-cinematography-perfecting-fade-effects-for-2024/"><u>Easier Cinematography Perfecting Fade Effects for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-become-a-trendsetter-in-snapchat-innovate-with-dynamic-boomers/"><u>In 2024, Become a Trendsetter in SnapChat Innovate with Dynamic Boomers</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-oppo-a1-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Oppo A1 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
 </ul></div>
 

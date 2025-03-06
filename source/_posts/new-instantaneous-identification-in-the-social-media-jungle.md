@@ -1,7 +1,7 @@
 ---
 title: "[New] Instantaneous Identification in the Social Media Jungle"
-date: 2025-01-21T22:26:40.016Z
-updated: 2025-01-25T21:39:27.530Z
+date: 2025-03-01T16:48:43.870Z
+updated: 2025-03-05T21:34:27.300Z
 tags:
   - ai video
   - ai facebook
@@ -34,33 +34,17 @@ Here are two ways to search people on Facebook. The second option also helps you
 * [**Part 1: How to search people on Facebook**](#part1)
 * [**Part 2: How to search people using Search Is Back**](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to search people on Facebook
 
 ### Step 1: Log in to Facebook
 
 Open Facebook on your computer – Firstly, open a web browser and get to the Facebook website. You can find the log in fields on the top right corner of the page. Input your user ID and password and hit the login button at the side to proceed further.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 2: Check your list of Friends on Facebook
 
 On the header tool icons, click on your name and you are directed to your Facebook wall or timeline. Just below your cover image, click the friend’s tab, to reach the Friends page that shows all your friends on Facebook.
 
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 3: Friends Finder Page
 
@@ -83,10 +67,6 @@ On the left panel, you can find several names matching your search filter. You j
 On a browser open the [Search is Back site](https://searchisback.com/). You can find four tabs at the top of the page. Click on the first tab, “Find People” and a page appears to select your picks from the available options.
 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Input your Interest
 
@@ -114,10 +94,6 @@ If you want to make Facebook videos, try to use [Filmora](https://tools.techidai
 
 [](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -135,16 +111,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-boosting-roi-in-fb-ads-through-animation-techniques-for-2024/"><u>[New] Boosting ROI in FB Ads Through Animation Techniques for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-fb-video-grabber-hq-download-guide/"><u>[New] FB Video Grabber HQ Download Guide</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-saturation-perfection-tool/"><u>[New] Saturation Perfection Tool</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-elevate-your-social-media-impact-secrets-unveiled-in-the-best-facebook-bios/"><u>[Updated] Elevate Your Social Media Impact Secrets Unveiled in the Best Facebook Bios</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-step-by-step-tutorial-fb-video-and-apple-tv-combination-for-2024/"><u>[Updated] Step-By-Step Tutorial FB Video & Apple TV Combination for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-harness-online-tools-for-free-fb-video-conversion-to-1080p720p-mp4/"><u>In 2024, Harness Online Tools for Free FB Video Conversion to 1080P/720p MP4</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/maximizing-video-sharing-adding-imovie-clips-to-vimeo-for-2024/"><u>Maximizing Video Sharing Adding iMovie Clips to Vimeo for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/meet-the-beautiful-replacement-for-chrome-arc-browser-now-available-on-windows-platforms/"><u>Meet the Beautiful Replacement for Chrome – Arc Browser Now Available on Windows Platforms!</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/navigating-the-world-of-electrified-cars-how-do-battery-powered-plug-in-hydrogen-cell-and-hybrid-vehicles-stack-up/"><u>Navigating the World of Electrified Cars: How Do Battery-Powered, Plug-In, Hydrogen Cell, and Hybrid Vehicles Stack Up?</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/next-level-gaming-setup-with-the-newest-gen-of-samsungs-55-4k-odyssey-monitor-at-a-historic-low-cost/"><u>Next-Level Gaming Setup with the Newest Gen of Samsung's 55 4K Odyssey Monitor at a Historic Low Cost!</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-exploring-vlcs-screen-recorder-features/"><u>[New] In 2024, Exploring VLC's Screen Recorder Features</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-gaming-evolved-streaming-xbox-content-on-facebook/"><u>[New] In 2024, Gaming Evolved Streaming Xbox Content on Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-seamless-social-integration-share-from-twitch-to-fb/"><u>[New] In 2024, Seamless Social Integration Share From Twitch to FB</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ideo-platform-economics-a-tale-of-two-titles-income-potentials-for-2024/"><u>[New] Video Platform Economics A Tale of Two Titles' Income Potentials for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-winning-with-windows-videos-tips-for-enhancing-vimeo-feeds-for-2024/"><u>[New] Winning with Windows Videos Tips for Enhancing Vimeo Feeds for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-ultimate-guide-shifting-your-profile-picture-on-global-platforms/"><u>[Updated] The Ultimate Guide Shifting Your Profile Picture on Global Platforms</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-trendsetters-toolkit-must-have-essentials-for-todays-innovative-professionals/"><u>[Updated] Trendsetters Toolkit Must-Have Essentials for Today's Innovative Professionals</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-fix-chrome-non-playing-androidios-videos/"><u>2024 Approved Fix Chrome Non-Playing Android/iOS Videos</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-oppo-reno-10-pro-5g-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Oppo Reno 10 Pro 5G</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazons-kindle-oasis-201-delving-into-a-refined-paper-similar-reading-journey/"><u>Amazon's Kindle Oasis 201#: Delving Into a Refined, Paper-Similar Reading Journey</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/guide-on-how-to-erase-iphone-7-data-completely-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Erase iPhone 7 Data Completely | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-add-link-to-facebook-story-for-free/"><u>How to Add Link to Facebook Story for Free?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Samsung Galaxy F04 | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-new-era-facebook-video-autoplay-explained-for-2024/"><u>The New Era Facebook Video Autoplay Explained for 2024</u></a></li>
 </ul></div>
 

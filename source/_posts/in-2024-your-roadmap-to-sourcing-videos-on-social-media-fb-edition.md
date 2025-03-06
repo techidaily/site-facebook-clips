@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Your Roadmap to Sourcing Videos on Social Media (FB Edition)"
-date: 2025-02-13T23:40:02.205Z
-updated: 2025-02-16T21:12:54.076Z
+date: 2025-03-04T16:38:00.197Z
+updated: 2025-03-05T23:01:21.508Z
 tags:
   - ai video
   - ai facebook
@@ -121,10 +121,6 @@ Suppose you were watching a video that you wanted to save, but somehow it got di
 
 Here, we will help you find the Recently Watched Videos on PC and phone.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Finding Recently Watched Videos on Computer
 
 To find Facebook videos that you have watched recently on the computer, follow the steps given below.
@@ -160,10 +156,6 @@ On the left of your screen, you will see an Activity log panel. Click on "Logged
 From the list of activities, select “Videos you’ve watched.” This will display all the videos you’ve watched recently.
 
 ![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Finding Recently Watched Videos on Phone
 
@@ -367,10 +359,6 @@ On the top right corner of the screen, click on the three bars that you see. Thi
 
 ![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-13.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Go to Your Profile**
 
 From the Menu, click on your profile at the top of the screen.
@@ -387,10 +375,6 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
 
 **Step 6: Click on “Videos you’ve watched.”**
@@ -400,10 +384,6 @@ From the list of activities, tap on “Videos you’ve watched.”
 ![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
 
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Side note
 
@@ -461,10 +441,6 @@ Once you log in, you will see your News Feed. On the left side of your screen, a
 
 ![Search for the “Saved” tab](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-3.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4: Click on Saved**
 
 Click on “Saved.” You will enter another interface where all your saved items will be visible.
@@ -485,10 +461,6 @@ From your home screen or apps list, open the Facebook app.
 
 ![Open the Facebook App](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-4.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Go to Menu**
 
 From the News Feed, click on the three bars at the bottom right corner of the screen to go to Menu.
@@ -501,19 +473,11 @@ In the Menu, scroll down to see the "Saved" tab. Click on it.
 
 ![Go to Saved](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-6.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4: Click on “See All”**
 
 In order to view the saved video quickly, click on “See All” under the Most Recent tab.
 
 ![Click on “See All”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-7.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 5: Filter the Items**
 
@@ -702,10 +666,6 @@ In the Menu, scroll down to see the "Saved" tab. Click on it.
 In order to view the saved video quickly, click on “See All” under the Most Recent tab.
 
 ![Click on “See All”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-7.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 5: Filter the Items**
 
@@ -838,24 +798,24 @@ We hope it helps!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-quick-steps-to-nostalgic-facebook-story-viewing/"><u>[New] 2024 Approved Quick Steps to Nostalgic Facebook Story Viewing</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-fixing-mistaken-face-id-in-facebook-chats/"><u>[New] Fixing Mistaken Face ID in Facebook Chats</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-the-slomo-video-app-critique-a-look-at-2024/"><u>[New] The SloMo Video App Critique - A Look at 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-combining-chords-and-clips-the-ultimate-fb-video-soundtrack/"><u>[Updated] 2024 Approved Combining Chords and Clips The Ultimate FB Video Soundtrack</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-key-elements-of-attractive-fb-video-commercials/"><u>[Updated] 2024 Approved Key Elements of Attractive FB Video Commercials</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-crafting-visual-magic-the-power-of-luts-in-ar-environments/"><u>[Updated] Crafting Visual Magic The Power of LUTs in AR Environments</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-direct-video-streaming-sending-fb-vids-straight-into-whatsapp/"><u>[Updated] Direct Video Streaming Sending FB Vids Straight Into WhatsApp</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-trending-titles-navigating-through-facebooks-hot-takes/"><u>[Updated] Trending Titles Navigating Through Facebook's Hot Takes</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-quick-tip-to-uncover-your-recently-watched-movies-on-fb/"><u>2024 Approved Quick Tip to Uncover Your Recently Watched Movies on FB</u></a></li>
-<li><a href="https://common-error.techidaily.com/dealing-with-random-pc-turn-offs-heres-how-to-fix-it/"><u>Dealing with Random PC Turn-Offs? Here's How to Fix It!</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-7-best-nft-generators-to-turn-your-artwork-into-nfts/"><u>In 2024, 7 Best NFT Generators to Turn Your Artwork Into NFTs</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Xiaomi 14 Ultra | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-samsung-galaxy-m14-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Samsung Galaxy M14 5G FRP Bypass</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-oneplus-nord-ce-3-lite-5g-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For OnePlus Nord CE 3 Lite 5G Phones</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-what-you-missed-a-closer-look-at-facebooks-2023-upgrades/"><u>In 2024, What You Missed A Closer Look at Facebook's 2023 Upgrades</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/inside-the-phones-of-tech-gurus-at-zdnet-a-comprehensive-device-showcase-and-evaluation/"><u>Inside the Phones of Tech Gurus at ZDNet: A Comprehensive Device Showcase & Evaluation</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/leveraging-hashtags-to-enhance-fb-user-engagement-for-2024/"><u>Leveraging Hashtags to Enhance FB User Engagement for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/making-your-mark-with-effective-facebook-cover-vids-for-2024/"><u>Making Your Mark with Effective Facebook Cover Vids for 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/the-ultimate-mobile-1-app-for-securely-erasing-data-from-mac-devices/"><u>The Ultimate Mobile 1 App for Securely Erasing Data From Mac Devices</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-rectify-faux-face-display-on-social-network-engagements/"><u>[New] 2024 Approved Rectify Faux Face Display on Social Network Engagements</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-pursuit-for-full-viewable-content-from-friends-on-direct-chat-platforms/"><u>[New] Pursuit for Full Viewable Content From Friends on Direct Chat Platforms</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-seamless-video-downloads-windowsmacosandroid-2e-2023-for-2024/"><u>[New] Seamless Video Downloads Windows/macOS/Android, 2E 2023 for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-the-secrets-of-getting-up-close-in-roblox-environments/"><u>[Updated] 2024 Approved The Secrets of Getting Up Close in Roblox Environments</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-dive-into-social-media-streams-watching-facebook-live-on-roku-for-2024/"><u>[Updated] Dive Into Social Media Streams Watching Facebook Live on Roku for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-essential-fix-re-emerge-missing-watch-icon-2023-for-2024/"><u>[Updated] Essential Fix Re-Emerge Missing Watch Icon, 2023 for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-hololens-unravelled-microsofts-augmented-future-insight/"><u>[Updated] HoloLens Unravelled Microsoft’s Augmented Future Insight</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-immersive-experience-keepers-fb-live-2023/"><u>[Updated] In 2024, Immersive Experience Keepers FB Live 2023</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-undetected-consumer-of-life-streams-fb/"><u>[Updated] In 2024, Undetected Consumer of Life Streams (FB)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-resolution-showdown-gopro-vs-polaroids-editing-experience/"><u>[Updated] Resolution Showdown GoPro Vs. Polaroid's Editing Experience</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-revolutionizing-facebook-video-cover-updates-tips-and-tricks/"><u>[Updated] Revolutionizing Facebook Video Cover Updates Tips and Tricks</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-securing-your-contents-reputation-while-gaining-a-million-viewer-engagements/"><u>[Updated] Securing Your Content's Reputation While Gaining A Million Viewer Engagements</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/downloading-made-simple-discover-the-4-aces/"><u>Downloading Made Simple Discover the 4 Aces</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On HTC U23 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-chromebooks-finest-drawing-software-compared/"><u>In 2024, Chromebook's Finest Drawing Software Compared</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-the-essence-of-elegance-in-video-color-balancing/"><u>In 2024, The Essence of Elegance in Video Color Balancing</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/performance-and-features-breakdown-of-the-updated-apple-tv-gen-3-4k/"><u>Performance and Features Breakdown of the Updated Apple TV (Gen 3) 4K</u></a></li>
+<li><a href="https://windows11.techidaily.com/unmasking-winerror-code-0x800f0831-fix-procedure/"><u>Unmasking WinError Code 0X800f0831: Fix Procedure</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unraveling-why-your-facebooks-newsfeed-fails-to-suggest-movies-for-2024/"><u>Unraveling Why Your Facebook's Newsfeed Fails to Suggest Movies for 2024</u></a></li>
 </ul></div>
 
